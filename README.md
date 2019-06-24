@@ -1,4 +1,4 @@
-<b>Technology NEWS on Tuesday, June 25th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Monday, June 24th, 2019</b> 📡📡📡 
 
 👉Fifty years later, the moon is still great for business❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pressherald.com/2019/06/24/fifty-years-later-the-moon-is-still-great-for-business/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNExtXVYHWL0pIo0BH9S3nvDFfUN8g'> link</a>
 
