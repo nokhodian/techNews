@@ -1,20 +1,20 @@
-<b>Technology NEWS on Friday, June 28th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Saturday, June 29th, 2019</b> 📡📡📡 
 
-👉'Fortnite' 14 Days Of Summer: How To Thank The Bus Driver On All Platforms❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/davidthier/2019/06/28/mobile-ios-pc-ps4-switch-fortnite-14-days-of-summer-how-to-thank-the-bus-driver-on-all-platforms/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNE1E0eQwp7QW1sPtRoAORgenfTXJQ'> link</a>
+👉Crackdown 3 now has a wingsuit❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcgamesn.com/crackdown-3/wingsuit-update&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFIjpeON4d9-fG_uDAZpWXmELL_Cg'> link</a>
 
-👉🏽MacBook Pro 16-inch: Everything you need to know❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.digitaltrends.com/computing/macbook-pro-16-inch-rumors-news-price-release-date/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFfrBc70l4C7HePgfwBlZIp2AE0Uw'> link</a>
+👉🏽'Fortnite' Fortbyte #53 Location: Help Raise The Disco Ball At An Abandoned Mountaintop Villain Lair❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/davidthier/2019/06/29/fortnite-fortbyte-53-location-help-raise-the-disco-ball-at-an-abandoned-mountaintop-villain-lair/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFv2qTL-a5YvWGhXK_aRwpQeoJdHg'> link</a>
 
-👉🏿First Ride: Cannondale SuperSix Evo 2020 - is it really better than the old bike?❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://road.cc/content/tech-news/262834-first-ride-cannondale-supersix-evo-2020-it-really-better-old-bike&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFb5dJXPu9_V9RdOMqelpLERTA-qA'> link</a>
+👉🏿MacBook Air vs. iPad Pro❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.digitaltrends.com/computing/macbook-air-vs-ipad-pro/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNG-yAsIcbpeBwFH-GgeLCQAuZFYTg'> link</a>
 
-👉Mortal Kombat Director Skeptical PS5 Is More Powerful Than Xbox Scarlett❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://comicbook.com/gaming/2019/06/28/ps5-xbox-scarlett-playstation-mortal-kombat-director/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEoAbsZTt0nxe14kRWmFVn0A9Wd7g'> link</a>
+👉How to move from Chrome to another browser❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/6/29/18758648/how-to-move-from-chrome-to-safari-firefox-brave-another-browser&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEzJn-p6UF9ykORMxneGj-ujctgcA'> link</a>
 
-👉🏽Valve forced to tweak its confusing Steam 'Grand Prix Summer Sale'❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.engadget.com/2019/06/28/valve-tweaks-steam-grand-prix-summer-sale/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHsKYKfvPSK5B7f7GVOkNUfo4Zudg'> link</a>
+👉🏽Game Freak Is Not Budging On Missing Pokémon From 'Sword And Shield,' Fans Not Amused❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/paultassi/2019/06/29/game-freak-is-not-budging-on-missing-pokmon-from-sword-and-shield-fans-not-amused/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEwsJXMWEwa7T7VebdfQE87WPiuGg'> link</a>
 
-👉🏿Replay: Welp, We Might Be Getting a Final Fantasy XIV TV Show❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.wired.com/story/final-fantasy-tv-show/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHPytauO1TlvqXCzeSdUKLuC_Gjzw'> link</a>
+👉🏿OnePlus 7 gets new update to improve camera performance, brings latest June security patch❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.indiatoday.in/technology/news/story/oneplus-7-gets-new-update-to-improve-camera-performance-brings-latest-june-security-patch-1558699-2019-06-29&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEfsVGgyKlry7XpY6CjQGqUMsGtYw'> link</a>
 
-👉The Problem With 'Harry Potter: Wizards Unite' Is The Concept, Not The Execution❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/paultassi/2019/06/28/the-problem-with-harry-potter-wizards-unite-is-the-concept-not-the-execution/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNE7A4rClqDZYZRgrW9uhgFU4sg9-w'> link</a>
+👉Publishers reportedly underwhelmed with Apple News+ so far, Apple promising improvements❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://9to5mac.com/2019/06/29/apple-news-revenue-concerns/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGgVxAJYL2CqeEbFk9RVJGMfA3rjA'> link</a>
 
-👉🏽'Cyberpunk 2077' File Size Twice As Big As 'The Witcher 3'❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.ibtimes.com/cyberpunk-2077-file-size-twice-big-witcher-3-2803597&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNG055ciIj12N63U6e4diobqvGcG7A'> link</a>
+👉🏽[UPDATE] Mario Royale and DMCA Royale are dead, Jim.❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://mspoweruser.com/dmca-royale-is-dead-jim/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFqGWgEjE6eFXyajwzNk5J0jGngvQ'> link</a>
 
-👉🏿This huge leak might be our first look at the Galaxy Note 10+ in real-life photos❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://bgr.com/2019/06/28/galaxy-note-10-release-date-soon-live-photos-leak/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFoflN0Ii0ZxCvojHQjVL6cvdkPQg'> link</a>
+👉🏿How to use TikTok, the short-form video app Gen Z loves and that's ushering in a new era of influencers❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.businessinsider.com/tiktok-how-to-use-short-form-video-app-gen-z-2019-6&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHHDeHpoK7A09XcNsB5yNNkaVG3Kw'> link</a>
 
