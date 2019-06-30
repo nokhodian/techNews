@@ -1,20 +1,20 @@
-<b>Technology NEWS on Saturday, June 29th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Sunday, June 30th, 2019</b> 📡📡📡 
 
-👉Crackdown 3 now has a wingsuit❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcgamesn.com/crackdown-3/wingsuit-update&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFIjpeON4d9-fG_uDAZpWXmELL_Cg'> link</a>
+👉'Fortnite' Fortbyte #97: Found At A Location Hidden Within Loading Screen #8❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/paultassi/2019/06/30/fortnite-fortbyte-97-found-at-a-location-hidden-within-loading-screen-8/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFTIEWonuOtmCnXq6R03MnZWchSag'> link</a>
 
-👉🏽'Fortnite' Fortbyte #53 Location: Help Raise The Disco Ball At An Abandoned Mountaintop Villain Lair❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/davidthier/2019/06/29/fortnite-fortbyte-53-location-help-raise-the-disco-ball-at-an-abandoned-mountaintop-villain-lair/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFv2qTL-a5YvWGhXK_aRwpQeoJdHg'> link</a>
+👉🏽F1 maker McLaren has just launched new supercar for kids - and its been test driven on Angelsey❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.dailypost.co.uk/news/north-wales-news/f1-maker-mclaren-just-launched-16501821&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGYJj1Jc8FQSmIxKxsmnZForPlXUw'> link</a>
 
-👉🏿MacBook Air vs. iPad Pro❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.digitaltrends.com/computing/macbook-air-vs-ipad-pro/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNG-yAsIcbpeBwFH-GgeLCQAuZFYTg'> link</a>
+👉🏿Apex Legends' success pushed out plans for the next Titanfall❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcgamesn.com/apex-legends/apex-legends-success-titanfall-3&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEAOuRldEiNnVFkc8C5Dt34YbIAQA'> link</a>
 
-👉How to move from Chrome to another browser❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/6/29/18758648/how-to-move-from-chrome-to-safari-firefox-brave-another-browser&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEzJn-p6UF9ykORMxneGj-ujctgcA'> link</a>
+👉10 Best MacBook Air Cases❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.laptopmag.com/articles/10-best-macbook-air-cases&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEBOrpUTUrRXC4LiagDVSW5RVwoTA'> link</a>
 
-👉🏽Game Freak Is Not Budging On Missing Pokémon From 'Sword And Shield,' Fans Not Amused❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/paultassi/2019/06/29/game-freak-is-not-budging-on-missing-pokmon-from-sword-and-shield-fans-not-amused/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEwsJXMWEwa7T7VebdfQE87WPiuGg'> link</a>
+👉🏽'Fortnite' Unicorn Floaties Locations: Where To Search Unicorns At Swimming Holes❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/paultassi/2019/06/30/fortnite-unicorn-floaties-locations-where-to-search-unicorns-at-swimming-holes/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFit-95Ozch1WZ4V8konlRSD4GpBg'> link</a>
 
-👉🏿OnePlus 7 gets new update to improve camera performance, brings latest June security patch❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.indiatoday.in/technology/news/story/oneplus-7-gets-new-update-to-improve-camera-performance-brings-latest-june-security-patch-1558699-2019-06-29&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEfsVGgyKlry7XpY6CjQGqUMsGtYw'> link</a>
+👉🏿The next Apple Watch could get a camera or two❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/apple-watch-5-rumors-patent-camera-watch-band/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEZnZs7h762wjSCpUhlVkiBAZym2w'> link</a>
 
-👉Publishers reportedly underwhelmed with Apple News+ so far, Apple promising improvements❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://9to5mac.com/2019/06/29/apple-news-revenue-concerns/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGgVxAJYL2CqeEbFk9RVJGMfA3rjA'> link</a>
+👉What is in the Fortnite item shop today? Available skins and cosmetics for June 30❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.thesun.co.uk/tech/9405090/fortnite-item-shop-today-buy/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFXb4hCN0VReA1q-qBDQmFBNsCyqQ'> link</a>
 
-👉🏽[UPDATE] Mario Royale and DMCA Royale are dead, Jim.❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://mspoweruser.com/dmca-royale-is-dead-jim/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFqGWgEjE6eFXyajwzNk5J0jGngvQ'> link</a>
+👉🏽Get a refurbished MacBook Pro for over 40% off❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.salon.com/2019/06/30/get-a-refurbished-macbook-pro-for-over-40-off/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGNKQ5W8FnhX0ZfQhNMbFJybbSR0w'> link</a>
 
-👉🏿How to use TikTok, the short-form video app Gen Z loves and that's ushering in a new era of influencers❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.businessinsider.com/tiktok-how-to-use-short-form-video-app-gen-z-2019-6&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHHDeHpoK7A09XcNsB5yNNkaVG3Kw'> link</a>
+👉🏿Summer Games Done Quick 2019 smashes GDQ fundraising record❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcgamer.com/summer-games-done-quick-2019-smashes-gdq-fundraising-record/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGHoRl5LtPDcEvmt93gSXRPYRLnOA'> link</a>
 
