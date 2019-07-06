@@ -1,20 +1,20 @@
-<b>Technology NEWS on Friday, July 5th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Saturday, July 6th, 2019</b> 📡📡📡 
 
-👉Xiaomi Mi A3 spotted with 48MP rear camera: Triple rear cameras, Android One confirmed❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.indiatoday.in/technology/news/story/xiaomi-mi-a3-spotted-with-48mp-rear-camera-triple-rear-cameras-android-one-confirmed-1562957-2019-07-05&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGxEKs-Y2Ai4cd8t6SUYzFHl9gE5g'> link</a>
+👉Unnamed Nokia smartphone leaks with 3 rear cameras, could be new Nokia 8 series phone❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.indiatoday.in/technology/news/story/unnamed-nokia-smartphone-leaks-with-3-rear-cameras-could-be-new-nokia-8-series-phone-1563531-2019-07-06&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEFihZO5339EnXapnwbhH2-A6inCQ'> link</a>
 
-👉🏽SwiftKey beta adds AR-powered Animoji clone to all Android phones❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://9to5google.com/2019/07/05/swiftkey-beta-animoji-android/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEKhOGTFMwXwHQOmNUEDG9k73Cx-g'> link</a>
+👉🏽Porsche's new 911 RSR makes its debut at Goodwood❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/roadshow/news/porsche-new-911-rsr-race-car-debut-goodwood/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHc98aANzauAyWpJU435LTQCPn9Aw'> link</a>
 
-👉🏿The ThinkPad X1 Yoga 2-in-1 is on sale right now for almost 50% off❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.digitaltrends.com/dtdeals/lenovo-thinkpad-x1-yoga-july-4-deal/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHZkS3LcDV_cLIguAKIWISO5ZaYAA'> link</a>
+👉🏿'Destiny 2' Just Revealed Its Weirdest Exotic Yet Ahead Of Its 'Shadowkeep' Debut❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/paultassi/2019/07/06/destiny-2-just-revealed-its-weirdest-exotic-yet-ahead-of-its-shadowkeep-debut/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFvgpSb7veoXNwUDIUL1jmjfkWOGA'> link</a>
 
-👉Are Gamers Ready to Buy New Consoles? Some AAA Video Game CEOs Aren't Sure❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://fortune.com/2019/07/05/project-scarlett-playstation-5-next-gen-consoles-2/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGS2bLW_64IKxYyzNCxm2aFADqAQA'> link</a>
+👉Dell XPS 15 vs. MacBook Pro (15-inch): Which 2019 Powerhouse Is Best?❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.laptopmag.com/articles/dell-xps-15-vs-macbook-pro-15-inch&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEBLuFz52KWqrLgQJDJkVEk7hQ1MQ'> link</a>
 
-👉🏽Sony's new noise-canceling wireless earbuds are its best answer to AirPods yet❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/7/5/20682334/sony-wf-1000xm3-wireless-earbuds-hands-on-preview-features&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHSSxHtxJAsiQf9F1vj7m3AqOdJ6A'> link</a>
+👉🏽Google Pixel Undergoes Significant Camera Changes❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/paulmonckton/2019/07/06/google-camera-upgrade-brings-feature-cancellation/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEDC_v17AyK20oitFKTvCLexfC_Qg'> link</a>
 
-👉🏿More iPhone 11 leaks and why Apple could ditch FaceID❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/iphone-11-leaks-and-why-apple-could-ditch-faceid/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNH_2pvuAV165YZwtWHOPz7KlBl1aA'> link</a>
+👉🏿Is Outset Island From 'Wind Waker' In 'Zelda: Breath Of The Wild'?❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/olliebarder/2019/07/06/is-outset-island-from-wind-waker-in-zelda-breath-of-the-wild/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNErG2djr5qeIewuf9psJrFJeBpG8Q'> link</a>
 
-👉'Fortnite' Carnival Clown Board Locations: How And Where To Score A Ten Or Higher For '14 Days Of Summer'❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/erikkain/2019/07/05/fortnite-carnival-clown-board-locations-how-and-where-to-score-a-ten-or-higher-for-14-days-of-summer/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFb9VBrGe8AE55gbfal3LtTHZ4z5w'> link</a>
+👉DoH! Secure DNS doesn't make us a villain Mozilla tells UK ISP's❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theregister.co.uk/2019/07/06/mozilla_ukisp_vallain/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNF13MgYrfMuwRhD8hkbGxFTdmJ6yQ'> link</a>
 
-👉🏽AMD 5700 XT rumored price drop could save Navi from Super irrelevance❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.digitaltrends.com/computing/amd-rx-5700-xt-price-drop-nvidia-super/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNETbaxLv-WFfn99DIzCupgcKGKT2A'> link</a>
+👉🏽Confirmed: Microsoft Seeks Security Advice From Linux❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/daveywinder/2019/07/06/confirmed-microsoft-seeks-security-advice-from-linux/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEUJuqeY-3OoAC9kHQk2uLE-gHh5g'> link</a>
 
-👉🏿PUBG update: Now, download and play the battle royale game on any computer❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.businesstoday.in/technology/pubg-lite-update-download-play-battle-royale-game-computer-pc-mobile/story/361867.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNH96MO0N1VcGOJamTJpasyKqfmIig'> link</a>
+👉🏿Gears 5 multiplayer tech test begins in July❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.techradar.com/news/gears-5-multiplayer-tech-test-begins-in-july&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHWqzJl7xykEPDIhIeM7RDJH4hHow'> link</a>
 
