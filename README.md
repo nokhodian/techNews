@@ -1,20 +1,20 @@
-<b>Technology NEWS on Saturday, July 6th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Sunday, July 7th, 2019</b> 📡📡📡 
 
-👉Unnamed Nokia smartphone leaks with 3 rear cameras, could be new Nokia 8 series phone❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.indiatoday.in/technology/news/story/unnamed-nokia-smartphone-leaks-with-3-rear-cameras-could-be-new-nokia-8-series-phone-1563531-2019-07-06&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEFihZO5339EnXapnwbhH2-A6inCQ'> link</a>
+👉Bose Noise Cancelling Headphones 700 vs the QuietComfort 35 IIs: how do they compare?❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.techradar.com/news/bose-noise-cancelling-headphones-700-vs-the-quietcomfort-35-iis-how-do-they-compare&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEz4BfBLt6YN_lbPHgvndR06NyDEA'> link</a>
 
-👉🏽Porsche's new 911 RSR makes its debut at Goodwood❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/roadshow/news/porsche-new-911-rsr-race-car-debut-goodwood/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHc98aANzauAyWpJU435LTQCPn9Aw'> link</a>
+👉🏽A journalist's wrecked MacBook keyboard tells a terrible story❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.zdnet.com/article/is-this-the-most-damaged-macbook-keyboard-youve-ever-seen/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNH2LyNYh_PHP7N8kOT_e5cuzarIuQ'> link</a>
 
-👉🏿'Destiny 2' Just Revealed Its Weirdest Exotic Yet Ahead Of Its 'Shadowkeep' Debut❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/paultassi/2019/07/06/destiny-2-just-revealed-its-weirdest-exotic-yet-ahead-of-its-shadowkeep-debut/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFvgpSb7veoXNwUDIUL1jmjfkWOGA'> link</a>
+👉🏿Fortnite sea shell: Search hidden sea shell in beach loading screen map location❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.express.co.uk/entertainment/gaming/1150275/Fortnite-sea-shell-search-the-hidden-sea-shell-in-beach-loading-screen-map-location&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHoSLpat1ZxPI34De3iCIVm5Ie9eg'> link</a>
 
-👉Dell XPS 15 vs. MacBook Pro (15-inch): Which 2019 Powerhouse Is Best?❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.laptopmag.com/articles/dell-xps-15-vs-macbook-pro-15-inch&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEBLuFz52KWqrLgQJDJkVEk7hQ1MQ'> link</a>
+👉Game Stack Turns Microsoft's Data Centers Into Game Development Platforms❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/kevinmurnane/2019/07/07/game-stack-turns-microsofts-data-centers-into-game-development-platforms/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGmGkz5Ap-tuC-oUKaHRBHzaQMvnw'> link</a>
 
-👉🏽Google Pixel Undergoes Significant Camera Changes❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/paulmonckton/2019/07/06/google-camera-upgrade-brings-feature-cancellation/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEDC_v17AyK20oitFKTvCLexfC_Qg'> link</a>
+👉🏽Digimon Story Cyber Sleuth: Complete Edition heads to PC later this year❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcgamer.com/digimon-story-cyber-sleuth-complete-edition-heads-to-pc-later-this-year/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGBF6yUN3drEwSO893KcefoqLj9vA'> link</a>
 
-👉🏿Is Outset Island From 'Wind Waker' In 'Zelda: Breath Of The Wild'?❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/olliebarder/2019/07/06/is-outset-island-from-wind-waker-in-zelda-breath-of-the-wild/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNErG2djr5qeIewuf9psJrFJeBpG8Q'> link</a>
+👉🏿10 million Samsung users tricked into downloading fake apps❗️<a href='https://www.google.com/url?rct=j&sa=t&url=http://theindependent.sg/10-million-samsung-users-tricked-into-downloading-fake-apps/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHdn0T3qhJrs73RRR2DUKd2nLNyiA'> link</a>
 
-👉DoH! Secure DNS doesn't make us a villain Mozilla tells UK ISP's❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theregister.co.uk/2019/07/06/mozilla_ukisp_vallain/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNF13MgYrfMuwRhD8hkbGxFTdmJ6yQ'> link</a>
+👉Nintendo is 'investigating' 5G technology❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.techradar.com/news/nintendo-is-investigating-5g-technology&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNELK4jwMwptODGTwP00S47q7imMAg'> link</a>
 
-👉🏽Confirmed: Microsoft Seeks Security Advice From Linux❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/daveywinder/2019/07/06/confirmed-microsoft-seeks-security-advice-from-linux/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEUJuqeY-3OoAC9kHQk2uLE-gHh5g'> link</a>
+👉🏽Drive the 500hp Top Gear Track-tor in 'Forza Horizon 4'❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.topgear.com.ph/features/feature-articles/tg-track-tor-forza-horizon-4-tguk-a2620-20190707&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGgWYiaFS8PFV5T9nk2geCFAe2x8A'> link</a>
 
-👉🏿Gears 5 multiplayer tech test begins in July❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.techradar.com/news/gears-5-multiplayer-tech-test-begins-in-july&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHWqzJl7xykEPDIhIeM7RDJH4hHow'> link</a>
+👉🏿Warframe's New Frames, Ship Combat, And Cool Cinematic Trailer Revealed❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.gamespot.com/articles/warframes-new-frames-ship-combat-and-cool-cinemati/1100-6468247/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHCekGK2yPKgljs-72WcHd2N81yDw'> link</a>
 
