@@ -1,20 +1,20 @@
-<b>Technology NEWS on Tuesday, July 9th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Wednesday, July 10th, 2019</b> 📡📡📡 
 
-👉Glitch is bringing remix culture back to the web with a $30 million Series A round❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://techcrunch.com/2019/07/09/glitch-is-bringing-remix-culture-back-to-the-web-with-a-30-million-series-a-round/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHLwomviGxPYR3rcTTvomDnH5jBJQ'> link</a>
+👉After restructuring, Amazon's Game Studios partners with Athlon Games on “Lord of the Rings” title❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://techcrunch.com/2019/07/10/after-restructuring-amazons-game-studios-partners-with-athlon-games-on-lord-of-the-rings-title/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHcnQCqqI_z7ciVfQ5E4JZls_hDWg'> link</a>
 
-👉🏽Facebook will start taking a cut of fan subscriptions in 2020❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://techcrunch.com/2019/07/09/facebook-subscription-revenue-share/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNH_64Qu-NpVYM_m8hC2tnfS5OitmA'> link</a>
+👉🏽Nintendo Switch Online's rewind will let you cheat in NES classics next week❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/nintendo-switch-online-will-let-you-cheat-in-nes-classics-next-week/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNESPj2myrHBtPp4BbO5lYRbrA28Ig'> link</a>
 
-👉🏿'Pokémon GO' Team Rocket Event Leaks With Trainer Battles And Shadow Pokémon❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/paultassi/2019/07/09/pokmon-go-team-rocket-event-leaks-with-trainer-battles-and-shadow-pokmon/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHXK1ioLAY8VaS66Hyi5JAfdccebA'> link</a>
+👉🏿R106m Aston GT Zagato has some interesting design features❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.iol.co.za/motoring/latest-launches/r106m-aston-gt-zagato-has-some-interesting-design-features-28979959&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEzj5dYiwmIg6ZMUN2kc0CNAUVzMA'> link</a>
 
-👉Amazon Prime Day 2019: OnePlus 7 comes in Mirror Blue hue❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/amazon-prime-day-2019-oneplus-7-comes-in-mirror-blue-hue/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFmILuKtOOk20L6-8s0LdxGXFixyw'> link</a>
+👉Apple has made shopping for MacBooks simple again❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/7/10/20688719/apple-macbook-air-pro-ipad-pro-shopping&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFoflNhmZYBst00uaxdWCsGIcG7aw'> link</a>
 
-👉🏽Apple cuts MacBook Air price by $100, gives MacBook Pro chip upgrade❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/apple-cuts-macbook-air-price-by-100-gives-macbook-pro-chip-upgrade/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEeGXRv-CPrrlGdzM7FL4tFx17y7Q'> link</a>
+👉🏽Ryzen 9 3900X/7 3700X review: The next generation❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://venturebeat.com/2019/07/10/ryzen-9-3900x-7-3700x-review/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFIg-hc0bXxjDrDF3FlZ5zUOrP2vA'> link</a>
 
-👉🏿The VAIO SX12 fits nine ports into a 12.5-inch laptop❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.windowscentral.com/vaio-sx12-fits-nine-ports-125-inch-laptop&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHLzevAcW2NS6it0eHuXgy-cEh_jA'> link</a>
+👉🏿Nintendo Switch Lite to arrive for $200, and here's how it plays❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/nintendo-switch-lite-arrives-for-200-and-here-is-how-it-plays/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGw0Nry-QwDiyyA86EMb2BtjqTTag'> link</a>
 
-👉YouTube is back on the Fire TV, and Prime Video launches on Chromecast starting today❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/7/9/20686773/youtube-fire-tv-prime-video-chromecast-amazon-google-launch-today-available&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGmw226duLVYU6QuSCHvpGtWfwmkw'> link</a>
+👉OnePlus confirms fix coming for OnePlus 7 Pro random shutdowns❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://9to5google.com/2019/07/10/oneplus-7-pro-shutdowns-fix/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHNozSfadjes6BFtXUUMReIE6jsWQ'> link</a>
 
-👉🏽RIP Galaxy Tab S5: Samsung Reportedly Jumping to Galaxy Tab S6❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.laptopmag.com/articles/galaxy-tab-s6&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHdnAcRXBKfAw54bw8as9bR9tvL4w'> link</a>
+👉🏽The Final Fantasy 7 remake may not be PS4-exclusive at launch❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcgamesn.com/final-fantasy-7-remake/xbox-one&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNF3t7VbNNMvsPNKJwUCkrt0yqmqdg'> link</a>
 
-👉🏿Ookla's 2019 US Mobile Report Shows Major Speed Gains❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcmag.com/news/369408/ooklas-2019-us-mobile-report-shows-major-speed-gains&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEK11J9N4ErmG4zCHrveoo7ZHKjaw'> link</a>
+👉🏿iPhone 11: New iPhone Release Date, Specs, Price and Leaks❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://finance.yahoo.com/news/iphone-11-iphone-release-date-010234249.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHGfpIgSvy603JM1rylbYMHLtuYwg'> link</a>
 
