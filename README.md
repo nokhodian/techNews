@@ -1,20 +1,20 @@
-<b>Technology NEWS on Wednesday, July 10th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Thursday, July 11th, 2019</b> 📡📡📡 
 
-👉After restructuring, Amazon's Game Studios partners with Athlon Games on “Lord of the Rings” title❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://techcrunch.com/2019/07/10/after-restructuring-amazons-game-studios-partners-with-athlon-games-on-lord-of-the-rings-title/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHcnQCqqI_z7ciVfQ5E4JZls_hDWg'> link</a>
+👉Boosted's electric scooter is fast, durable, fun and…really heavy❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://techcrunch.com/2019/07/11/boosted-rev-electric-scooter-review/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHK4tzoYLF-BIu8VSCV0l7XhaJC2A'> link</a>
 
-👉🏽Nintendo Switch Online's rewind will let you cheat in NES classics next week❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/nintendo-switch-online-will-let-you-cheat-in-nes-classics-next-week/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNESPj2myrHBtPp4BbO5lYRbrA28Ig'> link</a>
+👉🏽Apple May Launch Five New iPads This Year❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.laptopmag.com/articles/apple-new-ipads-2019&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFC_PhKwa998n0P0Lpbl2zGrpKO0A'> link</a>
 
-👉🏿R106m Aston GT Zagato has some interesting design features❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.iol.co.za/motoring/latest-launches/r106m-aston-gt-zagato-has-some-interesting-design-features-28979959&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEzj5dYiwmIg6ZMUN2kc0CNAUVzMA'> link</a>
+👉🏿Apple freezes Walkie-Talkie app for Watch over eavesdropping exploit❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://venturebeat.com/2019/07/11/apple-freezes-walkie-talkie-app-for-watch-over-eavesdropping-exploit/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHzGKXUga3sSlN5Oni7HUSEKysw3g'> link</a>
 
-👉Apple has made shopping for MacBooks simple again❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/7/10/20688719/apple-macbook-air-pro-ipad-pro-shopping&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFoflNhmZYBst00uaxdWCsGIcG7aw'> link</a>
+👉Can We Trust Amazon Game Studios To Make A Good 'Lord Of The Rings' MMO?❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/paultassi/2019/07/11/can-we-trust-amazon-game-studios-to-make-a-good-lord-of-the-rings-mmo/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEy_PjJUX2xtKSwmuou9V_gTNUb-w'> link</a>
 
-👉🏽Ryzen 9 3900X/7 3700X review: The next generation❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://venturebeat.com/2019/07/10/ryzen-9-3900x-7-3700x-review/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFIg-hc0bXxjDrDF3FlZ5zUOrP2vA'> link</a>
+👉🏽Infinix Note 6❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://gadgets.ndtv.com/infinix-note-6-price-in-india-13186&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHGB5q2U47LXYQMKsllru7fCq1jIQ'> link</a>
 
-👉🏿Nintendo Switch Lite to arrive for $200, and here's how it plays❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/nintendo-switch-lite-arrives-for-200-and-here-is-how-it-plays/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGw0Nry-QwDiyyA86EMb2BtjqTTag'> link</a>
+👉🏿Amazon to spend $700 million retraining a third of its US workforce by 2025❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/7/11/20690124/amazon-retraining-upskilling-workers-automation-cost-2025&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFB1t1xupH3utyLu_Xmwd8X4MpFKA'> link</a>
 
-👉OnePlus confirms fix coming for OnePlus 7 Pro random shutdowns❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://9to5google.com/2019/07/10/oneplus-7-pro-shutdowns-fix/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHNozSfadjes6BFtXUUMReIE6jsWQ'> link</a>
+👉Google Maps gets 3 new features, offers 25 per cent discount of popular restaurants for limited time❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.indiatoday.in/technology/news/story/google-maps-gets-3-new-features-offers-25-per-cent-discount-of-popular-restaurants-for-limited-time-1566940-2019-07-11&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHfVJ5XJqkyKarvBDnR-gS1hv4DTw'> link</a>
 
-👉🏽The Final Fantasy 7 remake may not be PS4-exclusive at launch❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcgamesn.com/final-fantasy-7-remake/xbox-one&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNF3t7VbNNMvsPNKJwUCkrt0yqmqdg'> link</a>
+👉🏽A challenging Patch Tuesday for legacy Windows platforms❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.computerworld.com/article/3408636/a-challenging-patch-tuesday-for-legacy-windows-platforms.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEaWXNVxN3SibXM5qSkkUkK-_Owmw'> link</a>
 
-👉🏿iPhone 11: New iPhone Release Date, Specs, Price and Leaks❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://finance.yahoo.com/news/iphone-11-iphone-release-date-010234249.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHGfpIgSvy603JM1rylbYMHLtuYwg'> link</a>
+👉🏿Shoelace is a hyperlocal social network from Google's Area 120❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://9to5google.com/2019/07/11/google-shoelace/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHxq2OTOd8jDWlOqfbJnxnZffXesw'> link</a>
 
