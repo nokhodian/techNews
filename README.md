@@ -1,20 +1,20 @@
-<b>Technology NEWS on Thursday, July 11th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Friday, July 12th, 2019</b> 📡📡📡 
 
-👉Boosted's electric scooter is fast, durable, fun and…really heavy❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://techcrunch.com/2019/07/11/boosted-rev-electric-scooter-review/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHK4tzoYLF-BIu8VSCV0l7XhaJC2A'> link</a>
+👉Fire Emblem: Three Houses Will Test Your Heart And Your Mettle❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://kotaku.com/fire-emblem-three-houses-will-test-your-heart-and-your-1836305722&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHj_QKoUGYDOs1-dngHEvGHPjXtqg'> link</a>
 
-👉🏽Apple May Launch Five New iPads This Year❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.laptopmag.com/articles/apple-new-ipads-2019&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFC_PhKwa998n0P0Lpbl2zGrpKO0A'> link</a>
+👉🏽Heads up: Android Q Beta 5 grants apps unlimited location access, but new notification helps catch that❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.androidpolice.com/2019/07/12/android-q-beta-5-bug-location-access-new-notification/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNG417yOufj5-0_N46cbYraBJTktsg'> link</a>
 
-👉🏿Apple freezes Walkie-Talkie app for Watch over eavesdropping exploit❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://venturebeat.com/2019/07/11/apple-freezes-walkie-talkie-app-for-watch-over-eavesdropping-exploit/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHzGKXUga3sSlN5Oni7HUSEKysw3g'> link</a>
+👉🏿Xiaomi teases Mi A3 officially, hints at fullscreen bezel-less display: Is this the Mi CC9 from China?❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.indiatoday.in/technology/news/story/xiaomi-teases-mi-a3-officially-hints-at-fullscreen-bezel-less-display-is-this-the-mi-cc9-from-china-1567754-2019-07-12&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEnpFC19kUx9vhQ7n-j13Qhv_p65A'> link</a>
 
-👉Can We Trust Amazon Game Studios To Make A Good 'Lord Of The Rings' MMO?❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/paultassi/2019/07/11/can-we-trust-amazon-game-studios-to-make-a-good-lord-of-the-rings-mmo/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEy_PjJUX2xtKSwmuou9V_gTNUb-w'> link</a>
+👉Minecraft Earth Gameplay Looks Adorable❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://kotaku.com/minecraft-earth-gameplay-looks-adorable-1836306364&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHrKE64SD223pxrbbRtcV9L9jqQ7g'> link</a>
 
-👉🏽Infinix Note 6❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://gadgets.ndtv.com/infinix-note-6-price-in-india-13186&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHGB5q2U47LXYQMKsllru7fCq1jIQ'> link</a>
+👉🏽'Dragon Quest Builders 2' Review: An Ambitious Sequel That Sadly Falls Short❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/games/2019/07/12/dragon-quest-builders-2-review-an-ambitious-sequel-that-sadly-falls-short/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFBeo4RRL7HIXalNo4TGAvnXkdYiw'> link</a>
 
-👉🏿Amazon to spend $700 million retraining a third of its US workforce by 2025❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/7/11/20690124/amazon-retraining-upskilling-workers-automation-cost-2025&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFB1t1xupH3utyLu_Xmwd8X4MpFKA'> link</a>
+👉🏿Does HBO Have A Problem With Millennials?❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/jonathanberr/2019/07/12/does-hbo-have-a-problem-with-millennials/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHi0tjtHs8WWstWz-Z1skiO0DoiDA'> link</a>
 
-👉Google Maps gets 3 new features, offers 25 per cent discount of popular restaurants for limited time❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.indiatoday.in/technology/news/story/google-maps-gets-3-new-features-offers-25-per-cent-discount-of-popular-restaurants-for-limited-time-1566940-2019-07-11&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHfVJ5XJqkyKarvBDnR-gS1hv4DTw'> link</a>
+👉Playing StarCraft? You can now compete with an undercover AI❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.vox.com/future-perfect/2019/7/12/20690818/starcraft-deepmind-ai-gaming&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGcQwZdtqznn2nK1Cf79znjvJYy5g'> link</a>
 
-👉🏽A challenging Patch Tuesday for legacy Windows platforms❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.computerworld.com/article/3408636/a-challenging-patch-tuesday-for-legacy-windows-platforms.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEaWXNVxN3SibXM5qSkkUkK-_Owmw'> link</a>
+👉🏽Powerbeats Pro Now Available to Order in Over 20 Additional Countries❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.macrumors.com/2019/07/12/powerbeats-pro-orders-over-20-more-countries/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFMJ_cirjV_gUqQrPcOSwHvr0_YXQ'> link</a>
 
-👉🏿Shoelace is a hyperlocal social network from Google's Area 120❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://9to5google.com/2019/07/11/google-shoelace/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHxq2OTOd8jDWlOqfbJnxnZffXesw'> link</a>
+👉🏿Best MacBook Air alternatives for 2019❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/the-best-alternatives-to-the-macbook-air-in-2019/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEjzg6z1QsZuI6U98n82VmLuITh2w'> link</a>
 
