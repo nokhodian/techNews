@@ -1,20 +1,20 @@
-<b>Technology NEWS on Saturday, July 13th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Sunday, July 14th, 2019</b> 📡📡📡 
 
-👉Underlords first battle pass is live now, and it's free❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcgamesn.com/dota-underlords/proto-pass&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHT9b8N5oaW9M0_FKg0QLmW1j0SuA'> link</a>
+👉Walmart's big Prime Day sale has started. Here are the best deals on TVs, laptops, iPads and more❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/walmart-prime-day-sale-here-are-the-best-deals-tv-ipads-laptops/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHc0Yn2AWO_ch2YP3qAGKUv0hkKGg'> link</a>
 
-👉🏽Destiny 2's Shadowkeep Finishers Are Microtransactions, Which Is Less Bad Than It Sounds❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/paultassi/2019/07/13/destiny-2s-shadowkeep-finishers-are-microtransactions-which-is-less-bad-than-it-sounds/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHKaz1a2NaBvXAM6ng-NqXPRvX8_w'> link</a>
+👉🏽Good news for the victims of spoilers: The new neural network bringing ease in their lives❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.digitalinformationworld.com/2019/07/new-artificial-intelligence-can-help-spot-spoilers.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEMRRms3sxQm_ELNayVzQOl8Jiurw'> link</a>
 
-👉🏿'Fortnite' Countdown Appears In-Game, Robot V Monster Fight Now Has A Date And Time❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/paultassi/2019/07/13/fortnite-countdown-appears-in-game-robot-v-monster-fight-now-has-a-date-and-time/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFlsaPmpBhlmux6d7_gqvdToAmctQ'> link</a>
+👉🏿Xbox Scarlett release surprise: console price update and PS5 shock news❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.express.co.uk/entertainment/gaming/1153143/Xbox-Scarlett-release-date-surprise-price-shock-PS5&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGGS6gqOkOsxLAyhqbkQOgptAPotA'> link</a>
 
-👉Redmi K20 Pro, K20, Realme X and Oppo K3 to launch in the coming week❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.digit.in/news/mobile-phones/redmi-k20-pro-k20-realme-x-and-oppo-k3-to-launch-in-the-coming-week-49142.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHua6ofRueoAioQWmZG0HOArsfPdQ'> link</a>
+👉The 2020 iPhone is already stealing the spotlight❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/2020-iphone-rumors-stealing-the-show-iphone-11/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNESbnfvU__m9jXUrFE9SScl9Ie1Mg'> link</a>
 
-👉🏽Mate 20 X: Huawei is planning to launch their first 5G phone in July❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.thesouthafrican.com/news/huawei-mate-20-x-5g-launch-planned-july/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHd7FzH2khJShaYLO6ViExHUcBDfA'> link</a>
+👉🏽Huawei registers the Harmony name for its own OS in Europe❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.techradar.com/news/huawei-registers-the-harmony-name-for-its-own-os-in-europe&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNExCHM8VIoCUoh_j0i7OF_1kvZvhg'> link</a>
 
-👉🏿Amazon and Google are listening to your voice recordings. Here's what we know about that❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/amazon-alexa-google-assistant-data-privacy-concerns/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHvhiIiqA1GUd5gPnk3FtZZnH-H0g'> link</a>
+👉🏿Blizzard will save players from Overwatch cheaters by shutting down matches❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.digitaltrends.com/gaming/overwatch-matches-end-when-cheaters-detected/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNG3WTuCf18al2lfNOgG4ATCaGQDeA'> link</a>
 
-👉The 2020 iPhone is already overshadowing the iPhone 11❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/2020-iphone-is-already-overshadowing-the-iphone-11/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGS-h6oEHoJx3owPc8C7A_gkA49YQ'> link</a>
+👉Google pulls plug on blog management tool 'Blog Compass'❗️<a href='https://www.google.com/url?rct=j&sa=t&url=http://www.newindianexpress.com/business/2019/jul/14/google-pulls-plug-on-blog-management-tool-blog-compass-2003775.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHycBMCJHr0gEbiM2ttzhnqXgQUMQ'> link</a>
 
-👉🏽Best Amazon Alexa devices of 2019❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/best-amazon-alexa-smart-home-devices-of-2019/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGkArs17Jt-RCZaxUy3baDwG3IbSA'> link</a>
+👉🏽The Coalition removes smoking in Gears 5, but the guns will stay❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.digitaltrends.com/gaming/gears-5-no-smoking/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFgaZSqdIrOQMRjfR3qYhJyO9nNew'> link</a>
 
-👉🏿Xiaomi Mi A3 specs and images renders leaked ahead of launch❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.indiatoday.in/technology/news/story/xiaomi-mi-a3-specs-and-images-renders-leaked-ahead-of-launch-1568260-2019-07-13&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNG8SYrzCijwurxhC1eUNG0iXihr1Q'> link</a>
+👉🏿Should You Buy the Nintendo Switch Lite?❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.wired.com/story/nintendo-switch-lite-buying-advice/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHqjyfadVVjOhhs7Uu4euArCey48A'> link</a>
 
