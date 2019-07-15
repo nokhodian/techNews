@@ -1,20 +1,20 @@
-<b>Technology NEWS on Sunday, July 14th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Monday, July 15th, 2019</b> 📡📡📡 
 
-👉Walmart's big Prime Day sale has started. Here are the best deals on TVs, laptops, iPads and more❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/walmart-prime-day-sale-here-are-the-best-deals-tv-ipads-laptops/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHc0Yn2AWO_ch2YP3qAGKUv0hkKGg'> link</a>
+👉The Jabra Elite 65t earbuds are down to their lowest price ever for Prime Day❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.techradar.com/au/amazon-prime-day/the-jabra-elite-65t-earbuds-are-down-to-their-lowest-price-ever-for-prime-day&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHLZILHC378zMOAhtws36iJHmmzcw'> link</a>
 
-👉🏽Good news for the victims of spoilers: The new neural network bringing ease in their lives❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.digitalinformationworld.com/2019/07/new-artificial-intelligence-can-help-spot-spoilers.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEMRRms3sxQm_ELNayVzQOl8Jiurw'> link</a>
+👉🏽Waze will now tell you exactly how much that toll road will cost❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/7/15/20694500/waze-carpool-update-tolls-cost-price&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHhBVhNCwTYHR8Y-ZYZvBkabFBo4A'> link</a>
 
-👉🏿Xbox Scarlett release surprise: console price update and PS5 shock news❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.express.co.uk/entertainment/gaming/1153143/Xbox-Scarlett-release-date-surprise-price-shock-PS5&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGGS6gqOkOsxLAyhqbkQOgptAPotA'> link</a>
+👉🏿This crazy Samsung design with a pull-out screen might hint at a big overhaul for the Galaxy S11❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://bgr.com/2019/07/15/new-samsung-phone-pull-out-screen-punch-hole-camera-patent/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNG2I5HTGvcpgVLqMe9Zotce5zSK8w'> link</a>
 
-👉The 2020 iPhone is already stealing the spotlight❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/2020-iphone-rumors-stealing-the-show-iphone-11/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNESbnfvU__m9jXUrFE9SScl9Ie1Mg'> link</a>
+👉Prime Day Deals: Save $40 on Oculus Go❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.tomsguide.com/news/oculus-go-on-sale&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNF6-wnskNerj0__Mv3F7ECWVhuEOw'> link</a>
 
-👉🏽Huawei registers the Harmony name for its own OS in Europe❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.techradar.com/news/huawei-registers-the-harmony-name-for-its-own-os-in-europe&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNExCHM8VIoCUoh_j0i7OF_1kvZvhg'> link</a>
+👉🏽The Kindle Paperwhite gets an awesome 35% price cut for Prime Day 2019❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.digitaltrends.com/dtdeals/kindle-paperwhite-prime-day-deal/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHmvGWXsNUpviKRFDtPceSzu35JGA'> link</a>
 
-👉🏿Blizzard will save players from Overwatch cheaters by shutting down matches❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.digitaltrends.com/gaming/overwatch-matches-end-when-cheaters-detected/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNG3WTuCf18al2lfNOgG4ATCaGQDeA'> link</a>
+👉🏿Nvidia's DLSS gets a cool new trick, and makes Monster Hunter: World far smoother❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.techradar.com/au/news/nvidias-dlss-gets-a-cool-new-trick-and-makes-monster-hunter-world-far-smoother&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNG26WgKTNA8Bkojbrsg_UYuCgpyPQ'> link</a>
 
-👉Google pulls plug on blog management tool 'Blog Compass'❗️<a href='https://www.google.com/url?rct=j&sa=t&url=http://www.newindianexpress.com/business/2019/jul/14/google-pulls-plug-on-blog-management-tool-blog-compass-2003775.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHycBMCJHr0gEbiM2ttzhnqXgQUMQ'> link</a>
+👉Google kills its Blog Compass blogging tool in less than a year❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://9to5google.com/2019/07/15/google-kills-blog-compass/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEY5Leo01qiSqpYu4TU4ZCVWZknsw'> link</a>
 
-👉🏽The Coalition removes smoking in Gears 5, but the guns will stay❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.digitaltrends.com/gaming/gears-5-no-smoking/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFgaZSqdIrOQMRjfR3qYhJyO9nNew'> link</a>
+👉🏽The best Motorola smartphone deals for Amazon Prime Day❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.digitaltrends.com/dtdeals/best-motorola-moto-amazon-prime-day-deals/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNED5ulPnhKRZAzL9O99lGo_MAZK4Q'> link</a>
 
-👉🏿Should You Buy the Nintendo Switch Lite?❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.wired.com/story/nintendo-switch-lite-buying-advice/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHqjyfadVVjOhhs7Uu4euArCey48A'> link</a>
+👉🏿The Xiaomi Mi A3 could be the Android One phone we've been waiting for❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.trustedreviews.com/news/xiaomi-mi-a3-new-android-one-smartphone-leaks-3917770&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEvufAAcRZTJ3EFC2oQEqooY4f6Jw'> link</a>
 
