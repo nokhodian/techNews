@@ -1,20 +1,20 @@
-<b>Technology NEWS on Monday, July 15th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Tuesday, July 16th, 2019</b> 📡📡📡 
 
-👉The Jabra Elite 65t earbuds are down to their lowest price ever for Prime Day❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.techradar.com/au/amazon-prime-day/the-jabra-elite-65t-earbuds-are-down-to-their-lowest-price-ever-for-prime-day&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHLZILHC378zMOAhtws36iJHmmzcw'> link</a>
+👉Amazon knocks 29% off the Pixel 3 and Pixel 3 XL prices for Prime Day❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.digitaltrends.com/dtdeals/pixel-3-and-pixel-3xl-amazon-prime-day-deals/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEYkY8cKCdQDHufjeKtDRgmsdloAA'> link</a>
 
-👉🏽Waze will now tell you exactly how much that toll road will cost❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/7/15/20694500/waze-carpool-update-tolls-cost-price&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHhBVhNCwTYHR8Y-ZYZvBkabFBo4A'> link</a>
+👉🏽Vivo S1 Global Variant With Helio P65 SoC, 4500mAh Battery Launched: Price, Specifications❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://gadgets.ndtv.com/mobiles/news/vivo-s1-price-global-variant-helio-p65-soc-4500mah-battery-dewdrop-notch-specifications-2070575&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFND8Dpu8g0G_wu1r8-37KM9UMpWw'> link</a>
 
-👉🏿This crazy Samsung design with a pull-out screen might hint at a big overhaul for the Galaxy S11❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://bgr.com/2019/07/15/new-samsung-phone-pull-out-screen-punch-hole-camera-patent/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNG2I5HTGvcpgVLqMe9Zotce5zSK8w'> link</a>
+👉🏿Pokemon Go battles are about to get a whole lot better❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/pokemon-go-battles-are-about-to-get-a-whole-lot-better/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFlNoRcz4Bmcts1W5LFGvOTLzSvzQ'> link</a>
 
-👉Prime Day Deals: Save $40 on Oculus Go❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.tomsguide.com/news/oculus-go-on-sale&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNF6-wnskNerj0__Mv3F7ECWVhuEOw'> link</a>
+👉Vlastelica addresses criticism, future of Overwatch League❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.espn.com/esports/story/_/id/27198920/vlastelica-addresses-criticism-future-overwatch-league&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFVN7j2m0iqmoWLEwF3JRrhMV9OwQ'> link</a>
 
-👉🏽The Kindle Paperwhite gets an awesome 35% price cut for Prime Day 2019❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.digitaltrends.com/dtdeals/kindle-paperwhite-prime-day-deal/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHmvGWXsNUpviKRFDtPceSzu35JGA'> link</a>
+👉🏽An Uncertain Forecast For The Foldable Phone Market❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/forbestechcouncil/2019/07/16/an-uncertain-forecast-for-the-foldable-phone-market/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGzeG-voS0Kg9iqQtiorzRvA84AWw'> link</a>
 
-👉🏿Nvidia's DLSS gets a cool new trick, and makes Monster Hunter: World far smoother❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.techradar.com/au/news/nvidias-dlss-gets-a-cool-new-trick-and-makes-monster-hunter-world-far-smoother&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNG26WgKTNA8Bkojbrsg_UYuCgpyPQ'> link</a>
+👉🏿'PUBG Mobile' Update 0.13.5 Adds Season 8 & PP-19 - Patch Notes❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.newsweek.com/pubg-mobile-update-0-13-5-season-8-pp-19-patch-notes-1449441&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFgKY7KqLzpK5YRSI2GuxZtyCteLg'> link</a>
 
-👉Google kills its Blog Compass blogging tool in less than a year❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://9to5google.com/2019/07/15/google-kills-blog-compass/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEY5Leo01qiSqpYu4TU4ZCVWZknsw'> link</a>
+👉New Super Monkey Ball game revealed for consoles and PC❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://metro.co.uk/2019/07/16/new-super-monkey-ball-game-revealed-consoles-pc-10354512/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFw528MnfKCNpIr1AdCdRalsnHvcQ'> link</a>
 
-👉🏽The best Motorola smartphone deals for Amazon Prime Day❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.digitaltrends.com/dtdeals/best-motorola-moto-amazon-prime-day-deals/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNED5ulPnhKRZAzL9O99lGo_MAZK4Q'> link</a>
+👉🏽Apple Stops Selling Lower-Cost iPhones in India❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.macrumors.com/2019/07/16/apple-stops-selling-lower-cost-iphones-in-india/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNF42hkXPCMREufAR--9mI5c1ZMWZQ'> link</a>
 
-👉🏿The Xiaomi Mi A3 could be the Android One phone we've been waiting for❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.trustedreviews.com/news/xiaomi-mi-a3-new-android-one-smartphone-leaks-3917770&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEvufAAcRZTJ3EFC2oQEqooY4f6Jw'> link</a>
+👉🏿Dell XPS 15 (4K) Now $500 Off on Prime Day❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.laptopmag.com/articles/dell-xps-15-prime-day-deal&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGM4lq-bpxi2sZHdLEBqhBYa_wv6w'> link</a>
 
