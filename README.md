@@ -1,20 +1,20 @@
-<b>Technology NEWS on Tuesday, July 16th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Wednesday, July 17th, 2019</b> 📡📡📡 
 
-👉Amazon knocks 29% off the Pixel 3 and Pixel 3 XL prices for Prime Day❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.digitaltrends.com/dtdeals/pixel-3-and-pixel-3xl-amazon-prime-day-deals/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEYkY8cKCdQDHufjeKtDRgmsdloAA'> link</a>
+👉Google suspends ticket website Viagogo from paid-for global search rankings❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theguardian.com/money/2019/jul/17/google-suspends-ticket-website-viagogo-from-its-search-rankings&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGOiY40swjT5v2UtmWl5LERPw7mbA'> link</a>
 
-👉🏽Vivo S1 Global Variant With Helio P65 SoC, 4500mAh Battery Launched: Price, Specifications❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://gadgets.ndtv.com/mobiles/news/vivo-s1-price-global-variant-helio-p65-soc-4500mah-battery-dewdrop-notch-specifications-2070575&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFND8Dpu8g0G_wu1r8-37KM9UMpWw'> link</a>
+👉🏽'PUBG' Update 4.1 Adds Season 4 Aftermath Pass & New Erangel - Patch Notes❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.newsweek.com/pubg-update-4-1-season-4-aftermath-pass-erangel-patch-notes-1449703&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEeHqx7LpEtsZE5OQNXz0s1JB3rWQ'> link</a>
 
-👉🏿Pokemon Go battles are about to get a whole lot better❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/pokemon-go-battles-are-about-to-get-a-whole-lot-better/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFlNoRcz4Bmcts1W5LFGvOTLzSvzQ'> link</a>
+👉🏿Elon Musk touts brain implant technology to treat health conditions, enable 'telepathy'❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.usatoday.com/story/tech/2019/07/17/elon-musk-neuralink-brain-implants-telepathy-neurological-disorders/1753528001/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNF_kfVc0AlzAI8hrRMHxnuuwOBnNA'> link</a>
 
-👉Vlastelica addresses criticism, future of Overwatch League❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.espn.com/esports/story/_/id/27198920/vlastelica-addresses-criticism-future-overwatch-league&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFVN7j2m0iqmoWLEwF3JRrhMV9OwQ'> link</a>
+👉Nintendo Reveals A New Switch Model With Massively Extended Battery Life❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/paultassi/2019/07/17/nintendo-reveals-a-new-switch-model-with-massively-extended-battery-life/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGNGn2bhz_BT4i2nnYo0qB1mpiohA'> link</a>
 
-👉🏽An Uncertain Forecast For The Foldable Phone Market❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/forbestechcouncil/2019/07/16/an-uncertain-forecast-for-the-foldable-phone-market/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGzeG-voS0Kg9iqQtiorzRvA84AWw'> link</a>
+👉🏽Samsung Monsoon Sale: Big discounts on Galaxy phones, TVs, other appliances, free Oyo, MakeMyTrip coupons❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.financialexpress.com/industry/technology/samsung-monsoon-sale-big-discounts-on-galaxy-phones-tvs-other-appliances-free-oyo-makemytrip-coupons/1647199/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHjKYLillAyT486D8Dw-Ahh1wxYhg'> link</a>
 
-👉🏿'PUBG Mobile' Update 0.13.5 Adds Season 8 & PP-19 - Patch Notes❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.newsweek.com/pubg-mobile-update-0-13-5-season-8-pp-19-patch-notes-1449441&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFgKY7KqLzpK5YRSI2GuxZtyCteLg'> link</a>
+👉🏿New video shows Apple's leaked iPhone 11 models like never before❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://bgr.com/2019/07/17/iphone-11-release-date-coming-leaked-video/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEhlu3PgOsAsifa0mVzpGaWrFK2tg'> link</a>
 
-👉New Super Monkey Ball game revealed for consoles and PC❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://metro.co.uk/2019/07/16/new-super-monkey-ball-game-revealed-consoles-pc-10354512/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFw528MnfKCNpIr1AdCdRalsnHvcQ'> link</a>
+👉Giant Pink Robot Appears in Fortnite Alongside Season 10 Countdown❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.androidcentral.com/giant-pink-robot-appears-fortnite-alongside-countdown&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNH5nVfbh8r5CMzT6vUtVAEreNGZkQ'> link</a>
 
-👉🏽Apple Stops Selling Lower-Cost iPhones in India❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.macrumors.com/2019/07/16/apple-stops-selling-lower-cost-iphones-in-india/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNF42hkXPCMREufAR--9mI5c1ZMWZQ'> link</a>
+👉🏽The Nokia 2.2 has a removable battery and is now available in the US for $139❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.techspot.com/news/80990-nokia-22-has-removable-battery-now-available-us.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNF6Jt9EET0HljavTnmC14lM0-Tagw'> link</a>
 
-👉🏿Dell XPS 15 (4K) Now $500 Off on Prime Day❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.laptopmag.com/articles/dell-xps-15-prime-day-deal&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGM4lq-bpxi2sZHdLEBqhBYa_wv6w'> link</a>
+👉🏿What Apple's products could look like without Jony Ive leading design❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://mashable.com/article/apple-product-redesign-jony-ive/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEuilhh3u7fPfdahv8a7Y9YI5CdPw'> link</a>
 
