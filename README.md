@@ -1,20 +1,20 @@
-<b>Technology NEWS on Thursday, July 18th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Friday, July 19th, 2019</b> 📡📡📡 
 
-👉Jeff Bezos says space travel is essential because we are 'in the process of destroying this planet'❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.businessinsider.com/jeff-bezos-space-travel-essential-because-destroying-planet-2019-7&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEMpS4ihg1vipdkCizIL2fiVWh-Gw'> link</a>
+👉Nvidia reproduces the moon landing with real-time ray tracing❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://venturebeat.com/2019/07/19/nvidia-reproduces-the-moon-landing-with-real-time-ray-tracing/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGkbztgd_IAU2cjK6KkYx_7tTmQ8A'> link</a>
 
-👉🏽FaceApp: Myths and risks in app that gives you peek into older self❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.mercurynews.com/2019/07/18/myths-and-risks-in-app-that-gives-you-peek-into-older-self/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHqLcalPa_4nw7mp_fvATe2UGUw2A'> link</a>
+👉🏽New leaked photos show Google's Pixel 4 and Pixel 4 XL from every angle❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://bgr.com/2019/07/19/pixel-4-release-date-soon-leaked-photos/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEa4rLra7eQUHCo1EEDKsaCuxNZMQ'> link</a>
 
-👉🏿HTC will revive old Wildfire brand for new phones, leak claims❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/7/18/20699081/htc-phone-wildfire-e-plus-e1-leaks-features-specs&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHQPRN4JtBHaDgbiYTMpBoACIFdGA'> link</a>
+👉🏿OxygenOS 9.5.7 OTA now rolling out for OnePlus 7 w/ camera improvements, more❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://9to5google.com/2019/07/19/oxygenos-9-5-7-oneplus-7/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGMnHc-glT5uPUJ04O_eThrY-4WlQ'> link</a>
 
-👉Green Man Gaming Summer Sale gets underway with 50% off Monster Hunter World❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.eurogamer.net/articles/2019-07-18-green-man-gaming-summer-sale-gets-underway-with-50-percent-off-monster-hunter-world&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNH06_TJzQJ26_vbETOg8iFaKSrV6A'> link</a>
+👉Enjoy this 4K footage of Call of Duty: Modern Warfare's Gunfight mode❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcgamer.com/enjoy-this-4k-footage-of-call-of-duty-modern-warfares-gunfight-mode/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEK7DhDGqf-3bhDdRPwQgZEYtlZ5w'> link</a>
 
-👉🏽PUBG Update Remasters First Map, Erangel--Here's What's Changed❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.gamespot.com/articles/pubg-update-remasters-first-map-erangel-heres-what/1100-6468504/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNF9gtCOdSZZzXZpNL_OU1H3W8OUNw'> link</a>
+👉🏽Should you buy a new 8K TV for Xbox Project Scarlett?❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.windowscentral.com/should-you-buy-8k-tv-xbox-project-scarlett&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEBZ5BX5X5qh04V6O2Z8aPFa9QGhw'> link</a>
 
-👉🏿Exclusive: New leak reveals key Pixel 4 and Pixel 4 XL specs❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://bgr.com/2019/07/18/pixel-4-release-date-2019-coming-exclusive-specs-leak/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNF1Chm32SLtRLC0gWOapeYAlL6nPA'> link</a>
+👉🏿Apple Music 'A-List: Hip Hop' playlist is now 'Rap Life'❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://appleinsider.com/articles/19/07/19/apple-music-a-list-hip-hop-playlist-is-now-rap-life&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHLZ3OHVFQ-szb0YgVO15y-z7CtJg'> link</a>
 
-👉My browser, the spy: How extensions slurped up browsing histories from 4M users❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://arstechnica.com/information-technology/2019/07/dataspii-inside-the-debacle-that-dished-private-data-from-apple-tesla-blue-origin-and-4m-people/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFuqp64DJo9MrumVAHlAgKusUMWJg'> link</a>
+👉Fastest Toyota yet in SA: What the next-gen Supra sports car means for Mzansi❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.wheels24.co.za/NewModels/fastest-toyota-yet-in-sa-what-the-next-gen-supra-sports-car-means-for-mzansi-20190719&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHgFYKgkFZKIHTlm_1mkI6hLubtxQ'> link</a>
 
-👉🏽Sky: Children of the Light now out for iPhone, iPad – Apple TV and Mac later❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://9to5mac.com/2019/07/18/sky-children-of-the-light/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNElzdVuOSWUGKStEWi4Jppk9xKX8A'> link</a>
+👉🏽Marvel Ultimate Alliance 3 is a satisfying blend of superheroes and Diablo on Switch❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/7/19/20699806/marvel-ultimate-alliance-3-the-black-order-review-nintendo-switch&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNG11cNZx0GK3pO2G463yjY1JJtFAw'> link</a>
 
-👉🏿DataSpii in depth: How browser extensions obscure their data collection practices❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://arstechnica.com/information-technology/2019/07/dataspii-technical-deep-dive/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFfw8xBd3QIzjIPhPK3edTAiqCaMA'> link</a>
+👉🏿Chimps love movie night too! Apes bond over watching films together, study finds❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.mirror.co.uk/science/chimps-love-movie-night-too-18353404&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEWtXIDGu5QfiL8BVncGEF9RWUbHg'> link</a>
 
