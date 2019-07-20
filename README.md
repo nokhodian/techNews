@@ -1,20 +1,20 @@
-<b>Technology NEWS on Friday, July 19th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Saturday, July 20th, 2019</b> 📡📡📡 
 
-👉Nvidia reproduces the moon landing with real-time ray tracing❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://venturebeat.com/2019/07/19/nvidia-reproduces-the-moon-landing-with-real-time-ray-tracing/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGkbztgd_IAU2cjK6KkYx_7tTmQ8A'> link</a>
+👉Switch Lite preorder pages pop up: Get a jump on buying the $200 gaming console❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/how-to/switch-lite-preorder-pages-pop-up-get-a-jump-on-buying-the-200-gaming-console/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFkYaTkEQfACjhwBgeetWu55skNAg'> link</a>
 
-👉🏽New leaked photos show Google's Pixel 4 and Pixel 4 XL from every angle❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://bgr.com/2019/07/19/pixel-4-release-date-soon-leaked-photos/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEa4rLra7eQUHCo1EEDKsaCuxNZMQ'> link</a>
+👉🏽Cyberpunk 2077 has a hardcore mode that says goodbye to UI❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.techradar.com/news/cyberpunk-2077-has-a-hardcore-mode-that-says-goodbye-to-ui&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNG8oHYktUgyYfJDdA6ObozA7S3LCA'> link</a>
 
-👉🏿OxygenOS 9.5.7 OTA now rolling out for OnePlus 7 w/ camera improvements, more❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://9to5google.com/2019/07/19/oxygenos-9-5-7-oneplus-7/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGMnHc-glT5uPUJ04O_eThrY-4WlQ'> link</a>
+👉🏿'Like Xbox Live Gold,' Google Stadia Sounds Worse And Worse Every Day❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/paultassi/2019/07/20/like-xbox-live-gold-google-stadia-sounds-worse-and-worse-every-day/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFnUbt4EJl0DhEuJsMoqa4fqT9Aqg'> link</a>
 
-👉Enjoy this 4K footage of Call of Duty: Modern Warfare's Gunfight mode❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcgamer.com/enjoy-this-4k-footage-of-call-of-duty-modern-warfares-gunfight-mode/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEK7DhDGqf-3bhDdRPwQgZEYtlZ5w'> link</a>
+👉YouTube Music or Play Music? Google's Music Services Explained❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcmag.com/news/369620/youtube-music-or-play-music-googles-music-services-explain&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNE64bbyN96_hQEQYTYGk-NX18STbw'> link</a>
 
-👉🏽Should you buy a new 8K TV for Xbox Project Scarlett?❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.windowscentral.com/should-you-buy-8k-tv-xbox-project-scarlett&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEBZ5BX5X5qh04V6O2Z8aPFa9QGhw'> link</a>
+👉🏽The Major Players Aren't Interested In Becoming "The Netflix Of Video Games"❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/kevinmurnane/2019/07/20/the-major-players-arent-interested-in-becoming-the-netflix-of-video-games/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFzKf1HZLQL0NO1SUFvwkdY2b9c8Q'> link</a>
 
-👉🏿Apple Music 'A-List: Hip Hop' playlist is now 'Rap Life'❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://appleinsider.com/articles/19/07/19/apple-music-a-list-hip-hop-playlist-is-now-rap-life&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHLZ3OHVFQ-szb0YgVO15y-z7CtJg'> link</a>
+👉🏿Realme X to Oppo K3: Top new phones under Rs 20000❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.hindustantimes.com/tech/realme-x-to-oppo-k3-top-new-phones-under-rs-20-000/story-WSQTnUTzn6jiZYUdhtABoI.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHqcekKZIezOUvVDCMBPj1Gkv-ZAA'> link</a>
 
-👉Fastest Toyota yet in SA: What the next-gen Supra sports car means for Mzansi❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.wheels24.co.za/NewModels/fastest-toyota-yet-in-sa-what-the-next-gen-supra-sports-car-means-for-mzansi-20190719&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHgFYKgkFZKIHTlm_1mkI6hLubtxQ'> link</a>
+👉Galaxy Note 10: The Big Questions Samsung Needs to Answer❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.tomsguide.com/features/galaxy-note-10-biggest-questions&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFTQf4FYjX7oegVwhRyKy7KqPscHw'> link</a>
 
-👉🏽Marvel Ultimate Alliance 3 is a satisfying blend of superheroes and Diablo on Switch❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/7/19/20699806/marvel-ultimate-alliance-3-the-black-order-review-nintendo-switch&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNG11cNZx0GK3pO2G463yjY1JJtFAw'> link</a>
+👉🏽Beware of fake FaceApp before installing on your phone❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.deccanherald.com/specials/beware-of-fake-faceapp-before-installing-on-your-phone-748394.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNESBLPdfW1LJ8lCxF7NCgbi7t-h_g'> link</a>
 
-👉🏿Chimps love movie night too! Apes bond over watching films together, study finds❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.mirror.co.uk/science/chimps-love-movie-night-too-18353404&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEWtXIDGu5QfiL8BVncGEF9RWUbHg'> link</a>
+👉🏿When And Where To Watch Fortnite's Epic Robot/Monster Fight Event: Who Will Win?❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/davidthier/2019/07/20/doggus-cattus-when-and-where-to-watch-fortnites-epic-robotmonster-fight-live-event/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHeg_SI_km7kn5y9tcGaazlDuBMAw'> link</a>
 
