@@ -1,20 +1,20 @@
-<b>Technology NEWS on Monday, July 22nd, 2019</b> 📡📡📡 
+<b>Technology NEWS on Tuesday, July 23rd, 2019</b> 📡📡📡 
 
-👉Dota 2 tournament The International 2019 surpasses $30 million prize pool, topping Fortnite❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/7/22/20703528/dota-2-the-international-9-prize-pool-battle-pass-fortnite&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHJ5T81__ASBf-9ocTZpEY1xeihgg'> link</a>
+👉Nvidia GeForce RTX 2080 Super Founders Edition review: A modest upgrade to a powerful GPU❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcworld.com/article/3410798/nvidia-geforce-rtx-2080-super-founders-edition-review.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFSDgx4Vd6FpfFLeHdEGCs2FIch1A'> link</a>
 
-👉🏽New Adobe XD tools let you export prototypes to Alexa-enabled devices❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://venturebeat.com/2019/07/22/new-adobe-xd-tools-let-you-export-prototypes-to-alexa-enabled-devices/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGm040Fj4q4ZfWGDctYPhTidbO2RA'> link</a>
+👉🏽Freedom Robotics raises $6.6M to take the hassle out of founding a robotics startup❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://techcrunch.com/2019/07/23/freedom-robotics-raises-6-6m-to-automate-robotic-fleets/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGCFl5fEiebjy0XuP8HFseE-rVjrg'> link</a>
 
-👉🏿Micro LED screens will be ready for thinner, brighter 2020 Apple Watch❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://venturebeat.com/2019/07/22/micro-led-screens-will-be-ready-for-thinner-brighter-2020-apple-watch/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEeE9o0rJ_fn7-T5k0UHltGvSx9Xw'> link</a>
+👉🏿Honor announces its first phones with pop-up selfie cameras❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/circuitbreaker/2019/7/23/20706847/honor-9x-max-release-date-news-features-china-pop-up-selfie-camera&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHvaLklJv_tEIWdSip6xxsRwgh6WQ'> link</a>
 
-👉Elon Musk hopes to put a computer chip in your brain. Who wants one?❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.mercurynews.com/2019/07/22/elon-musk-hopes-to-put-a-computer-chip-in-your-brain-who-wants-one/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFKHr8bekuYtFvCyDBssy6PdH1qag'> link</a>
+👉Google Is Offering $5 Gift Cards for Your Face Data❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcmag.com/news/369686/google-is-offering-5-gift-cards-for-your-face-data&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEGo--tpHHyof2yZT_LYS5mtIVrHw'> link</a>
 
-👉🏽Insider says Apple's iPhone 12 will have a revolutionary new OLED display❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://bgr.com/2019/07/22/iphone-vs-gaming-phones-iphone-12-might-get-120hz-pro-motion-screen/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFuIwOIIhoYSG2mWN-yCqLqOxtjoQ'> link</a>
+👉🏽'The Division 2' Patch Notes: Everything In The New Episode 1 Update❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/davidthier/2019/07/23/the-division-2-patch-notes-everything-in-the-new-episode-1-update/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHBkkLs5gy5jYJWRbMBDQlRlfh7LQ'> link</a>
 
-👉🏿Huawei Watch 3 seemingly on the way; could be powered by Wear OS❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.phonearena.com/news/Huawei-Watch-3-wear-os-certification_id117629&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNETz8dHk7QzTX2iqdd_hg0XIsJw3g'> link</a>
+👉🏿GTA Online's Diamond Casino is open for business❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcgamer.com/gta-onlines-diamond-casino-is-open-for-business/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFp6AEHbA_QWAWbgV_7pjoAVnOXZw'> link</a>
 
-👉Sony May Release A Foldable Phone To Beat Samsung Galaxy Fold❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.ibtimes.com/sony-may-release-foldable-phone-beat-samsung-galaxy-fold-2807942&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGtrmFrRA7mhXT77Y7_qaxi-F64gw'> link</a>
+👉Facebook opens up its AI tool to OpenStreetMap users❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.engadget.com/2019/07/23/facebook-opens-up-its-ai-tool-to-openstreetmap-users/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNH029_ufzcJ2S119y_WxggN2fYUbw'> link</a>
 
-👉🏽A New Pokémon Game Is On The Way From The Studio Behind Call Of Duty Mobile❗️<a href='https://www.google.com/url?rct=j&sa=t&url=http://www.nintendolife.com/news/2019/07/a_new_pokemon_game_is_on_the_way_from_the_studio_behind_call_of_duty_mobile&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNErUCxgg5l7oadpRTVCnXt25zWxLA'> link</a>
+👉🏽Leaked photos show us how the Galaxy Note 10 and Note 10+ will compare❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://bgr.com/2019/07/23/galaxy-note-10-release-date-soon-leaked-photos-note-10-plus/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFPj3NyiumOy94fti5Sa1tZ_Av43w'> link</a>
 
-👉🏿Kaspersky Total Security is on sale for under £20 with this exclusive deal❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://finance.yahoo.com/news/kaspersky-total-security-sale-under-113523469.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEqjSWyAK_i4LOcR_utdKD6chzosw'> link</a>
+👉🏿Pokémon GO Team Rocket Invasion: Should You Keep Shadow Pokémon Or Purify Them?❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/paultassi/2019/07/23/pokmon-go-team-rocket-invasion-should-you-keep-shadow-pokmon-or-purify-them/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEJos_Tmz5MTAhywNE4_C9Lm_AaiQ'> link</a>
 
