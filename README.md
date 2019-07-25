@@ -1,20 +1,20 @@
-<b>Technology NEWS on Wednesday, July 24th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Thursday, July 25th, 2019</b> 📡📡📡 
 
-👉Amazon Kindle Oasis 2019 review: getting warmer❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/7/24/20707619/amazon-kindle-oasis-2019-e-reader-review-price-specs-features-display&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFZbCo0ExpK0ap8IqcQpr0ES4zALQ'> link</a>
+👉The iPhone Photo Awards winners so stunning they put your attempts to shame❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.thesun.co.uk/tech/9580916/iphone-photo-awards-2019-winners-best-photos/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGSoBCAEzBeduVuzgj_Zq1xQ5neyA'> link</a>
 
-👉🏽16 indispensable gestures you'll need to navigate iPadOS❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/how-to/16-indispensable-gestures-youll-need-to-navigate-ipados/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEWKDEQcXvDXV5st1GEkceebP2s1w'> link</a>
+👉🏽Apple's leaked iPhone 11 design finally looks perfect in this new video❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://bgr.com/2019/07/25/iphone-11-release-date-soon-video-leak/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGdObeHLgFnVrFHBhaJQ42lyK7-mg'> link</a>
 
-👉🏿Nintendo Switch might soon go on sale in China via Tencent❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://techcrunch.com/2019/07/24/nintendo-switch-china-tencent/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFmWy4co_InXwxuq_uSaXnlLG1X2w'> link</a>
+👉🏿Google Lens has finally been added to Google's mobile image search in Australia❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://thenewdaily.com.au/life/tech/2019/07/25/google-lens-australia-launch/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGUkuonhzgZebOWed9g8Stqz3Rmlw'> link</a>
 
-👉iPhone with 137 diamonds and 18K gold costs whopping $25G❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.foxnews.com/tech/iphone-costs-whopping-25g&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFdvU0Dcyqo0F7f8tjlBDRVuXxOCQ'> link</a>
+👉Nintendo Reveals Gorgeous Disney-Themed Switch Console❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.gamespot.com/articles/nintendo-reveals-gorgeous-disney-themed-switch-con/1100-6468682/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNH37k6Exz6aQCbUHS7VVi6KWbPIuQ'> link</a>
 
-👉🏽PUBG Players Can Get Crypto Rewards for Winning Games This Summer❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.coindesk.com/pubg-players-can-get-crypto-rewards-for-winning-games-this-summer&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFUFpZ8vTIjsbNLYfN9_JedyDauWw'> link</a>
+👉🏽Ford Mustang55 Edition and new Mustang Ecoboost unveiled: Shelby-inspired design & adjustable exhaust note❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.financialexpress.com/auto/car-news/ford-mustang55-edition-and-new-mustang-ecoboost-unveiled-shelby-inspired-design-adjustable-exhaust-note/1656238/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHknG8-GjUIrv7LgWucNv38AQfObw'> link</a>
 
-👉🏿FIRST DRIVE | The 2019 Toyota GR Supra is a premier coupé❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.timeslive.co.za/motoring/first-drives/2019-07-24-first-drive-the-2019-toyota-gr-supra-is-a-premier-coupe/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEfphOYg2ayYf_OZLG70rx8mY2kKw'> link</a>
+👉🏿Wolfenstein: Youngblood review❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcgamer.com/wolfenstein-youngblood-review/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFF6Q7aEC_86RfEzsgqlm_UD3Q4xg'> link</a>
 
-👉Tetris Effect remains transcendent on PC❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/7/24/20708246/tetris-effect-pc-review-vr-oculus-rift-htc-vive&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFroYhD_KqtthPV3JUgFF1bQMafEA'> link</a>
+👉What is Microsoft doing with Cortana?❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/7/25/20727129/microsoft-cortana-features-strategy-report&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNE55e0mfD4qxM4shXokZeosxlbLCA'> link</a>
 
-👉🏽Google Photos passes the 1 billion users mark❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/7/24/20708328/google-photos-users-gallery-go-1-billion&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEtpScchpEI4-PiK2kzGRfk0em0ng'> link</a>
+👉🏽'Catherine: Full Body Edition' Looks Pretty Weird In New 'Decisions' Trailer❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/erikkain/2019/07/25/catherine-full-body-edition-looks-pretty-weird-in-new-decisions-trailer/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHsHibzZpgbpNGahEoZFaoZsFUorQ'> link</a>
 
-👉🏿RED founder confirms Hydrogen Two, blames manufacturer for Hydrogen One issues❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://9to5google.com/2019/07/24/red-founder-confirms-hydrogen-two/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGI2LeRS7K0cIGH9m5tISU5qZejgg'> link</a>
+👉🏿New leak says Verizon will have the Galaxy Note 10+ 5G up for preorder soon❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://bgr.com/2019/07/25/galaxy-note-10-plus-5g-preorder-leak-points-to-imminent-verizon-sale/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNE278YlNuqA7_qzFk72mBJMzULJvg'> link</a>
 
