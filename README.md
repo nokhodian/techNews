@@ -1,20 +1,20 @@
-<b>Technology NEWS on Thursday, July 25th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Friday, July 26th, 2019</b> 📡📡📡 
 
-👉The iPhone Photo Awards winners so stunning they put your attempts to shame❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.thesun.co.uk/tech/9580916/iphone-photo-awards-2019-winners-best-photos/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGSoBCAEzBeduVuzgj_Zq1xQ5neyA'> link</a>
+👉CBS All Access is coming to Apple TV Channels next week❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.engadget.com/2019/07/26/cbs-all-access-apple-tv/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFqV_YB-FsJNUmNiN20_Fr3W2BoVw'> link</a>
 
-👉🏽Apple's leaked iPhone 11 design finally looks perfect in this new video❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://bgr.com/2019/07/25/iphone-11-release-date-soon-video-leak/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGdObeHLgFnVrFHBhaJQ42lyK7-mg'> link</a>
+👉🏽Here's How Apple Maps Is Taking on Google Maps in Your Car❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.tomsguide.com/news/heres-how-apple-maps-is-taking-on-google-maps-in-your-car&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFWFkZucy0jKpjBcSD1-FXzapTjOg'> link</a>
 
-👉🏿Google Lens has finally been added to Google's mobile image search in Australia❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://thenewdaily.com.au/life/tech/2019/07/25/google-lens-australia-launch/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGUkuonhzgZebOWed9g8Stqz3Rmlw'> link</a>
+👉🏿Here Are The Quest Steps For Pokémon GO's 'A Troubling Situation' Team Rocket Special Research❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/paultassi/2019/07/26/here-are-the-quest-steps-for-pokmon-gos-a-troubling-situation-team-rocket-special-research/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFhTGkjjXLClmjumAeXkRAfmZh5kA'> link</a>
 
-👉Nintendo Reveals Gorgeous Disney-Themed Switch Console❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.gamespot.com/articles/nintendo-reveals-gorgeous-disney-themed-switch-con/1100-6468682/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNH37k6Exz6aQCbUHS7VVi6KWbPIuQ'> link</a>
+👉A foldable smartphone that's better in every way than the Galaxy Fold just leaked❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://bgr.com/2019/07/26/galaxy-fold-price-release-date-vs-huawei-mate-x/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEC1yGerdAmttwMyHQ0Kfr3DkZK-g'> link</a>
 
-👉🏽Ford Mustang55 Edition and new Mustang Ecoboost unveiled: Shelby-inspired design & adjustable exhaust note❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.financialexpress.com/auto/car-news/ford-mustang55-edition-and-new-mustang-ecoboost-unveiled-shelby-inspired-design-adjustable-exhaust-note/1656238/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHknG8-GjUIrv7LgWucNv38AQfObw'> link</a>
+👉🏽MagicDock Turns Your iPad Pro Into an All-in-One Desktop❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.laptopmag.com/articles/ipad-pro-magicdock-kickstarter&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHqN9OwUoFoNXumgFiJbpAnezHtfA'> link</a>
 
-👉🏿Wolfenstein: Youngblood review❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcgamer.com/wolfenstein-youngblood-review/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFF6Q7aEC_86RfEzsgqlm_UD3Q4xg'> link</a>
+👉🏿Fortnite is holding a World Cup this weekend with $30 million in prizes❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnn.com/2019/07/26/business/fortnite-world-cup-preview/index.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHKMma1MnPB1mK0Evv8otdD5lnvtw'> link</a>
 
-👉What is Microsoft doing with Cortana?❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/7/25/20727129/microsoft-cortana-features-strategy-report&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNE55e0mfD4qxM4shXokZeosxlbLCA'> link</a>
+👉Silicon Valley And The Manhattan Pivot❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/forbestechcouncil/2019/07/26/silicon-valley-and-the-manhattan-pivot/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNE5gDKddcXQl22k_JC2DR99YHktlQ'> link</a>
 
-👉🏽'Catherine: Full Body Edition' Looks Pretty Weird In New 'Decisions' Trailer❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/erikkain/2019/07/25/catherine-full-body-edition-looks-pretty-weird-in-new-decisions-trailer/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHsHibzZpgbpNGahEoZFaoZsFUorQ'> link</a>
+👉🏽Make the most of the new Twitter redesign you just got❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/how-to/make-the-most-of-the-new-twitter-redesign-you-just-got/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGtPVRkfTkBa9jy4OeW4FnikGOVTQ'> link</a>
 
-👉🏿New leak says Verizon will have the Galaxy Note 10+ 5G up for preorder soon❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://bgr.com/2019/07/25/galaxy-note-10-plus-5g-preorder-leak-points-to-imminent-verizon-sale/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNE278YlNuqA7_qzFk72mBJMzULJvg'> link</a>
+👉🏿Nokia 8.2 may launch with Android Q, and have a 32MP pop-up camera❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.digit.in/news/mobile-phones/nokia-82-may-launch-with-android-q-and-have-a-32mp-pop-up-camera-49389.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNF7f73-g1Wmx6_sN4YHOvsSy4HNaQ'> link</a>
 
