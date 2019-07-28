@@ -1,20 +1,20 @@
-<b>Technology NEWS on Saturday, July 27th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Sunday, July 28th, 2019</b> 📡📡📡 
 
-👉Xbox needs to improve its first-party games output, says Spencer❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.videogameschronicle.com/news/xbox-needs-to-improve-its-first-party-games-output-says-spencer/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFtAlJfrrUNsqhnHtpep-Rr01mQzg'> link</a>
+👉15-inch MacBook Pro mini-review: Better graphics options make for a better laptop❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://arstechnica.com/gadgets/2019/07/15-inch-macbook-pro-mini-review-how-much-does-apples-fastest-laptop-offer/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHNmKisc5zfj-HAin2gc-yVdcoM-A'> link</a>
 
-👉🏽Two more iPad models coming soon, says regulatory filing❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://appleinsider.com/articles/19/07/27/apple-files-two-new-ipad-model-numbers-into-the-eec&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFBRKKSI3xf1XeTRLbVs3JqVcJaOg'> link</a>
+👉🏽Want To Make Your Home Smart? Start With the Lights❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.wsj.com/articles/want-to-make-your-home-smart-start-with-the-lights-11564318801&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFC4QKKULhbtD7bxlJgl6qR420N3Q'> link</a>
 
-👉🏿'Fortnite' World Cup Day 2: The Time And Roster For The Duos Finals❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/davidthier/2019/07/27/fortnite-world-cup-day-2-the-time-and-roster-for-the-duos-finals/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGXwlPxAvo5xDGOq9RDCjljKURZTQ'> link</a>
+👉🏿Sony is crowdfunding a wearable air conditioner❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.engadget.com/2019/07/28/sony-reon-pocket-wearable-air-conditioner/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHntJoQO5uIR55yOJDvzYQ8rnlJjw'> link</a>
 
-👉Here's How the Snapdragon 855 Plus Will Make the Note 10 Even More Powerful❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.tomsguide.com/news/snapdragon-855-plus-galaxy-note-10&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGWlXM9wtDc6pzrc_U0zbo6HLto7g'> link</a>
+👉Apple Siri Eavesdropping Puts Millions Of Users At Risk❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/kateoflahertyuk/2019/07/28/apple-siri-eavesdropping-puts-millions-of-users-at-risk/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGUzhJ3ppBHJi8YhplTdvmZSRZ85Q'> link</a>
 
-👉🏽Sony releases new Death Stranding video featuring 'Heartman'❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.videogameschronicle.com/news/sony-releases-new-death-stranding-video-featuring-heartman/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFoIXaQT3xw-HrgbWV46AMZ6ecf2Q'> link</a>
+👉🏽Apple's Q3 earnings are all about the iPhone 11 hints❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/apples-q3-earnings-are-all-about-the-iphone-11-hints/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGIz0P_WURjhWSMPIXRrGmWQnzF3Q'> link</a>
 
-👉🏿iPhone 11, 11r and 11 Max: What we're expecting from Apple in September❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/iphone-11-11r-and-11-max-what-to-expect-from-apple-in-september/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEEAUaoyq6hKHbCM-XUiozwqXI7Qw'> link</a>
+👉🏿'Call Of Duty: Modern Warfare' Has The Coolest Watches❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/erikkain/2019/07/28/call-of-duty-modern-warfare-has-the-coolest-watches/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNELpAFgY_bA2LEXLYdxckPGq2sR9w'> link</a>
 
-👉Apex Legends devs reveal upcoming gameplay changes - auto-sprint, weapon switch & more❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.dexerto.com/apex-legends/apex-legends-devs-reveal-upcoming-gameplay-changes-849705&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHBpMiGGtnZpczUUutgMlKzD-xM-A'> link</a>
+👉Jaden,15, becomes gaming millionaire❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.bbc.com/news/av/technology-49143449/jaden15-becomes-gaming-millionaire&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEff9j088OgHDXISP8NeiAi0KFTdw'> link</a>
 
-👉🏽Samsung Unpacked 2019 Event Preview: Galaxy Note 10, Watch Active 2 and More❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.tomsguide.com/news/galaxy-note-10-event&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGYO4US_ZWFpVdUM-vLM6oHBphvqQ'> link</a>
+👉🏽The 'Fortnite' World Cup Is A Mix Of Celebrity And Obscurity, With Tfue As The Exception❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/paultassi/2019/07/28/the-fortnite-world-cup-is-a-mix-of-celebrity-and-obscurity-with-tfue-as-the-exception/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGn6gnTLB3XewRYmC9s7H4iwIL42g'> link</a>
 
-👉🏿Xiaomi's Redmi TV is coming soon: Set to take on OnePlus TV❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.hindustantimes.com/tech/xiaomi-s-redmi-tv-is-coming-soon-set-to-take-on-oneplus-tv/story-vvDPt3koaolo9G3Qhbp5HO.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEv-ZOO01IHR2mlzHcM2-Krjxq_Uw'> link</a>
+👉🏿Improved Cortana Beta App Coming To Windows 10❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.ibtimes.com/improved-cortana-beta-app-coming-windows-10-2809186&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNG4ZzuSoHYh3t8r1dqzv8kkr9qreA'> link</a>
 
