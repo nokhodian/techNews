@@ -1,20 +1,20 @@
-<b>Technology NEWS on Sunday, July 28th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Monday, July 29th, 2019</b> 📡📡📡 
 
-👉15-inch MacBook Pro mini-review: Better graphics options make for a better laptop❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://arstechnica.com/gadgets/2019/07/15-inch-macbook-pro-mini-review-how-much-does-apples-fastest-laptop-offer/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHNmKisc5zfj-HAin2gc-yVdcoM-A'> link</a>
+👉Leak shows Samsung's brand new Galaxy Note 10+ isn't even as powerful as Apple's year-old iPhones❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://bgr.com/2019/07/29/galaxy-note-10-plus-release-date-soon-vs-iphone-xs-max/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFZhELVjuUQbPcZiLq8Rp0ImJhAPA'> link</a>
 
-👉🏽Want To Make Your Home Smart? Start With the Lights❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.wsj.com/articles/want-to-make-your-home-smart-start-with-the-lights-11564318801&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFC4QKKULhbtD7bxlJgl6qR420N3Q'> link</a>
+👉🏽A successor to the Nokia 9 PureView could be on the way soon, bringing 5G with it❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.techradar.com/news/a-successor-to-the-nokia-9-pureview-could-be-on-the-way-soon-bringing-5g-with-it&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNF0UdbxfEhrp7Injum5L5nZhxBUpg'> link</a>
 
-👉🏿Sony is crowdfunding a wearable air conditioner❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.engadget.com/2019/07/28/sony-reon-pocket-wearable-air-conditioner/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHntJoQO5uIR55yOJDvzYQ8rnlJjw'> link</a>
+👉🏿How to Make Your Google Home Quieter at Night❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.howtogeek.com/434772/how-to-make-your-google-home-quieter-at-night/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFAQRE6ppo_wwTe2rwSzhM1QA8Nrw'> link</a>
 
-👉Apple Siri Eavesdropping Puts Millions Of Users At Risk❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/kateoflahertyuk/2019/07/28/apple-siri-eavesdropping-puts-millions-of-users-at-risk/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGUzhJ3ppBHJi8YhplTdvmZSRZ85Q'> link</a>
+👉Oppo Unveils 'Waterfall Screen' Prototype Display❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcmag.com/news/369800/oppo-unveils-waterfall-screen-prototype-display&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGqThlfOt62NhGGKNGLZXf55Abeew'> link</a>
 
-👉🏽Apple's Q3 earnings are all about the iPhone 11 hints❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/apples-q3-earnings-are-all-about-the-iphone-11-hints/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGIz0P_WURjhWSMPIXRrGmWQnzF3Q'> link</a>
+👉🏽JLab JBuds Air Executive True Wireless earbuds review❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.techradar.com/sg/reviews/jlab-jbuds-air-executive-true-wireless-earbuds&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGNPxVyVZsnZ0_yz-OVkYaNJMN_AA'> link</a>
 
-👉🏿'Call Of Duty: Modern Warfare' Has The Coolest Watches❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/erikkain/2019/07/28/call-of-duty-modern-warfare-has-the-coolest-watches/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNELpAFgY_bA2LEXLYdxckPGq2sR9w'> link</a>
+👉🏿The woods get weird in the new Blair Witch trailer❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcgamer.com/au/blair-witch-gameplay-trailer/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHAiJe2Ya4IF0vp2PBlpC5JXvIfcA'> link</a>
 
-👉Jaden,15, becomes gaming millionaire❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.bbc.com/news/av/technology-49143449/jaden15-becomes-gaming-millionaire&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEff9j088OgHDXISP8NeiAi0KFTdw'> link</a>
+👉Trusted leaker says all three 2020 iPhones will support 5G❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://bgr.com/2019/07/29/iphone-12-specs-vs-iphone-11-all-2020-iphones-will-support-5g/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEAGwWahxfdBW0vq8HxmQmctmw_VA'> link</a>
 
-👉🏽The 'Fortnite' World Cup Is A Mix Of Celebrity And Obscurity, With Tfue As The Exception❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/paultassi/2019/07/28/the-fortnite-world-cup-is-a-mix-of-celebrity-and-obscurity-with-tfue-as-the-exception/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGn6gnTLB3XewRYmC9s7H4iwIL42g'> link</a>
+👉🏽Aventura Apple Store moving to expansive outdoor pavilion on August 10th❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://9to5mac.com/2019/07/29/new-apple-store-aventura-opening-date/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHczO_W0GnhI6qJvOSqaKdesF8D6w'> link</a>
 
-👉🏿Improved Cortana Beta App Coming To Windows 10❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.ibtimes.com/improved-cortana-beta-app-coming-windows-10-2809186&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNG4ZzuSoHYh3t8r1dqzv8kkr9qreA'> link</a>
+👉🏿The Morning After: Sony's crowdfunding plans for a wearable 'air conditioner'❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.engadget.com/2019/07/29/the-morning-after-sony-wearable-air-con/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGndNPV1HQvHkhqvmQLxhMRB2XvOQ'> link</a>
 
