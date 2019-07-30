@@ -1,20 +1,20 @@
-<b>Technology NEWS on Monday, July 29th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Tuesday, July 30th, 2019</b> 📡📡📡 
 
-👉Leak shows Samsung's brand new Galaxy Note 10+ isn't even as powerful as Apple's year-old iPhones❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://bgr.com/2019/07/29/galaxy-note-10-plus-release-date-soon-vs-iphone-xs-max/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFZhELVjuUQbPcZiLq8Rp0ImJhAPA'> link</a>
+👉Sniper Elite 3 Ultimate Edition Scores Physical And Digital Switch Release This October❗️<a href='https://www.google.com/url?rct=j&sa=t&url=http://www.nintendolife.com/news/2019/07/sniper_elite_3_ultimate_edition_scores_physical_and_digital_switch_release_this_october&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGrnDuWMGewLgzUB55P7zO4LxdViA'> link</a>
 
-👉🏽A successor to the Nokia 9 PureView could be on the way soon, bringing 5G with it❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.techradar.com/news/a-successor-to-the-nokia-9-pureview-could-be-on-the-way-soon-bringing-5g-with-it&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNF0UdbxfEhrp7Injum5L5nZhxBUpg'> link</a>
+👉🏽Google discovered several iPhone security flaws, and Apple still hasn't patched one❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/7/30/20746827/apple-ios-security-flaw-imessage-google-project-zero&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHLReVvR1DcBjXPWuro3HXRX2j_yw'> link</a>
 
-👉🏿How to Make Your Google Home Quieter at Night❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.howtogeek.com/434772/how-to-make-your-google-home-quieter-at-night/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFAQRE6ppo_wwTe2rwSzhM1QA8Nrw'> link</a>
+👉🏿Hardcore Android fans reveal all the iOS 13 features they wish Google would copy❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://bgr.com/2019/07/30/ios-13-beta-5-download-link-released-vs-android-q/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHm5CMWUPfi23TvBI3SOzQg5_v0vA'> link</a>
 
-👉Oppo Unveils 'Waterfall Screen' Prototype Display❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcmag.com/news/369800/oppo-unveils-waterfall-screen-prototype-display&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGqThlfOt62NhGGKNGLZXf55Abeew'> link</a>
+👉How a small team of artists conceived Sony's Concrete Genie❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://venturebeat.com/2019/07/30/how-a-small-team-of-artists-conceived-sonys-concrete-genie/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHYs5pOM7qYcLf7PnAi1Tczrx5_5A'> link</a>
 
-👉🏽JLab JBuds Air Executive True Wireless earbuds review❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.techradar.com/sg/reviews/jlab-jbuds-air-executive-true-wireless-earbuds&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGNPxVyVZsnZ0_yz-OVkYaNJMN_AA'> link</a>
+👉🏽Huawei's smartphone sales are up 24pc despite US sanctions - but there may be trouble ahead❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.telegraph.co.uk/technology/2019/07/30/huawei-revenue-23pc-despite-us-sanctions-may-trouble-ahead/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNF9XECacJDRziz9xQvprm_oG_Fpig'> link</a>
 
-👉🏿The woods get weird in the new Blair Witch trailer❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcgamer.com/au/blair-witch-gameplay-trailer/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHAiJe2Ya4IF0vp2PBlpC5JXvIfcA'> link</a>
+👉🏿Siggraph 2019: Having Experienced Ray Tracing, I Am Now Convinced It Is The Future❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/patrickmoorhead/2019/07/30/siggraph-2019-having-experienced-ray-tracing-i-am-now-convinced-it-is-the-future/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNH_cp0cfwVUPf5Eqno0g66kdA-Mqw'> link</a>
 
-👉Trusted leaker says all three 2020 iPhones will support 5G❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://bgr.com/2019/07/29/iphone-12-specs-vs-iphone-11-all-2020-iphones-will-support-5g/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEAGwWahxfdBW0vq8HxmQmctmw_VA'> link</a>
+👉'Concrete Genie' fights childhood bullying with illicit street art❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.engadget.com/2019/07/30/concrete-genie-ps4-psvr-hands-on/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEWgcNdTZOvBr0ROeAWWE8KrvbUDA'> link</a>
 
-👉🏽Aventura Apple Store moving to expansive outdoor pavilion on August 10th❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://9to5mac.com/2019/07/29/new-apple-store-aventura-opening-date/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHczO_W0GnhI6qJvOSqaKdesF8D6w'> link</a>
+👉🏽Call Of Duty: Modern Warfare Multiplayer Killstreaks Revealed Amid Controversy❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.gamespot.com/articles/call-of-duty-modern-warfare-multiplayer-killstreak/1100-6468754/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFO4SvQGLcABIP4rMZVl1G2B32_zQ'> link</a>
 
-👉🏿The Morning After: Sony's crowdfunding plans for a wearable 'air conditioner'❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.engadget.com/2019/07/29/the-morning-after-sony-wearable-air-con/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGndNPV1HQvHkhqvmQLxhMRB2XvOQ'> link</a>
+👉🏿This new Android ransomware infects you through SMS messages❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.zdnet.com/article/this-new-android-ransomware-infects-you-through-sms-messages/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFVyY0phRGDgMah91vhUzSgeF7Uzw'> link</a>
 
