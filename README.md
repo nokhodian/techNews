@@ -1,20 +1,20 @@
-<b>Technology NEWS on Tuesday, July 30th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Wednesday, July 31st, 2019</b> 📡📡📡 
 
-👉Sniper Elite 3 Ultimate Edition Scores Physical And Digital Switch Release This October❗️<a href='https://www.google.com/url?rct=j&sa=t&url=http://www.nintendolife.com/news/2019/07/sniper_elite_3_ultimate_edition_scores_physical_and_digital_switch_release_this_october&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGrnDuWMGewLgzUB55P7zO4LxdViA'> link</a>
+👉The Surge 2's latest trailer is full of fashion disasters❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcgamer.com/uk/the-surge-2s-latest-trailer-is-full-of-fashion-disasters/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHLP2_9udAHj_8p0N7ZS8ySTCNmxw'> link</a>
 
-👉🏽Google discovered several iPhone security flaws, and Apple still hasn't patched one❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/7/30/20746827/apple-ios-security-flaw-imessage-google-project-zero&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHLReVvR1DcBjXPWuro3HXRX2j_yw'> link</a>
+👉🏽Type with your mind: We've achieved a first in brain-computer research, says Facebook❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.zdnet.com/article/type-with-your-mind-weve-achieved-a-first-in-brain-computer-research-says-facebook/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGlVn0L660HlqyGmkLbi4u6SdT6aA'> link</a>
 
-👉🏿Hardcore Android fans reveal all the iOS 13 features they wish Google would copy❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://bgr.com/2019/07/30/ios-13-beta-5-download-link-released-vs-android-q/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHm5CMWUPfi23TvBI3SOzQg5_v0vA'> link</a>
+👉🏿Vizio rolls out its Apple AirPlay and HomeKit integrations to its SmartCast TV platform❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://techcrunch.com/2019/07/31/vizio-rolls-out-its-apple-airplay-and-homekit-integrations-to-its-smartcast-tv-platform/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHSLiZSPItri08V4UwFn_Vfr7804w'> link</a>
 
-👉How a small team of artists conceived Sony's Concrete Genie❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://venturebeat.com/2019/07/30/how-a-small-team-of-artists-conceived-sonys-concrete-genie/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHYs5pOM7qYcLf7PnAi1Tczrx5_5A'> link</a>
+👉Amazon Freedom Sale: 8th to 11th August❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.thehansindia.com/technology/tech-news/amazon-freedom-sale-8th-to-11th-august-551000&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGXRbXMaIF4St-JWMUk7yq5_sLOag'> link</a>
 
-👉🏽Huawei's smartphone sales are up 24pc despite US sanctions - but there may be trouble ahead❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.telegraph.co.uk/technology/2019/07/30/huawei-revenue-23pc-despite-us-sanctions-may-trouble-ahead/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNF9XECacJDRziz9xQvprm_oG_Fpig'> link</a>
+👉🏽Huge leak: This is the Galaxy Note 10+❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://bgr.com/2019/07/31/galaxy-note-10-release-date-soon-note-10-plus-photo-leak/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNH6wOIdgufFeq3DDm_i9nnnQRtrWQ'> link</a>
 
-👉🏿Siggraph 2019: Having Experienced Ray Tracing, I Am Now Convinced It Is The Future❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/patrickmoorhead/2019/07/30/siggraph-2019-having-experienced-ray-tracing-i-am-now-convinced-it-is-the-future/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNH_cp0cfwVUPf5Eqno0g66kdA-Mqw'> link</a>
+👉🏿Redmi 7A Next Sale at 8pm Today via Flipkart : Price, Specifications, Sale Offer❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://gadgets.ndtv.com/mobiles/news/redm-7a-flash-sale-12-noon-flipkart-price-in-india-rs-5799-specifications-offers-2077728&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGVObBgakjnY-NCJSvrRGFt3TRcTg'> link</a>
 
-👉'Concrete Genie' fights childhood bullying with illicit street art❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.engadget.com/2019/07/30/concrete-genie-ps4-psvr-hands-on/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEWgcNdTZOvBr0ROeAWWE8KrvbUDA'> link</a>
+👉Dgraph raises $11.5 million for scalable graph database solutions❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://venturebeat.com/2019/07/31/dgraph-raises-11-5-million-for-scalable-graph-database-solutions/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNF9mge5ARtMQGWfqPqzOgTNJYEAlg'> link</a>
 
-👉🏽Call Of Duty: Modern Warfare Multiplayer Killstreaks Revealed Amid Controversy❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.gamespot.com/articles/call-of-duty-modern-warfare-multiplayer-killstreak/1100-6468754/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFO4SvQGLcABIP4rMZVl1G2B32_zQ'> link</a>
+👉🏽Nikon goes long with portrait-friendly NIKKOR Z 85mm f/1.8 S❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.techradar.com/news/nikon-goes-long-with-its-portrait-friendly-nikkor-z-85mm-f18-s&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFeFD_1XoOIfuGyyWPb0lREwyzfKw'> link</a>
 
-👉🏿This new Android ransomware infects you through SMS messages❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.zdnet.com/article/this-new-android-ransomware-infects-you-through-sms-messages/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFVyY0phRGDgMah91vhUzSgeF7Uzw'> link</a>
+👉🏿UK Health Service Relies on Over 1M Computers Running Windows 7❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcmag.com/news/369864/uk-health-service-relies-on-over-1m-computers-running-window&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNH3kMqB3SYBcdXqK3RPOc6n7NynVw'> link</a>
 
