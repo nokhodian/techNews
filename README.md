@@ -1,20 +1,20 @@
-<b>Technology NEWS on Wednesday, July 31st, 2019</b> 📡📡📡 
+<b>Technology NEWS on Thursday, August 1st, 2019</b> 📡📡📡 
 
-👉The Surge 2's latest trailer is full of fashion disasters❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcgamer.com/uk/the-surge-2s-latest-trailer-is-full-of-fashion-disasters/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHLP2_9udAHj_8p0N7ZS8ySTCNmxw'> link</a>
+👉Five key new features of Android Auto's big 2019 update❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.androidpolice.com/2019/08/01/android-auto-5-features-2019-update/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGnGvYkCINT6iyKnxa5x33AqPNrbg'> link</a>
 
-👉🏽Type with your mind: We've achieved a first in brain-computer research, says Facebook❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.zdnet.com/article/type-with-your-mind-weve-achieved-a-first-in-brain-computer-research-says-facebook/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGlVn0L660HlqyGmkLbi4u6SdT6aA'> link</a>
+👉🏽Bird's new electric scooter has a better battery and anti-vandalism sensors❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/8/1/20749511/bird-two-electric-scooter-battery-autonomous-sensors&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNE4Iq-PDyG9at-HGEA5RB2KGimN1g'> link</a>
 
-👉🏿Vizio rolls out its Apple AirPlay and HomeKit integrations to its SmartCast TV platform❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://techcrunch.com/2019/07/31/vizio-rolls-out-its-apple-airplay-and-homekit-integrations-to-its-smartcast-tv-platform/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHSLiZSPItri08V4UwFn_Vfr7804w'> link</a>
+👉🏿Wolfenstein Youngblood review: Not the sequel we were hoping for❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.digit.in/features/gaming/wolfenstein-youngblood-review-not-the-sequel-we-were-hoping-for-49472.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHQeSTIjvqyct7TKQPhARbAOIMmFQ'> link</a>
 
-👉Amazon Freedom Sale: 8th to 11th August❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.thehansindia.com/technology/tech-news/amazon-freedom-sale-8th-to-11th-august-551000&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGXRbXMaIF4St-JWMUk7yq5_sLOag'> link</a>
+👉'Mac Book' Recommends Surface Laptop 2 in New Microsoft Ad❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.macrumors.com/2019/08/01/microsoft-surface-ad-targets-macbook/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHbc0WoFGolGJhYViSE_d3ulJM5xQ'> link</a>
 
-👉🏽Huge leak: This is the Galaxy Note 10+❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://bgr.com/2019/07/31/galaxy-note-10-release-date-soon-note-10-plus-photo-leak/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNH6wOIdgufFeq3DDm_i9nnnQRtrWQ'> link</a>
+👉🏽Fortnite Season 10 Battle Pass: New Skins, Price, How It Works, And More❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.gamespot.com/articles/fortnite-season-10-battle-pass-new-skins-price-how/1100-6468824/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNH79L021b1iyRzT8S75cH9ukvkT6w'> link</a>
 
-👉🏿Redmi 7A Next Sale at 8pm Today via Flipkart : Price, Specifications, Sale Offer❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://gadgets.ndtv.com/mobiles/news/redm-7a-flash-sale-12-noon-flipkart-price-in-india-rs-5799-specifications-offers-2077728&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGVObBgakjnY-NCJSvrRGFt3TRcTg'> link</a>
+👉🏿The Asus ROG Phone 2 is so popular, first batch sold out almost immediately❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.phonearena.com/news/Asus-ROG-Phone-2-sold-out-almost-immediately_id117859&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNH6CWELDUK6krgHHPIzjsWjP4-y_g'> link</a>
 
-👉Dgraph raises $11.5 million for scalable graph database solutions❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://venturebeat.com/2019/07/31/dgraph-raises-11-5-million-for-scalable-graph-database-solutions/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNF9mge5ARtMQGWfqPqzOgTNJYEAlg'> link</a>
+👉Apple and Samsung struggle to sell us super-pricey smartphones❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/apple-and-samsung-struggle-to-sell-us-super-pricey-smartphones/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGNuVTc4-IssTPm6_glV48eULUeDw'> link</a>
 
-👉🏽Nikon goes long with portrait-friendly NIKKOR Z 85mm f/1.8 S❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.techradar.com/news/nikon-goes-long-with-its-portrait-friendly-nikkor-z-85mm-f18-s&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFeFD_1XoOIfuGyyWPb0lREwyzfKw'> link</a>
+👉🏽Huawei Y9 Prime 2019 First Impressions: Pop-up camera, full-screen display and more❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.bgr.in/reviews/huawei-y9-prime-2019-first-impressions-review-rs-15990-price-sale-features-specifications/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNECZhb2OvKpTOofOhg6jKq1mDb9mg'> link</a>
 
-👉🏿UK Health Service Relies on Over 1M Computers Running Windows 7❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcmag.com/news/369864/uk-health-service-relies-on-over-1m-computers-running-window&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNH3kMqB3SYBcdXqK3RPOc6n7NynVw'> link</a>
+👉🏿Mac Book: Surface Laptop Is Better❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcmag.com/news/369895/microsoft-mac-book-says-surface-laptop-is-better&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNExEGDuYEFvGwWPLageLiQqtGP5rw'> link</a>
 
