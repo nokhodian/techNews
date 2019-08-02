@@ -1,20 +1,20 @@
-<b>Technology NEWS on Thursday, August 1st, 2019</b> 📡📡📡 
+<b>Technology NEWS on Friday, August 2nd, 2019</b> 📡📡📡 
 
-👉Five key new features of Android Auto's big 2019 update❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.androidpolice.com/2019/08/01/android-auto-5-features-2019-update/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGnGvYkCINT6iyKnxa5x33AqPNrbg'> link</a>
+👉No Man's Sky: Beyond Update Release Date Announced❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.ign.com/articles/2019/08/02/no-mans-sky-beyond-update-release-date-announced&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNF7_jMUUuUAm-lZ7QBz5659jtgX6w'> link</a>
 
-👉🏽Bird's new electric scooter has a better battery and anti-vandalism sensors❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/8/1/20749511/bird-two-electric-scooter-battery-autonomous-sensors&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNE4Iq-PDyG9at-HGEA5RB2KGimN1g'> link</a>
+👉🏽The Outer Worlds swaps Fallout's post-apocalypse for art deco in space❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/8/2/20750585/the-outer-worlds-hands-on-fallouts-new-vegas-space-sci-fi-impressions-obsidian&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFxjyQjwA77OsrzgnaD-6OpfZ_T8Q'> link</a>
 
-👉🏿Wolfenstein Youngblood review: Not the sequel we were hoping for❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.digit.in/features/gaming/wolfenstein-youngblood-review-not-the-sequel-we-were-hoping-for-49472.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHQeSTIjvqyct7TKQPhARbAOIMmFQ'> link</a>
+👉🏿Google: Here's how Search is changing to give you latest data in snapshot results❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.zdnet.com/article/google-heres-how-search-is-changing-to-give-you-latest-data-in-snapshot-results/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFDI2-SZlp1QFGxw9tSY0B9Mao5kA'> link</a>
 
-👉'Mac Book' Recommends Surface Laptop 2 in New Microsoft Ad❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.macrumors.com/2019/08/01/microsoft-surface-ad-targets-macbook/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHbc0WoFGolGJhYViSE_d3ulJM5xQ'> link</a>
+👉Deleting your Siri voice recordings from Apple's servers is confusing — here's how❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/8/2/20734681/apple-siri-privacy-settings-how-to-delete-voice-servers&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNG7pI9MASJBTYoa8eIaG0GuxqFm0Q'> link</a>
 
-👉🏽Fortnite Season 10 Battle Pass: New Skins, Price, How It Works, And More❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.gamespot.com/articles/fortnite-season-10-battle-pass-new-skins-price-how/1100-6468824/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNH79L021b1iyRzT8S75cH9ukvkT6w'> link</a>
+👉🏽YouTube Premium gains 1080p offline video downloads on Android, iOS❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://9to5google.com/2019/08/02/youtube-premium-gains-1080p-offline-video-downloads-on-android-ios/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFkheSmN4YIkKxm_Rd-Pjup-54QVA'> link</a>
 
-👉🏿The Asus ROG Phone 2 is so popular, first batch sold out almost immediately❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.phonearena.com/news/Asus-ROG-Phone-2-sold-out-almost-immediately_id117859&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNH6CWELDUK6krgHHPIzjsWjP4-y_g'> link</a>
+👉🏿A massive Red Dead Online update is coming soon with three specialist roles❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.destructoid.com/a-massive-red-dead-online-update-is-coming-soon-with-three-specialist-roles-562683.phtml&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGeCviRCl7FdOxcVeXpR2W0C-QeHw'> link</a>
 
-👉Apple and Samsung struggle to sell us super-pricey smartphones❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/apple-and-samsung-struggle-to-sell-us-super-pricey-smartphones/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGNuVTc4-IssTPm6_glV48eULUeDw'> link</a>
+👉Capcom Asks Resident Evil Fans To Test A New Game❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.gamespot.com/articles/capcom-asks-resident-evil-fans-to-test-a-new-game/1100-6468868/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHanxWg6GwUI1rrpXkR93RhX_fQaA'> link</a>
 
-👉🏽Huawei Y9 Prime 2019 First Impressions: Pop-up camera, full-screen display and more❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.bgr.in/reviews/huawei-y9-prime-2019-first-impressions-review-rs-15990-price-sale-features-specifications/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNECZhb2OvKpTOofOhg6jKq1mDb9mg'> link</a>
+👉🏽Google will charge rivals to be the default search engine on Android in Europe❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://bgr.com/2019/08/02/google-search-options-on-android-will-be-monetized-in-europe/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNH8cGpbDjJE_N0dqBZq-U3MjGPOwQ'> link</a>
 
-👉🏿Mac Book: Surface Laptop Is Better❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcmag.com/news/369895/microsoft-mac-book-says-surface-laptop-is-better&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNExEGDuYEFvGwWPLageLiQqtGP5rw'> link</a>
+👉🏿Old Nintendo Game Hidden In Attic For 30 Years Sold For $9000❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.ibtimes.com/old-nintendo-game-hidden-attic-30-years-sold-9000-2810408&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGKN1nz1BoDNtM873efOs7FufwSoA'> link</a>
 
