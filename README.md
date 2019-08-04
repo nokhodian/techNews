@@ -1,20 +1,20 @@
-<b>Technology NEWS on Saturday, August 3rd, 2019</b> 📡📡📡 
+<b>Technology NEWS on Sunday, August 4th, 2019</b> 📡📡📡 
 
-👉A Long List Of What Bungie Is Fixing In 'Destiny 2' Before Shadowkeep Arrives❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/paultassi/2019/08/03/a-long-list-of-what-bungie-is-fixing-in-destiny-2-before-shadowkeep-arrives/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHYCpm9AFox1CqrGPcw2KcTkYPvVA'> link</a>
+👉With Pixel 4, Google tries to out-ugly Apple❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.zdnet.com/article/with-pixel-4-google-tries-to-out-ugly-apple/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFc8uedFD4Nlddhd8xywJmzCZSKpw'> link</a>
 
-👉🏽Amazon quietly adds 'no human review' option to Alexa settings as voice AIs face privacy scrutiny❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://techcrunch.com/2019/08/03/amazon-quietly-adds-no-human-review-option-to-alexa-as-voice-ais-face-privacy-scrutiny/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHxvhDwznB-7DFYJuagqgvRQ7UDsw'> link</a>
+👉🏽Mobiles launching with 64Mp camera sensor in 2019: Samsung, Realme, and Xiaomi❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://indianexpress.com/article/technology/mobile-tabs/mobiles-launching-with-64mp-camera-sensor-in-2019-samsung-realme-and-xiaomi-5877481/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFAn0udo8FjyW8RCP5iarRk-3BbEg'> link</a>
 
-👉🏿Garmin Forerunner 45 Smartwatch Launched in India, Priced at Rs. 19990❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://gadgets.ndtv.com/wearables/news/garmin-forerunner-45-price-in-india-rs-19990-launch-features-sale-2079870&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEFPlYDO3VwWaI3r-I2NpB1dQaeAQ'> link</a>
+👉🏿Eufy RoboVac robot vacuum, iPad Pro, Xbox One, PlayStation 4, and more deals for Aug. 4❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://mashable.com/shopping/best-deals-aug-4-2019-eufy-robovac-robot-vacuum/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNH-vXodcsS2q52IBYm_nOUANuZZEA'> link</a>
 
-👉Corvette: An America icon and highly prized performance machine❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.postandcourier.com/automotive/corvette-an-america-icon-and-highly-prized-performance-machine/article_71cc594c-b3c3-11e9-9729-9778f45cfc90.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHDjH0wAwccQEHq2IQQr2Y1ThELdw'> link</a>
+👉The best smart speakers for 2019❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/best-smart-speakers-for-2019-amazon-echo-dot-google-home-mini/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFEQsMToutNBGr9XXyHVsv4dMofbg'> link</a>
 
-👉🏽Here's How Crossplay Works In 'Call Of Duty: Modern Warfare'❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/erikkain/2019/08/03/heres-how-crossplay-works-in-call-of-duty-modern-warfare/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHhpZzXYG0CrUPsl4jeKP-mTH0rkg'> link</a>
+👉🏽Cult investigation game 'The Church in the Darkness' is available now❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.engadget.com/2019/08/04/church-in-the-darkness-available/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFHAZDt5ZzA6uERt-Xg1xwBTcE-Fg'> link</a>
 
-👉🏿Realme X Now Available via Offline Retailers, Next Online Sale Scheduled for August 7❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://gadgets.ndtv.com/mobiles/news/realme-x-offline-availability-august-3-price-in-india-next-online-sale-august-7-2079851&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNH3ScBGgnIbfEw4s3S7xR1ui-QEbg'> link</a>
+👉🏿Maidana: I'm Willing To Fight Again - But Only For Manny Pacquiao❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.boxingscene.com/maidana-im-willing-fight-again-only-manny-pacquiao--141450&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNF02lyuKaAWmHrIwzDKBogVR6fkUA'> link</a>
 
-👉E3 data breach leaks info for thousands of registered journalists❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.engadget.com/2019/08/03/e3-data-breach-media/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNExAncIHhckQGnkUPsqtoKnmV0MKg'> link</a>
+👉Infinity Ward's focus isn't on battle royale, Call of Duty: Modern Warfare multiplayer design director says❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcgamer.com/uk/infinity-wards-focus-isnt-on-battle-royale-call-of-duty-modern-warfare-multiplayer-design-director-says/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGVsD0bzCTFu4AtjkFMxx9fQOKWwg'> link</a>
 
-👉🏽12 Android apps that prove dark mode is the only mode❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/how-to/12-android-apps-that-prove-dark-mode-is-the-only-mode/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGqva25MPve9o0sm9gVtYBx-MXZzg'> link</a>
+👉🏽Galaxy Note 10 release this week - Five things Samsung must fix on its next flagship❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.express.co.uk/life-style/science-technology/1161555/Samsung-Galaxy-Note-10-release-specs-price&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEZk1WCkV4E5sFBRFUfqpptcYB1ZQ'> link</a>
 
-👉🏿No Man's Sky: Beyond is coming to VR on August 14❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://venturebeat.com/2019/08/03/no-mans-sky-beyond-is-coming-to-vr-on-august-14/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHN5Fqtp3p42V7SfmFATOB-UxTvKg'> link</a>
+👉🏿Mate 20 Pro is a great smartphone, but here's why you should get its newest rival instead❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.express.co.uk/life-style/science-technology/1161362/Huawei-Mate-20-Pro-vs-Honor-20-Pro-smartphone-comparison&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEJlns6OjR-ysNg3qFnt9UEpxwJnQ'> link</a>
 
