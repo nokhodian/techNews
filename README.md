@@ -1,20 +1,20 @@
-<b>Technology NEWS on Sunday, August 4th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Monday, August 5th, 2019</b> 📡📡📡 
 
-👉With Pixel 4, Google tries to out-ugly Apple❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.zdnet.com/article/with-pixel-4-google-tries-to-out-ugly-apple/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFc8uedFD4Nlddhd8xywJmzCZSKpw'> link</a>
+👉Age of Wonders: Planetfall review: This space-faring 4X saga is dense but rewarding❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcworld.com/article/3429611/age-of-wonders-planetfall-review-this-space-faring-4x-saga-is-dense-but-rewarding.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHmif3ZbMglbAHADnJEO4koxZP9DQ'> link</a>
 
-👉🏽Mobiles launching with 64Mp camera sensor in 2019: Samsung, Realme, and Xiaomi❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://indianexpress.com/article/technology/mobile-tabs/mobiles-launching-with-64mp-camera-sensor-in-2019-samsung-realme-and-xiaomi-5877481/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFAn0udo8FjyW8RCP5iarRk-3BbEg'> link</a>
+👉🏽Microsoft: New Windows Terminal update is out and it's 'huge'❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.zdnet.com/article/microsoft-new-windows-terminal-update-is-out-and-its-huge/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGLCOA34ccM0STqLW4VM1EUVDDOLw'> link</a>
 
-👉🏿Eufy RoboVac robot vacuum, iPad Pro, Xbox One, PlayStation 4, and more deals for Aug. 4❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://mashable.com/shopping/best-deals-aug-4-2019-eufy-robovac-robot-vacuum/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNH-vXodcsS2q52IBYm_nOUANuZZEA'> link</a>
+👉🏿Twitch Updates Ninja's Channel With Mario Reference To Let Viewers Know He's Left❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://kotaku.com/twitch-updates-ninjas-channel-with-mario-reference-to-l-1836965923&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNH70_nRlgKyw9EaZhQaw4xvkGrFmg'> link</a>
 
-👉The best smart speakers for 2019❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/best-smart-speakers-for-2019-amazon-echo-dot-google-home-mini/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFEQsMToutNBGr9XXyHVsv4dMofbg'> link</a>
+👉Testing photo editing apps: "Darkroom"❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.dw.com/en/testing-photo-editing-apps-darkroom/a-49897058&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEaYGpwku_XxB2ocBwDAXMU9rrrnA'> link</a>
 
-👉🏽Cult investigation game 'The Church in the Darkness' is available now❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.engadget.com/2019/08/04/church-in-the-darkness-available/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFHAZDt5ZzA6uERt-Xg1xwBTcE-Fg'> link</a>
+👉🏽Google To Allow Rival Search Engines To Compete On Android. What's The Catch?❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://in.mashable.com/tech/5474/google-to-allow-rival-search-engines-to-compete-on-android-whats-the-catch&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGg8FI0Lm9wS4n0U8bIXCD3hEnTjA'> link</a>
 
-👉🏿Maidana: I'm Willing To Fight Again - But Only For Manny Pacquiao❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.boxingscene.com/maidana-im-willing-fight-again-only-manny-pacquiao--141450&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNF02lyuKaAWmHrIwzDKBogVR6fkUA'> link</a>
+👉🏿5G MacBooks Rumored to Arrive in 2020❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.laptopmag.com/articles/macbook-5g-rumor-2020&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGHCtdYMesed_xtpOGKnbiuBEd5FA'> link</a>
 
-👉Infinity Ward's focus isn't on battle royale, Call of Duty: Modern Warfare multiplayer design director says❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcgamer.com/uk/infinity-wards-focus-isnt-on-battle-royale-call-of-duty-modern-warfare-multiplayer-design-director-says/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGVsD0bzCTFu4AtjkFMxx9fQOKWwg'> link</a>
+👉Top 10 UK Games Chart - Fire Emblem: Three Houses Beats Resurgent FIFA 19 To No.1❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.gamespot.com/articles/top-10-uk-games-chart-fire-emblem-three-houses-bea/1100-6468902/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHnd4ntpp3FUBJBULwc34RiF9Fnkw'> link</a>
 
-👉🏽Galaxy Note 10 release this week - Five things Samsung must fix on its next flagship❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.express.co.uk/life-style/science-technology/1161555/Samsung-Galaxy-Note-10-release-specs-price&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEZk1WCkV4E5sFBRFUfqpptcYB1ZQ'> link</a>
+👉🏽Fire Emblem: Three Houses continues to top UK sales chart❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://venturebeat.com/2019/08/05/fire-emblem-three-houses-continues-to-top-u-k-sales-chart/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHIMFVvFkAxgndm88my0nMwY4AFTQ'> link</a>
 
-👉🏿Mate 20 Pro is a great smartphone, but here's why you should get its newest rival instead❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.express.co.uk/life-style/science-technology/1161362/Huawei-Mate-20-Pro-vs-Honor-20-Pro-smartphone-comparison&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEJlns6OjR-ysNg3qFnt9UEpxwJnQ'> link</a>
+👉🏿The Galaxy Note 10 dilemma: Getting out of the Galaxy Fold's shadow❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/the-galaxy-note-10-dilemma-getting-out-of-the-galaxy-folds-shadow/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFiokvvPu5ak9l0e6z6pEiw-PQY2A'> link</a>
 
