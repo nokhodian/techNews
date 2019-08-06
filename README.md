@@ -1,20 +1,20 @@
-<b>Technology NEWS on Monday, August 5th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Tuesday, August 6th, 2019</b> 📡📡📡 
 
-👉Age of Wonders: Planetfall review: This space-faring 4X saga is dense but rewarding❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcworld.com/article/3429611/age-of-wonders-planetfall-review-this-space-faring-4x-saga-is-dense-but-rewarding.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHmif3ZbMglbAHADnJEO4koxZP9DQ'> link</a>
+👉How To Stop Alexa From Letting People Listen To Your Recordings❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.ibtimes.com/how-stop-alexa-letting-people-listen-your-recordings-2811093&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGo9M_D-NYQbdPR8g0RPhuIEbWCfg'> link</a>
 
-👉🏽Microsoft: New Windows Terminal update is out and it's 'huge'❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.zdnet.com/article/microsoft-new-windows-terminal-update-is-out-and-its-huge/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGLCOA34ccM0STqLW4VM1EUVDDOLw'> link</a>
+👉🏽Amazon Echo Auto review: So... how dumb is your car?❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/8/6/20754404/amazon-echo-auto-review-alexa-car-price-specs-features&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNENDu597ytMVYMHwYdO31Be91KNwA'> link</a>
 
-👉🏿Twitch Updates Ninja's Channel With Mario Reference To Let Viewers Know He's Left❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://kotaku.com/twitch-updates-ninjas-channel-with-mario-reference-to-l-1836965923&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNH70_nRlgKyw9EaZhQaw4xvkGrFmg'> link</a>
+👉🏿Apple's iPhone 11 release date just leaked❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://bgr.com/2019/08/06/iphone-11-release-date-leak-september-20-softbank/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEtDmU7RoOWlECdb34cGvZWzBWlOQ'> link</a>
 
-👉Testing photo editing apps: "Darkroom"❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.dw.com/en/testing-photo-editing-apps-darkroom/a-49897058&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEaYGpwku_XxB2ocBwDAXMU9rrrnA'> link</a>
+👉Fortnite 10.00 Content Update: Tilted Town, Automatic Sniper Rifle, And More❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.gamespot.com/articles/fortnite-1000-content-update-tilted-town-automatic/1100-6468930/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEgQmzBUvc_P3QLqifclgDGglHrbQ'> link</a>
 
-👉🏽Google To Allow Rival Search Engines To Compete On Android. What's The Catch?❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://in.mashable.com/tech/5474/google-to-allow-rival-search-engines-to-compete-on-android-whats-the-catch&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGg8FI0Lm9wS4n0U8bIXCD3hEnTjA'> link</a>
+👉🏽Google just killed off its Trips app despite pleas from users to keep it alive❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.zdnet.com/article/google-just-killed-off-its-trips-app-despite-pleas-from-users-to-keep-it-alive/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHqntwPPO_ElxQJrhRR1k4MOd3nZg'> link</a>
 
-👉🏿5G MacBooks Rumored to Arrive in 2020❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.laptopmag.com/articles/macbook-5g-rumor-2020&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGHCtdYMesed_xtpOGKnbiuBEd5FA'> link</a>
+👉🏿Samsung Phones Beat Apple and Huawei in Download Speeds❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.tomsguide.com/news/samsung-phones-beat-apple-and-huawei-in-download-speeds&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHNmtzlYYU_VbjB0YK8GB12QdRWUw'> link</a>
 
-👉Top 10 UK Games Chart - Fire Emblem: Three Houses Beats Resurgent FIFA 19 To No.1❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.gamespot.com/articles/top-10-uk-games-chart-fire-emblem-three-houses-bea/1100-6468902/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHnd4ntpp3FUBJBULwc34RiF9Fnkw'> link</a>
+👉iPhone in 2021: Expect to see an under-screen Touch ID scanner❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.zdnet.com/article/iphone-in-2021-expect-to-see-an-under-screen-touch-id-scanner/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNE-XpHOOHP-DdAI8Z5_WjfEBsU8Sw'> link</a>
 
-👉🏽Fire Emblem: Three Houses continues to top UK sales chart❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://venturebeat.com/2019/08/05/fire-emblem-three-houses-continues-to-top-u-k-sales-chart/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHIMFVvFkAxgndm88my0nMwY4AFTQ'> link</a>
+👉🏽Fortnite Update Time Today: Patch Notes now LIVE - New Sniper Rifle, Season 10 Map Changes❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.dailystar.co.uk/tech/gaming/796333/Fortnite-Update-10-01-Patch-Notes-Next-Season-10-server-Downtime-and-map-changes-news&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFpCtfanR1h_9_YWRECM_D78KKE3Q'> link</a>
 
-👉🏿The Galaxy Note 10 dilemma: Getting out of the Galaxy Fold's shadow❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/the-galaxy-note-10-dilemma-getting-out-of-the-galaxy-folds-shadow/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFiokvvPu5ak9l0e6z6pEiw-PQY2A'> link</a>
+👉🏿Made a Reservation at a Nice Restaurant? You're Probably Getting Googled❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.vice.com/en_in/article/evjgpm/restaurants-google-you-regularly-to-figure-out-what-you-want-and-maybe-even-judge-you&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGwCx4i-f-O-P12_JGKGSXDteQGGQ'> link</a>
 
