@@ -1,20 +1,20 @@
-<b>Technology NEWS on Tuesday, August 6th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Wednesday, August 7th, 2019</b> 📡📡📡 
 
-👉How To Stop Alexa From Letting People Listen To Your Recordings❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.ibtimes.com/how-stop-alexa-letting-people-listen-your-recordings-2811093&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGo9M_D-NYQbdPR8g0RPhuIEbWCfg'> link</a>
+👉Apple Introduces Teachers to Coding at Summer Workshops❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.macrumors.com/2019/08/07/apple-teacher-coding-acadamies/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEHqXz8wIoAUxtF8CU8U7I4_PZzjw'> link</a>
 
-👉🏽Amazon Echo Auto review: So... how dumb is your car?❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/8/6/20754404/amazon-echo-auto-review-alexa-car-price-specs-features&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNENDu597ytMVYMHwYdO31Be91KNwA'> link</a>
+👉🏽Apex Legends Is Getting A Limited-Time Solo Mode❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://kotaku.com/apex-legends-is-getting-a-limited-time-solo-mode-1837026454&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEtrcPHnzINvpwQDJMnJWj12loGlw'> link</a>
 
-👉🏿Apple's iPhone 11 release date just leaked❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://bgr.com/2019/08/06/iphone-11-release-date-leak-september-20-softbank/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEtDmU7RoOWlECdb34cGvZWzBWlOQ'> link</a>
+👉🏿Xiaomi, Realme to ditch Sony for Samsung's 64MP sensor❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.livemint.com/technology/gadgets/xiaomi-realme-to-ditch-sony-for-samsung-s-64mp-smartphone-imaging-technology-1565179494685.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNH739P3y_mGzAph4oR0bxfnO3Dngg'> link</a>
 
-👉Fortnite 10.00 Content Update: Tilted Town, Automatic Sniper Rifle, And More❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.gamespot.com/articles/fortnite-1000-content-update-tilted-town-automatic/1100-6468930/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEgQmzBUvc_P3QLqifclgDGglHrbQ'> link</a>
+👉Like your big phone screen? Thank Samsung's original Galaxy Note❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/like-your-big-phone-screen-thank-samsungs-original-galaxy-note/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHoU4rvEkyPc_-2fwF6k4Yaj6q50g'> link</a>
 
-👉🏽Google just killed off its Trips app despite pleas from users to keep it alive❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.zdnet.com/article/google-just-killed-off-its-trips-app-despite-pleas-from-users-to-keep-it-alive/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHqntwPPO_ElxQJrhRR1k4MOd3nZg'> link</a>
+👉🏽Killer Deal: New MacBook Air Already $200 Off❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.laptopmag.com/articles/macbook-air-2019-deal-200-off&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGzlIrHOiQaBu4rcsrupiDlmaJQTA'> link</a>
 
-👉🏿Samsung Phones Beat Apple and Huawei in Download Speeds❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.tomsguide.com/news/samsung-phones-beat-apple-and-huawei-in-download-speeds&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHNmtzlYYU_VbjB0YK8GB12QdRWUw'> link</a>
+👉🏿So, is this the iPhone of our dreams?❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://bgr.com/2019/08/07/iphone-11-release-date-coming-we-want-iphone-12/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFqgYdQMajR_VoUPHbVb_aXNCpcIw'> link</a>
 
-👉iPhone in 2021: Expect to see an under-screen Touch ID scanner❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.zdnet.com/article/iphone-in-2021-expect-to-see-an-under-screen-touch-id-scanner/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNE-XpHOOHP-DdAI8Z5_WjfEBsU8Sw'> link</a>
+👉How to use Google Photos to backup your iPhone❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.macworld.com/video/97187/how-to-use-google-photos-to-backup-your-iphone&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFuuVTZ0cMXf6bL5as3y4lin2mvuw'> link</a>
 
-👉🏽Fortnite Update Time Today: Patch Notes now LIVE - New Sniper Rifle, Season 10 Map Changes❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.dailystar.co.uk/tech/gaming/796333/Fortnite-Update-10-01-Patch-Notes-Next-Season-10-server-Downtime-and-map-changes-news&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFpCtfanR1h_9_YWRECM_D78KKE3Q'> link</a>
+👉🏽This Amazon Echo Dot deal comes with a FREE vinyl album❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.t3.com/news/this-amazon-echo-dot-deal-comes-with-a-free-vinyl-album&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHJ5sY4XzCjDLi1kXa3l044VM1bRg'> link</a>
 
-👉🏿Made a Reservation at a Nice Restaurant? You're Probably Getting Googled❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.vice.com/en_in/article/evjgpm/restaurants-google-you-regularly-to-figure-out-what-you-want-and-maybe-even-judge-you&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGwCx4i-f-O-P12_JGKGSXDteQGGQ'> link</a>
+👉🏿Linux to get Teams client? Microsoft says 'stay tuned'❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.zdnet.com/article/linux-to-get-teams-client-microsoft-says-stay-tuned/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFIKDe3f5hilVwqUzIYc_RqcX7naA'> link</a>
 
