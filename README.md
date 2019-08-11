@@ -1,20 +1,20 @@
-<b>Technology NEWS on Saturday, August 10th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Sunday, August 11th, 2019</b> 📡📡📡 
 
-👉The Honor Vision TV is Huawei's first HarmonyOS device❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/8/10/20798260/huawei-honor-smart-tv-vision-pro-harmonyos-china&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFmf7URkrcRBMrJAAC8kJnS4XB66g'> link</a>
+👉Samsung Galaxy Note 10 removes the headphone jack signaling the end of an era❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/samsung-galaxy-note-10-removes-the-headphone-jack-signaling-the-end-of-an-era/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNF3j5taaPadRmCTHuy0NLYIqfaJrA'> link</a>
 
-👉🏽What Happens When Uranus Retrogrades In Taurus 2019? Here's What To Expect❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.elitedaily.com/p/what-happens-when-uranus-retrogrades-in-taurus-2019-heres-what-to-expect-18548350&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNG1nNbWhp759eHoHAwh0YEbRTAJ9w'> link</a>
+👉🏽Huawei Mate 30 might be unveiled on September 19 alongside new Kirin 990 processor❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.phonearena.com/news/Huawei-Mate-30-announcement-date_id118117&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFuCNIZojcrN94hDx6o842nk4LeuQ'> link</a>
 
-👉🏿High-end 2019 Apple iPhone lineup may shift to 'Pro' branding❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://appleinsider.com/articles/19/08/10/high-end-2019-apple-iphone-lineup-may-shift-to-pro-branding&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHmN3zUMZhfF6KfYEdL43ssMVFMhg'> link</a>
+👉🏿Apple's foldable iPhone could be further out than we thought❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/foldable-iphone-ipad-may-be-further-out-than-we-thought/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGpkLsce923eAvbbZZheHAXEPcsPw'> link</a>
 
-👉PUBG Mobile Lite is a faster, lightweight alternative for low-end smartphones❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.techspot.com/news/81384-pubg-mobile-lite-version-faster-more-lightweight-alternative.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFuFkEa5jF2vkLQtEKPC0JkXNO0YA'> link</a>
+👉Weekly Tech Recap: Redmi K20 Series Open Sale, Vivo S1 Launch, PUBG Mobile Erangel 2.0 and More❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.news18.com/news/tech/weekly-tech-recap-redmi-k20-series-open-sale-vivo-s1-launch-pubg-mobile-erangel-2-0-and-more-2266575.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNE_WYGj2KVT_sy46FS21E6LBCC6Vw'> link</a>
 
-👉🏽Fortnite's Hated Mech Is Staying In Competitive, With Only The Tiniest Of Nerfs❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/paultassi/2019/08/10/fortnites-hated-mech-is-staying-in-competitive-with-only-the-tiniest-of-nerfs/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNG_yTNLaf72mM_kREhXqJEEuQUkbQ'> link</a>
+👉🏽Pixel 4 gets Google 'Face ID' and gesture controls: Other rumors, leaks, design, specs, price and more❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/pixel-4-gets-google-faceid-and-gesture-controls-other-rumors-leaks-design-specs-price-and-more-90hz-display/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHTg2ZREuIg-7uX5KrQxgO4bzIbzg'> link</a>
 
-👉🏿Honor Vision, Honor Vision Pro With HarmonyOS, 55-Inch 4K UHD Display Launched❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://gadgets.ndtv.com/tv/news/honor-vision-pro-harmonyos-popup-camera-55-inch-4k-display-launch-price-specifications-features-2083316&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHZGlnw5gL4MsdeQ0VC3CpiZ6MTOg'> link</a>
+👉🏿Aimee Sewell's path from teaching and policing to Mount Isa Rodeo Queen❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theage.com.au/national/queensland/aimee-sewell-s-path-from-teaching-and-policing-to-mount-isa-rodeo-queen-20190811-p52fxc.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNF8XMEH5vEyW_ZsMcGb07k6UlKEJg'> link</a>
 
-👉Tesla quite literally gets under this woman's skin❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://mspoweruser.com/tesla-quite-literally-gets-under-this-womans-skin/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFRXGAsIbxqSsiMIIAlteOLLTFYUw'> link</a>
+👉WhatsApp will soon be introducing a boomerang-like feature❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.digitalinformationworld.com/2019/08/whatsapp-tests-boomerang-instagram-like-feature.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGuJaR3vnI5LqapjqtKrFjZ1v1Bjg'> link</a>
 
-👉🏽Galaxy Note 10 vs. the rumored iPhone 11❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/note-10-vs-iphone-11-rumors-comparison/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEugP6bgOhAY49X9HGvcKk6fyqO1g'> link</a>
+👉🏽Personifying the lunar: Author Don Lago flips the script on famed moon landing❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://azdailysun.com/news/local/personifying-the-lunar-author-don-lago-flips-the-script-on/article_8bd976ba-7dbf-5f70-b22a-6072dab139f1.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFS_wZq_Vgg5cxcpEeQRtE4zrjmog'> link</a>
 
-👉🏿Emmys 2019: How to watch every nominated show without cable❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/how-to/emmys-2019-how-to-watch-every-nominated-show-without-cable/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFRe6OxwnSVSHeV5ydrR8ytJSDTMg'> link</a>
+👉🏿Huawei's Harmony OS Powers New Smart TV❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.ibtimes.com/huaweis-harmony-os-powers-new-smart-tv-2812126&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEZYSm1oQd3b_A9UBGKtPxhurQFqQ'> link</a>
 
