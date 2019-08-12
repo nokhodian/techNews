@@ -1,20 +1,20 @@
-<b>Technology NEWS on Sunday, August 11th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Monday, August 12th, 2019</b> 📡📡📡 
 
-👉Samsung Galaxy Note 10 removes the headphone jack signaling the end of an era❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/samsung-galaxy-note-10-removes-the-headphone-jack-signaling-the-end-of-an-era/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNF3j5taaPadRmCTHuy0NLYIqfaJrA'> link</a>
+👉Adobe Fresco brings the joy of painting to the iPad❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/8/12/20794481/adobe-fresco-hands-on-painting-app-ipad-pro&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHLWhm-e6wdZcVvrlfjs6-7yAmC3g'> link</a>
 
-👉🏽Huawei Mate 30 might be unveiled on September 19 alongside new Kirin 990 processor❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.phonearena.com/news/Huawei-Mate-30-announcement-date_id118117&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFuCNIZojcrN94hDx6o842nk4LeuQ'> link</a>
+👉🏽Fortnite World Cup Champion Swatted While Streaming❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://comicbook.com/gaming/2019/08/12/fortnite-bugha-swatting-twitch/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFaGdxdHLLobbsIBlDIArg3F7vROQ'> link</a>
 
-👉🏿Apple's foldable iPhone could be further out than we thought❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/foldable-iphone-ipad-may-be-further-out-than-we-thought/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGpkLsce923eAvbbZZheHAXEPcsPw'> link</a>
+👉🏿You can now get the Google Pixel 3 XL for $300 less on Amazon❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.digitaltrends.com/dtdeals/google-pixel-3-amazon-300-dollar-price-cut/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNE6ZXdg2ZbgkzyYxvsmwaF_HxQj0A'> link</a>
 
-👉Weekly Tech Recap: Redmi K20 Series Open Sale, Vivo S1 Launch, PUBG Mobile Erangel 2.0 and More❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.news18.com/news/tech/weekly-tech-recap-redmi-k20-series-open-sale-vivo-s1-launch-pubg-mobile-erangel-2-0-and-more-2266575.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNE_WYGj2KVT_sy46FS21E6LBCC6Vw'> link</a>
+👉Mortal Kombat 11 Nightwolf DLC release date, time and download NEWS❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.express.co.uk/entertainment/gaming/1164746/Mortal-Kombat-11-Nightwolf-DLC-release-date-time-download-NEWS-PS4-Xbox-One-Switch&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEFpbYkMvCwzxbzQ0K-AFD9-cAF8Q'> link</a>
 
-👉🏽Pixel 4 gets Google 'Face ID' and gesture controls: Other rumors, leaks, design, specs, price and more❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/pixel-4-gets-google-faceid-and-gesture-controls-other-rumors-leaks-design-specs-price-and-more-90hz-display/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHTg2ZREuIg-7uX5KrQxgO4bzIbzg'> link</a>
+👉🏽OnePlus Fnatic Mode Easter egg unlocks exclusive hidden wallpapers [Video]❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://9to5google.com/2019/08/12/oneplus-fnatic-mode-easter-egg/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNErKLdm0Jyle8usg9NJeiKb6Jd3eA'> link</a>
 
-👉🏿Aimee Sewell's path from teaching and policing to Mount Isa Rodeo Queen❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theage.com.au/national/queensland/aimee-sewell-s-path-from-teaching-and-policing-to-mount-isa-rodeo-queen-20190811-p52fxc.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNF8XMEH5vEyW_ZsMcGb07k6UlKEJg'> link</a>
+👉🏿System Shock 2: Enhanced Edition is 'coming soon'❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://venturebeat.com/2019/08/12/system-shock-2-enhanced-edition-is-coming-soon/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEBG1f2xngnahaxV8kOJeXgONoS4A'> link</a>
 
-👉WhatsApp will soon be introducing a boomerang-like feature❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.digitalinformationworld.com/2019/08/whatsapp-tests-boomerang-instagram-like-feature.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGuJaR3vnI5LqapjqtKrFjZ1v1Bjg'> link</a>
+👉The latest big iPhone 11 leak just surprised us all❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://bgr.com/2019/08/12/iphone-11-release-date-pro-triple-camera/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGry0uQ0f3F7pNmeTtndEAKl1Om7Q'> link</a>
 
-👉🏽Personifying the lunar: Author Don Lago flips the script on famed moon landing❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://azdailysun.com/news/local/personifying-the-lunar-author-don-lago-flips-the-script-on/article_8bd976ba-7dbf-5f70-b22a-6072dab139f1.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFS_wZq_Vgg5cxcpEeQRtE4zrjmog'> link</a>
+👉🏽FDNY sends notices to 10000 people warning of possible data breach❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.brooklynpaper.com/stories/42/33/all-fdny-data-breach-2019-08-16-bk.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHTBxt8TZ5gP8qA3LqfWTy2lEV2gw'> link</a>
 
-👉🏿Huawei's Harmony OS Powers New Smart TV❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.ibtimes.com/huaweis-harmony-os-powers-new-smart-tv-2812126&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEZYSm1oQd3b_A9UBGKtPxhurQFqQ'> link</a>
+👉🏿Bosch is working on glasses-free 3D displays for in-car use❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://techcrunch.com/2019/08/12/bosch-is-working-on-glasses-free-3d-displays-for-in-car-use/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGIZmfd_PGhmeLABFUjVVo5MMjLBg'> link</a>
 
