@@ -1,20 +1,20 @@
-<b>Technology NEWS on Tuesday, August 13th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Wednesday, August 14th, 2019</b> 📡📡📡 
 
-👉Google, Mozilla: We're changing what you see in Chrome, Firefox address bars❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.zdnet.com/article/google-mozilla-were-changing-what-you-see-in-chrome-firefox-address-bars/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNH0tDY9JVbc05Ympp5Ai8EyxNdEIw'> link</a>
+👉Filed to: Need For Speed Heat❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://kotaku.com/the-next-need-for-speed-is-need-for-speed-heat-a-styli-1837235524&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEv91_GeIwrzrnpQuo0P0Ua9LZxAw'> link</a>
 
-👉🏽Tuned 2020 Toyota Supras Are Already Hitting The Drag Strip❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.motor1.com/news/364865/2020-toyota-supra-drag-race/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHKICxmXBjw10pNvDHyY6ri9OXB-g'> link</a>
+👉🏽Samsung Could Have a Smartphone With a Graphene Battery by 2021: Report❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://gadgets.ndtv.com/mobiles/news/graphene-battery-smartphone-samsung-2021-rumour-2085227&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGGfXjQ6uDGhqO3O3cYFDOgsEaFWg'> link</a>
 
-👉🏿Adobe Lightroom adds deleted photo recovery, GPU-accelerated classic editing❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://9to5mac.com/2019/08/13/adobe-lightroom-ios-mac-august-2019-update/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEpAC9xjGSicWTRD3G_Byq1AXVlmQ'> link</a>
+👉🏿PUBG Mobile 0.14.0 Update brings new Infection mode, character system, treasure hunt and more❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.businesstoday.in/technology/news/pubg-mobile-0-14-0-update-new-infection-mode-character-system-treasure-hunt/story/372628.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEj40vQh5v9LvLyeKle4rRaeeRAzw'> link</a>
 
-👉Indian Smartphone Market Sees Record Shipments in Q2, Vivo and Realme Show Strong Growth: IDC❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://gadgets.ndtv.com/mobiles/news/indian-smartphone-market-sees-record-shipments-in-q2-vivo-and-realme-show-strong-growth-idc-2084643&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNE-WYlk6OC_Utm_qSy2XnBbiNV0Gw'> link</a>
+👉The Genesis Mini Makes Up For Years Of Crappy Sega Clones❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://kotaku.com/the-genesis-mini-makes-up-for-years-of-crappy-sega-clon-1837110882&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGomFJISjrCs0LgdJurDkB_GE3K2Q'> link</a>
 
-👉🏽DJI's Osmo Mobile 3 is lighter, smaller, and folds up❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/8/13/20802785/dji-osmo-mobile-3-smartphone-gimbal-features-price&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHAkNdW0qaf2voXHgMDIoZ86LpQOA'> link</a>
+👉🏽AT&T and T-Mobile begin verifying calls to protect against spam❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/8/14/20805276/att-t-mobile-caller-verified-shaken-stir-call-authentication-fcc-robocalls-spam&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFz-AYyAYm-2ftBD_5W32MRSaMcIw'> link</a>
 
-👉🏿Snap announces Spectacles 3 with an updated design and a second HD camera❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/8/13/20802239/snapchat-spectacles-3-pricing-release-date-snap&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNG_KRnTixDNh9P_SCfEfAbibakfuA'> link</a>
+👉🏿THQ Nordic Financial Report Reveals Details About Dead Island 2, Timesplitters, and More❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://kotaku.com/thq-nordic-financial-report-reveals-details-about-dead-1837234831&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFwF7UoHQGxg1Boj5WE0xwf9v8WCw'> link</a>
 
-👉Dealer's custom Ford Mustang is a potent and pricey pony❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.foxnews.com/auto/ford-dealers-808-hp-custom-mustang&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNF6p_JVO1UiTuFTwvottcSbENFnBg'> link</a>
+👉Realme 5 Spotted on Geekbench With Snapdragon 665 SoC Ahead of Official Launch❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://gadgets.ndtv.com/mobiles/news/realme-5-specifications-snapdragon-665-geekbench-listing-rmx1911-official-launch-2085193&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHC9p9YW09nXuv9bpVP4j9bupCd2Q'> link</a>
 
-👉🏽Plants vs. Zombies: Battle for Neighborville trailer leaks❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://venturebeat.com/2019/08/13/plants-vs-zombies-battle-neighborville-leaks-hard/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHedzQPVpDl7LBD8WCKaweIlBYvhg'> link</a>
+👉🏽Facebook Now Lets Anyone Create 3D Instagram Effects Using Its Spark AR Platform❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://gadgets.ndtv.com/apps/news/facebook-spark-ar-platform-open-to-everyone-for-instagram-ar-effects-2085183&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNF0_YJTwLosUXP7a107SsENtQMDTA'> link</a>
 
-👉🏿How To Reserve Names, Create Characters Early In 'WoW Classic'❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/paultassi/2019/08/13/how-to-reserve-names-create-characters-early-in-wow-classic/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNG2WvCw1fO3letBX4t6iHzKePLHaA'> link</a>
+👉🏿Google Maps adds tighter Lime scooter integration to improve your commutes❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://9to5google.com/2019/08/14/lime-google-maps-navigation/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNE0m4ITCZIz2IpyksCLCkmqVpVVAg'> link</a>
 
