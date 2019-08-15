@@ -1,20 +1,20 @@
-<b>Technology NEWS on Wednesday, August 14th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Thursday, August 15th, 2019</b> 📡📡📡 
 
-👉Filed to: Need For Speed Heat❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://kotaku.com/the-next-need-for-speed-is-need-for-speed-heat-a-styli-1837235524&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEv91_GeIwrzrnpQuo0P0Ua9LZxAw'> link</a>
+👉'Fortnite' Cube Memorial Locations: Where To Visit A Memorial To The Cube In The Desert And By A Lake❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/paultassi/2019/08/15/fortnite-cube-memorial-locations-where-to-visit-a-memorial-to-the-cube-in-the-desert-and-by-a-lake/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNE7J0YHzDH9J7KGrzk8zFxEbQ_Kkg'> link</a>
 
-👉🏽Samsung Could Have a Smartphone With a Graphene Battery by 2021: Report❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://gadgets.ndtv.com/mobiles/news/graphene-battery-smartphone-samsung-2021-rumour-2085227&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGGfXjQ6uDGhqO3O3cYFDOgsEaFWg'> link</a>
+👉🏽5 surprising ways Amazon Echo can entertain you when you're bored to tears❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/how-to/5-surprising-ways-amazon-echo-can-entertain-you-when-youre-bored-to-tears/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNF5Mzpw6-6au7ZCpOvpQpK0wJej8A'> link</a>
 
-👉🏿PUBG Mobile 0.14.0 Update brings new Infection mode, character system, treasure hunt and more❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.businesstoday.in/technology/news/pubg-mobile-0-14-0-update-new-infection-mode-character-system-treasure-hunt/story/372628.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEj40vQh5v9LvLyeKle4rRaeeRAzw'> link</a>
+👉🏿The 2020 Chevy C8 Corvette Will Start At $59995❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://jalopnik.com/the-2020-c8-chevy-corvette-will-start-at-59-995-1837265896&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGxx_4ivx0l7I7d8c4iX5ZRY0aTQA'> link</a>
 
-👉The Genesis Mini Makes Up For Years Of Crappy Sega Clones❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://kotaku.com/the-genesis-mini-makes-up-for-years-of-crappy-sega-clon-1837110882&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGomFJISjrCs0LgdJurDkB_GE3K2Q'> link</a>
+👉Best iPhone Case❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://bgr.com/2019/08/15/best-iphone-case/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGbgZNLGY126jua1vYLyNI0nn2_cg'> link</a>
 
-👉🏽AT&T and T-Mobile begin verifying calls to protect against spam❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/8/14/20805276/att-t-mobile-caller-verified-shaken-stir-call-authentication-fcc-robocalls-spam&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFz-AYyAYm-2ftBD_5W32MRSaMcIw'> link</a>
+👉🏽Israel's Corephotonics Files Third Patent Infringement Case against Apple over iPhones with Dual-Aperture Cameras❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.patentlyapple.com/patently-apple/2019/08/israels-corephotonics-files-third-patent-infringement-case-against-apple-over-iphones-with-dual-aperture-cameras.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGABDI_UYKQU8m9VgCD4FK4gZHPlA'> link</a>
 
-👉🏿THQ Nordic Financial Report Reveals Details About Dead Island 2, Timesplitters, and More❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://kotaku.com/thq-nordic-financial-report-reveals-details-about-dead-1837234831&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFwF7UoHQGxg1Boj5WE0xwf9v8WCw'> link</a>
+👉🏿DualShock 4 gets hot new colors, including rose gold❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://venturebeat.com/2019/08/15/dualshock-4-gets-hot-new-colors-including-rose-gold/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHQT0yBzPPHUY1B2UQQ5JOIP5jwUA'> link</a>
 
-👉Realme 5 Spotted on Geekbench With Snapdragon 665 SoC Ahead of Official Launch❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://gadgets.ndtv.com/mobiles/news/realme-5-specifications-snapdragon-665-geekbench-listing-rmx1911-official-launch-2085193&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHC9p9YW09nXuv9bpVP4j9bupCd2Q'> link</a>
+👉Microsoft tweaks privacy policy to admit humans can listen to Skype Translator and Cortana audio❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://techcrunch.com/2019/08/15/microsoft-tweaks-privacy-policy-to-admit-humans-can-listen-to-skype-translator-and-cortana-audio/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHVdV2cIFy1m1Z38b3vMRKiXWYCyg'> link</a>
 
-👉🏽Facebook Now Lets Anyone Create 3D Instagram Effects Using Its Spark AR Platform❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://gadgets.ndtv.com/apps/news/facebook-spark-ar-platform-open-to-everyone-for-instagram-ar-effects-2085183&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNF0_YJTwLosUXP7a107SsENtQMDTA'> link</a>
+👉🏽Critical updates for Microsoft Patch Tuesday may cause testing headaches❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.computerworld.com/article/3432169/critical-updates-for-microsoft-patch-tuesday-may-cause-testing-headaches.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEDLw1vArWZObhXORs8bP4ZRhvXnA'> link</a>
 
-👉🏿Google Maps adds tighter Lime scooter integration to improve your commutes❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://9to5google.com/2019/08/14/lime-google-maps-navigation/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNE0m4ITCZIz2IpyksCLCkmqVpVVAg'> link</a>
+👉🏿PS Plus Free Games download ENDS but new PS4 and PS Store bonuses are on the way❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.express.co.uk/entertainment/gaming/1165901/PS-Plus-Free-Games-download-ends-PS4-PS-Store-Caravan-Stories&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFR819Ec5uUxGFx5j_TlpI2GU5MTg'> link</a>
 
