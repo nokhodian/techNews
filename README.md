@@ -1,20 +1,20 @@
-<b>Technology NEWS on Friday, August 16th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Saturday, August 17th, 2019</b> 📡📡📡 
 
-👉Huawei is developing an alternative to Google Maps❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.businessinsider.com/huawei-develops-google-maps-alternative-2019-8&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHCcux9Xq6bhp6x3eW1PjrVNYotFg'> link</a>
+👉Nintendo Switch V2 vs original Switch: Battery life showdown❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/nintendo-switch-v2-vs-original-switch-battery-life-showdown/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEF1Xvg8RAa5nLfT35jcVSlOGIQoA'> link</a>
 
-👉🏽31 always useful Apple productivity tips❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.computerworld.com/article/3432540/31-always-useful-apple-productivity-tips.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEkzCIT-KAOP2M74aJY2AIhIUhzGA'> link</a>
+👉🏽Researchers reveal "KNOB" flaw that affects almost every Bluetooth device❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.techspot.com/news/81488-researchers-reveal-knob-flaw-affects-almost-every-bluetooth.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFlSQ2MAQoBekZJvZJ79xtiBLLKcw'> link</a>
 
-👉🏿Google Wants You To Start Taking More Pictures With Your Chromebook❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.laptopmag.com/articles/chrome-os-portrait-mode-chromebook-camera&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHmY_W8BMDs21fZ37TE1JrVRLgJMA'> link</a>
+👉🏿The Motorola One Action Wants to Be a GoPro Smartphone❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.extremetech.com/mobile/296795-the-motorola-one-action-wants-to-be-a-gopro-smartphone&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHEizIXgSHtykNxz3PRuuzSvt16bA'> link</a>
 
-👉Microsoft isn't working on a streaming-only Xbox right now❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.engadget.com/2019/08/16/microsoft-xbox-streaming/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFkcxk_51G_q8XLskK1VHKKAIHsAw'> link</a>
+👉Apex Legends' Iron Crown Microtransactions 'Fix' Is Extremely Bad❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/paultassi/2019/08/17/apex-legends-iron-crown-microtransactions-fix-is-extremely-bad/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGF9YKhLegJ0AcDfWPOB-HfF6WFiQ'> link</a>
 
-👉🏽McLaren confirms new Ultimate Series speedster❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.autocar.co.uk/car-news/new-cars/mclaren-confirms-new-ultimate-series-speedster&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHHHgPPIUHvRaW5qOIIByKdZ3crnQ'> link</a>
+👉🏽7 Alexa secrets you didn't know you needed❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.komando.com/tips/586367/7-alexa-secrets-you-didnt-know-you-needed&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFzkuSRLf1QtlqnWhD5TuylTRgN3Q'> link</a>
 
-👉🏿Motorola One Action unveiled with triple-lens camera, hole-punch display, and a surprisingly low price❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://bgr.com/2019/08/16/motorola-one-action-release-date-price-specs/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHbhFbtaQVluBRSHjSL095VWtiwRA'> link</a>
+👉🏿PS4 free game warning! Last chance to download this amazing PlayStation release for free❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.dailystar.co.uk/tech/gaming/ps4-free-game-borderlands-game-18948072&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGcP3Dlr44ZskIQ7tryrEg4iPgk3Q'> link</a>
 
-👉Oppo Reno Z Review❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.trustedreviews.com/reviews/oppo-reno-z&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNH6yXYYGEpLDG85QhRuCVutQTjdcQ'> link</a>
+👉Apple Watch 5: Rumors, price, fitness features, battery and more❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/apple-watch-5-series-rumors-price-what-to-expect/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHJlKP3b0FUhkIjemoCX7VKzat_6w'> link</a>
 
-👉🏽How Google's Secrecy Led to Company Turmoil❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.wired.com/story/gadget-lab-podcast-418/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHB1AP_mfClW2koxAU8A-6O3xyqKA'> link</a>
+👉🏽Elon Musk Floats 'Nuke Mars' Idea Again (He Has T-Shirts)❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.space.com/elon-musk-nuke-mars-terraforming.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFHXX63yCeaGEoT-PWgXgj9Iz7mFg'> link</a>
 
-👉🏿Motorola's latest cheap phone tries to double as an action camera❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.engadget.com/2019/08/16/motorola-one-action-hands-on/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGj2JzbQzXsnxt9uN_M1wBfoBKc3A'> link</a>
+👉🏿7 Note 10 wallpapers that hide the selfie camera and how to get them❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/how-to/7-note-10-wallpapers-that-hide-the-selfie-camera-and-how-to-get-them/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHw48EDLmLbbpy2C6mu-VzoQo_nGQ'> link</a>
 
