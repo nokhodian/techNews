@@ -1,20 +1,20 @@
-<b>Technology NEWS on Saturday, August 17th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Sunday, August 18th, 2019</b> 📡📡📡 
 
-👉Nintendo Switch V2 vs original Switch: Battery life showdown❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/nintendo-switch-v2-vs-original-switch-battery-life-showdown/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEF1Xvg8RAa5nLfT35jcVSlOGIQoA'> link</a>
+👉Nintendo's Switch is beating Xbox and PlayStation across the board, according to the latest sales numbers❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.businessinsider.com/nintendo-switch-exclusives-dominate-list-best-selling-games-july-sales-2019-8&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNF760ElPlk31wykiXhVy2v073f1iA'> link</a>
 
-👉🏽Researchers reveal "KNOB" flaw that affects almost every Bluetooth device❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.techspot.com/news/81488-researchers-reveal-knob-flaw-affects-almost-every-bluetooth.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFlSQ2MAQoBekZJvZJ79xtiBLLKcw'> link</a>
+👉🏽Another senior producer has left BioWare❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcgamesn.com/dragon-age-4/second-senior-producer-leaves-bioware&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNE3qLKL6EX5-fGeBQeE43zSIGY_3g'> link</a>
 
-👉🏿The Motorola One Action Wants to Be a GoPro Smartphone❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.extremetech.com/mobile/296795-the-motorola-one-action-wants-to-be-a-gopro-smartphone&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHEizIXgSHtykNxz3PRuuzSvt16bA'> link</a>
+👉🏿Sports Titles Keep Gamers on Digital Playing Field❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.wsj.com/articles/sports-titles-keep-gamers-on-digital-playing-field-11566129601&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGyUzEtyAGsH1DxrzWai8-H_oZDvQ'> link</a>
 
-👉Apex Legends' Iron Crown Microtransactions 'Fix' Is Extremely Bad❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/paultassi/2019/08/17/apex-legends-iron-crown-microtransactions-fix-is-extremely-bad/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGF9YKhLegJ0AcDfWPOB-HfF6WFiQ'> link</a>
+👉Fire HD 10 tablet, Fire TV Stick 4K, Fitbit Versa Lite, Surface Pro, and more deals for Aug. 18❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://mashable.com/shopping/best-deals-aug-18-2019-surface-pro/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFfTMQWNi64H-TwEWIK0ireHnjBlQ'> link</a>
 
-👉🏽7 Alexa secrets you didn't know you needed❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.komando.com/tips/586367/7-alexa-secrets-you-didnt-know-you-needed&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFzkuSRLf1QtlqnWhD5TuylTRgN3Q'> link</a>
+👉🏽Windows or Chromebook? A Best Buy salesman told me it isn't even close❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.zdnet.com/article/windows-or-chromebook-a-best-buy-salesman-told-me-it-isnt-even-close/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEsogDJqI_oUgvoVSc28_Ey0hxBeg'> link</a>
 
-👉🏿PS4 free game warning! Last chance to download this amazing PlayStation release for free❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.dailystar.co.uk/tech/gaming/ps4-free-game-borderlands-game-18948072&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGcP3Dlr44ZskIQ7tryrEg4iPgk3Q'> link</a>
+👉🏿The iPhone 11 needs these 7 features to be a success❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/the-iphone-11-needs-these-7-features-to-be-a-success/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFXzd_JHm4y95vshNAUOuMXXYLjmg'> link</a>
 
-👉Apple Watch 5: Rumors, price, fitness features, battery and more❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/apple-watch-5-series-rumors-price-what-to-expect/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHJlKP3b0FUhkIjemoCX7VKzat_6w'> link</a>
+👉Huawei To Unveil Its Own Version Of Google Maps In October, Says Report❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.techtimes.com/articles/245038/20190818/huawei-to-unveil-its-own-version-of-google-maps-in-october.htm&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGhLYxTuGOK2ZpLBWLc-k5q9G1-fA'> link</a>
 
-👉🏽Elon Musk Floats 'Nuke Mars' Idea Again (He Has T-Shirts)❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.space.com/elon-musk-nuke-mars-terraforming.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFHXX63yCeaGEoT-PWgXgj9Iz7mFg'> link</a>
+👉🏽Don't wait for iOS 13 to use dark mode on your iPhone❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/how-to/dont-wait-for-ios-13-to-use-dark-mode-on-your-iphone/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNE6vtfg8iSbKgvmEdjjwvr09iPkrw'> link</a>
 
-👉🏿7 Note 10 wallpapers that hide the selfie camera and how to get them❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/how-to/7-note-10-wallpapers-that-hide-the-selfie-camera-and-how-to-get-them/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHw48EDLmLbbpy2C6mu-VzoQo_nGQ'> link</a>
+👉🏿WhatsApp now testing fingerprint lock for Android Beta❗️<a href='https://www.google.com/url?rct=j&sa=t&url=http://www.asiaone.com/digital/whatsapp-now-testing-fingerprint-lock-android-beta&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNF4aUT90miD8sRszym3w-QdvCg_VQ'> link</a>
 
