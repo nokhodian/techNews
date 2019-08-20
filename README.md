@@ -1,20 +1,20 @@
-<b>Technology NEWS on Monday, August 19th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Tuesday, August 20th, 2019</b> 📡📡📡 
 
-👉Redmi Note 7 Pro, Redmi Note 7S, Redmi Y3, Redmi 7 Price in India Cut, New Prices Go Live Tomorrow❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://gadgets.ndtv.com/mobiles/news/redmi-7-note-7-pro-y3-price-in-india-cut-mi-home-security-camera-basic-discount-august-20-2087311&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHe3rIEbNFvABAaT3TQ2fU28UIT9g'> link</a>
+👉Apple Card Now Available to All Customers in United States❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.macrumors.com/2019/08/20/apple-card-launches-widely-in-us/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFrIB2PYlxsqj5pgrOjYRACuCtk0w'> link</a>
 
-👉🏽Journey to the Savage Planet will have online co-op, launches in January❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcgamer.com/journey-to-the-savage-planet-will-have-online-co-op-launches-in-january-embargoed/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNExXeZ8ROovsoo3ZhaRrfapR41xPw'> link</a>
+👉🏽Playing 'The Witcher 3' on the Switch shouldn't work, but it does❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.engadget.com/2019/08/20/the-witcher-3-switch-hands-on/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGOt65uwE77WOcZcNO8-99RFbBy7Q'> link</a>
 
-👉🏿Huawei's delayed Mate X may come with a more powerful chip and camera❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://mashable.com/article/huawei-mate-x-upgraded/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNH0EtzfvjaQP1nd_HDFUybQW01DnQ'> link</a>
+👉🏿Yubico YubiKey 5Ci❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcmag.com/review/370261/yubico-yubikey-5ci&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGRaH9j7Py4P1_s_NXuAmDPnOos4A'> link</a>
 
-👉Call of Duty and more get ray-tracing trailers at Gamescom❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://venturebeat.com/2019/08/19/call-of-duty-ray-tracing/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGFOwuKcGWevmr3bii9z8zwOZfx6A'> link</a>
+👉Watch the first 'Disintegration' trailer from the co-creator of 'Halo'❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.engadget.com/2019/08/20/first-gameplay-trailer-distintegration/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFXRnGpLgYSu4_qI5VH_ZGzL6HsDg'> link</a>
 
-👉🏽Elon Musk tweet: The bizarre plan SpaceX CEO has to 'NUKE Mars' in terraform attempt❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.express.co.uk/news/science/1167499/elon-musk-tweet-spacex-nuke-mars-nuclear-bomb-terraform-life-on-mars&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGFM5NRuoUtxGvrmG3aa25mpZ4IgA'> link</a>
+👉🏽'Fortnite' Just Accidentally Blew Up Something On The Map, Creating Glitched Items❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/paultassi/2019/08/20/fortnite-just-accidentally-blew-up-something-on-the-map-creating-glitched-items/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHCrr8jFC5WvJGub2sW8KWF90jdyg'> link</a>
 
-👉🏿Immersive Realism Comes To Minecraft Through Ray Tracing From NVIDIA❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/tiriasresearch/2019/08/19/immersive-realism-comes-to-minecraft-through-ray-tracing-from-nvidia/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGDtqqSRBEfhSfXalSbSv1l4D26OA'> link</a>
+👉🏿One of the most exciting new iPhone 11 rumors is almost definitely wrong❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://bgr.com/2019/08/20/iphone-11-release-date-soon-120hz-promotion-leak-nope/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFtjbFbAbZYIlkZAbvPUXv9lb0x0g'> link</a>
 
-👉Microsoft: These Windows 10 updates fix broken Visual Basic apps but not for 1903❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.zdnet.com/article/microsoft-these-windows-10-updates-fix-broken-visual-basic-apps-but-not-for-1903/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGQLCUALdghV8LDnAwXdEzMt1ds7A'> link</a>
+👉OxygenOS 9.5.10 now rolling out to T-Mobile OnePlus 7 Pro w/ multiple fixes❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://9to5google.com/2019/08/20/oxygenos-9-5-10-oneplus-7-pro-t-mobile/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEF5oI-KmV-WsvL4mAZ_vBaQ15ONQ'> link</a>
 
-👉🏽Watch Nintendo reveal a bunch of Switch games in this morning's live stream❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://bgr.com/2019/08/19/nintendo-switch-live-stream-indie-world-direct-new-games/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHl0n1lD3IEZ3wFNzzGyLmxKy1l8Q'> link</a>
+👉🏽Nokia 3V arrives on Verizon this week for $168 w/ 6.26-inch screen, Assistant button❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://9to5google.com/2019/08/20/nokia-3v-verizon-official/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNF7rzG7mmPcfGrTDtldr8ol6cKeew'> link</a>
 
-👉🏿Could the Oppo Reno 2 beat the Huawei P30 Pro's impressive zoom?❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.trustedreviews.com/news/oppo-reno-2-20x-zoom-camera-announced-3931107&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFV-9Umyz9IVc1qoMFMemQKlWrRYA'> link</a>
+👉🏿Google Stadia Lacks Exclusives And Is Still Missing The Biggest Third-Party Games Of The Year❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/paultassi/2019/08/20/google-stadia-lacks-exclusives-and-is-still-missing-the-biggest-third-party-games-of-the-year/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGU4hrtziKE_5F27E1dXgOykdchtw'> link</a>
 
