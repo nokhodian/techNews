@@ -1,20 +1,20 @@
-<b>Technology NEWS on Tuesday, August 20th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Wednesday, August 21st, 2019</b> 📡📡📡 
 
-👉Apple Card Now Available to All Customers in United States❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.macrumors.com/2019/08/20/apple-card-launches-widely-in-us/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFrIB2PYlxsqj5pgrOjYRACuCtk0w'> link</a>
+👉Hands-on with Wasteland 3: A simplified but still satisfying glimpse of the post-apocalypse❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcworld.com/article/3433241/hands-on-with-wasteland-3-a-simplified-but-still-satisfying-glimpse-of-the-post-apocalypse.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNG0A4znyLTLhWkHi6oXKgJ5Zdt0jg'> link</a>
 
-👉🏽Playing 'The Witcher 3' on the Switch shouldn't work, but it does❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.engadget.com/2019/08/20/the-witcher-3-switch-hands-on/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGOt65uwE77WOcZcNO8-99RFbBy7Q'> link</a>
+👉🏽Xiaomi India Says It Doesn't Expect Economic Slowdown to Impact Smartphones❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://gadgets.ndtv.com/mobiles/news/xiaomi-india-phone-market-economy-slowdown-impact-2088456&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFiWVw7jn9bniGIsEHAXHHD0w1T7w'> link</a>
 
-👉🏿Yubico YubiKey 5Ci❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcmag.com/review/370261/yubico-yubikey-5ci&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGRaH9j7Py4P1_s_NXuAmDPnOos4A'> link</a>
+👉🏿Intel announces Comet Lake, a faster, 10th-gen Whiskey Lake chip for mainstream laptops❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcworld.com/article/3431668/intel-announces-comet-lake-a-faster-10th-gen-whiskey-lake-chip-for-mainstream-laptops.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFa-QO3h3T6p_-rDaDuGIY_i387Sg'> link</a>
 
-👉Watch the first 'Disintegration' trailer from the co-creator of 'Halo'❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.engadget.com/2019/08/20/first-gameplay-trailer-distintegration/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFXRnGpLgYSu4_qI5VH_ZGzL6HsDg'> link</a>
+👉Waymo releases a self-driving open data set for free use by the research community❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://techcrunch.com/2019/08/21/waymo-releases-a-self-driving-open-data-set-for-free-use-by-the-research-community/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFKA_EY_N6WQKH5Vlj0n3mUDLw-xA'> link</a>
 
-👉🏽'Fortnite' Just Accidentally Blew Up Something On The Map, Creating Glitched Items❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/paultassi/2019/08/20/fortnite-just-accidentally-blew-up-something-on-the-map-creating-glitched-items/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHCrr8jFC5WvJGub2sW8KWF90jdyg'> link</a>
+👉🏽Apple may use Chinese OLED screens to cut costs of 2020 iPhones❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://venturebeat.com/2019/08/21/apple-may-use-chinese-oled-screens-to-cut-costs-of-2020-iphones/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNELOZKW-NgTLBe1861E2V2OZLTP1w'> link</a>
 
-👉🏿One of the most exciting new iPhone 11 rumors is almost definitely wrong❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://bgr.com/2019/08/20/iphone-11-release-date-soon-120hz-promotion-leak-nope/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFtjbFbAbZYIlkZAbvPUXv9lb0x0g'> link</a>
+👉🏿'Destiny 2' Reveals Shadowkeep Level Cap, But Also Unlimited Artifact Power Leveling❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/paultassi/2019/08/21/destiny-2-reveals-shadowkeep-level-cap-but-also-unlimited-artifact-power-leveling/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGbV-1wWesPOQgdzhatJl7-NlbR0Q'> link</a>
 
-👉OxygenOS 9.5.10 now rolling out to T-Mobile OnePlus 7 Pro w/ multiple fixes❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://9to5google.com/2019/08/20/oxygenos-9-5-10-oneplus-7-pro-t-mobile/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEF5oI-KmV-WsvL4mAZ_vBaQ15ONQ'> link</a>
+👉Microsoft won't release more Xbox exclusives on rival platforms❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.engadget.com/2019/08/21/microsoft-xbox-exclusives/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNG2lTwZOgskIB9KQiAZLVI8JJ7JfQ'> link</a>
 
-👉🏽Nokia 3V arrives on Verizon this week for $168 w/ 6.26-inch screen, Assistant button❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://9to5google.com/2019/08/20/nokia-3v-verizon-official/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNF7rzG7mmPcfGrTDtldr8ol6cKeew'> link</a>
+👉🏽Samsung Galaxy Note 10 vs. OnePlus 7 Pro: Specs comparison❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.digitaltrends.com/mobile/samsung-galaxy-note-10-vs-oneplus-7-pro/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHjXOsSEpe73GSpRAwUNL5gwJrwSw'> link</a>
 
-👉🏿Google Stadia Lacks Exclusives And Is Still Missing The Biggest Third-Party Games Of The Year❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/paultassi/2019/08/20/google-stadia-lacks-exclusives-and-is-still-missing-the-biggest-third-party-games-of-the-year/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGU4hrtziKE_5F27E1dXgOykdchtw'> link</a>
+👉🏿Games Inbox: Pokémon Sword & Shield, Google Stadia, and Cyberpunk 2077 multiplayer❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://metro.co.uk/2019/08/21/games-inbox-pokemon-sword-shield-google-stadia-cyberpunk-2077-multiplayer-10606179/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNH2uDmjCqce3Kvd5LW9B84OU3txnw'> link</a>
 
