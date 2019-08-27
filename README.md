@@ -1,20 +1,20 @@
-<b>Technology NEWS on Monday, August 26th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Tuesday, August 27th, 2019</b> 📡📡📡 
 
-👉Supercell's latest game Rush Wars is out now in early test markets❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://venturebeat.com/2019/08/26/supercells-latest-game-rush-wars-is-out-now-in-early-test-markets/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNG7l7ivLYDB1-ast8t6OSV-uvT3Sg'> link</a>
+👉The BBC is developing a voice assistant, code named 'Beeb'❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://techcrunch.com/2019/08/27/the-bbc-is-developing-a-voice-assistant-code-named-beeb/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGq2az0q_XlcaSF79SiCcTC63UKQQ'> link</a>
 
-👉🏽Control: The Kotaku Review❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://kotaku.com/control-the-kotaku-review-1837569523&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHgaVz7LIaF_5KHk22hAwnn69kdjA'> link</a>
+👉🏽Fairphone 3 is the 'ethical' smartphone you might actually buy❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.engadget.com/2019/08/27/fairphone-3-ethical-smartphone-hands-on/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFlJaTmgNigJx_1KzB_8E6CVuGLHQ'> link</a>
 
-👉🏿Astral Chain: The Kotaku Review❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://kotaku.com/astral-chain-the-kotaku-review-1837513311&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNE3wMTVkpz5_Se3LzTecSQNPJ468A'> link</a>
+👉🏿World Of Warcraft Classic's Rocky Launch Is Kind Of Nostalgic, Sure❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://kotaku.com/world-of-warcraft-classics-rocky-launch-is-kind-of-nost-1837595120&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGfImtJ0O0bBQSM2HuPSlgQkuuWzw'> link</a>
 
-👉Cantina Talk: After Rise of Skywalker, Everything Changes❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.wired.com/story/cantina-talk-92/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNG0Sn5V6nI-GEVIKj3Ttq2Wf1WfTw'> link</a>
+👉Huami Amazfit Stratos 3, Amazfit GTS, Amazfit X Smartwatches Launched: Price, Specifications❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://gadgets.ndtv.com/wearables/news/huami-amazfit-gts-stratos-smart-sports-watch-3-x-launched-price-specifications-features-2091313&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHxWAez9-L-ShW8-PSj6ldl5K2R2A'> link</a>
 
-👉🏽Ancestors: The Humankind Odyssey Review - Monkey See, Monkey Redo❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.gamespot.com/reviews/ancestors-the-humankind-odyssey-review-monkey-see-/1900-6417276/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGYSW65trsMB4kmrMeCwBH6WhIvgA'> link</a>
+👉🏽Yelp Is Overhauling Its App to Emphasize Personalization❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.wired.com/story/yelp-app-personalization&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNE6AGY3iESDpJ7lFC8-TOXMoVyQDw'> link</a>
 
-👉🏿'Fortnite': There's A Rift Beacon In The Desert, And It's Bringing Back An Old Favorite POI❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/davidthier/2019/08/26/moisty-mire-fortnite-theres-a-rift-beacon-is-in-the-desert-and-its-bringing-back-an-old-favorite/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGk1acK7pr7Hm-YOQqTl3ETiPUP1A'> link</a>
+👉🏿Lenovo ThinkPads get performance boost with Intel 10th-gen Comet Lake processors❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.digitaltrends.com/computing/lenovo-annouces-new-thinkpads-with-10th-gen-cometlake/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEazsMU-PRAPgfOyNXnaj30_xPJTQ'> link</a>
 
-👉First episode of Assassin's Creed Odyssey's Fate of Atlantis DLC is currently free❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.thesixthaxis.com/2019/08/26/assassins-creed-odyssey-fate-of-atlantis-dlc-free-download-fields-of-elysium/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEm_f2Jf6C4ZmhfnBMlmkJ24KsWxw'> link</a>
+👉'Monster Hunter World: Icebourne' beta opens this week❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.engadget.com/2019/08/27/monster-hunter-icebourne-beta/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNH-J7Ns36bVbhliv30mqq5KLeI7qA'> link</a>
 
-👉🏽Redmi Note 8 Teasers Confirm Snapdragon 665 SoC, Quad Rear Cameras With 48-Megapixel Primary Shooter❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://gadgets.ndtv.com/mobiles/news/redmi-note-8-teasers-quad-rear-cameras-48-megapixel-snapdragon-665-soc-2090396&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGBtWmK2FAVXq-ACdpbK_EP8Mke4g'> link</a>
+👉🏽Apple, Samsung hit by lawsuit over 'unsafe' RF levels from some iPhone, Galaxy models❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.zdnet.com/article/apple-samsung-hit-by-lawsuit-over-unsafe-rf-levels-from-some-iphone-galaxy-models/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEO4GqnsSKy5yZ2DdKjkFrGKmJC7w'> link</a>
 
-👉🏿The frustrating, enduring debate over video games, violence, and guns❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.vox.com/2019/8/26/20754659/video-games-and-violence-debate-moral-panic-history&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEXLFjEqMIAkLKwzYvBSoav4yLcwA'> link</a>
+👉🏿Verizon will automatically opt Android customers into its anti-robocall app❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.engadget.com/2019/08/27/verizon-will-automatically-opt-android-customers-into-its-anti-r/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFr__B44mvlPtvsHDgSxxez2ACVFQ'> link</a>
 
