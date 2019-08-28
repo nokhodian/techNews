@@ -1,20 +1,20 @@
-<b>Technology NEWS on Tuesday, August 27th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Wednesday, August 28th, 2019</b> 📡📡📡 
 
-👉The BBC is developing a voice assistant, code named 'Beeb'❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://techcrunch.com/2019/08/27/the-bbc-is-developing-a-voice-assistant-code-named-beeb/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGq2az0q_XlcaSF79SiCcTC63UKQQ'> link</a>
+👉LCG Entertainment game veterans buy Telltale Games❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.yahoo.com/entertainment/lcg-entertainment-game-veterans-buy-124554167.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGZa0aRcLJLikYbM7DzpT2F4Nx2lQ'> link</a>
 
-👉🏽Fairphone 3 is the 'ethical' smartphone you might actually buy❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.engadget.com/2019/08/27/fairphone-3-ethical-smartphone-hands-on/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFlJaTmgNigJx_1KzB_8E6CVuGLHQ'> link</a>
+👉🏽Will Apple Release An Apple Watch Series 5 This Year? Here's The Answer❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/davidphelan/2019/08/28/is-apple-watch-series-5-coming-and-if-so-when-new-evidence-has-the-answer-release-date/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNF7oRXPFgTcCHqcewsZVA1g-diXKA'> link</a>
 
-👉🏿World Of Warcraft Classic's Rocky Launch Is Kind Of Nostalgic, Sure❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://kotaku.com/world-of-warcraft-classics-rocky-launch-is-kind-of-nost-1837595120&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGfImtJ0O0bBQSM2HuPSlgQkuuWzw'> link</a>
+👉🏿Lenovo ThinkPad X1 Carbon, X1 Yoga, T490, X390, L13, L13 Yoga Laptops Refreshed With Intel Comet Lake CPUs❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://gadgets.ndtv.com/laptops/news/lenovo-thinkpad-x1-carbon-yoga-t490-x390-l13-yoga-laptops-refreshed-intel-comet-lake-processors-2091892&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHJmGgGWbqhtIf2LrQqtykJ3iXPSg'> link</a>
 
-👉Huami Amazfit Stratos 3, Amazfit GTS, Amazfit X Smartwatches Launched: Price, Specifications❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://gadgets.ndtv.com/wearables/news/huami-amazfit-gts-stratos-smart-sports-watch-3-x-launched-price-specifications-features-2091313&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHxWAez9-L-ShW8-PSj6ldl5K2R2A'> link</a>
+👉Apple AirPods vs. Galaxy Buds Comparison Review: Which Is Better?❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.ibtimes.com/apple-airpods-vs-galaxy-buds-comparison-review-which-better-2818981&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNG_pCxyFZpNqUjfmo_77ENIK0T03A'> link</a>
 
-👉🏽Yelp Is Overhauling Its App to Emphasize Personalization❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.wired.com/story/yelp-app-personalization&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNE6AGY3iESDpJ7lFC8-TOXMoVyQDw'> link</a>
+👉🏽Subway service resuming after hazardous materials call at Grand on Red Line, Grand reopened❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.chicagotribune.com/news/breaking/ct-hazmat-red-line-grand-20190828-c4s6xph6nrgg3nfuy5bogtt6la-story.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFK9ghO8x42sXPqxrPYzWadf_d2vA'> link</a>
 
-👉🏿Lenovo ThinkPads get performance boost with Intel 10th-gen Comet Lake processors❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.digitaltrends.com/computing/lenovo-annouces-new-thinkpads-with-10th-gen-cometlake/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEazsMU-PRAPgfOyNXnaj30_xPJTQ'> link</a>
+👉🏿Android Google Play app with 100 million downloads starts to deliver malware❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.zdnet.com/article/android-google-play-app-with-100-million-downloads-starts-to-deliver-malware/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNF4_YBfPaw-7h3UVGFpB6x_M4tbug'> link</a>
 
-👉'Monster Hunter World: Icebourne' beta opens this week❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.engadget.com/2019/08/27/monster-hunter-icebourne-beta/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNH-J7Ns36bVbhliv30mqq5KLeI7qA'> link</a>
+👉Exclusive: PUBG Mobile 90fps, 120fps Refresh Rate Options Spotted on Beta Update❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.news18.com/news/tech/pubg-mobile-90fps-120fps-refresh-rate-options-spotted-on-beta-update-2287715.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEWFJD6-pq2Zs5zEOFbUv7694Y4Hw'> link</a>
 
-👉🏽Apple, Samsung hit by lawsuit over 'unsafe' RF levels from some iPhone, Galaxy models❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.zdnet.com/article/apple-samsung-hit-by-lawsuit-over-unsafe-rf-levels-from-some-iphone-galaxy-models/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEO4GqnsSKy5yZ2DdKjkFrGKmJC7w'> link</a>
+👉🏽Oppo unveils quad-camera Reno 2 range of phones❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/8/28/20836405/oppo-reno-2-z-f-announced-india&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHZDLrjxCPji6nCRMoOFm1qOgV_eQ'> link</a>
 
-👉🏿Verizon will automatically opt Android customers into its anti-robocall app❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.engadget.com/2019/08/27/verizon-will-automatically-opt-android-customers-into-its-anti-r/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFr__B44mvlPtvsHDgSxxez2ACVFQ'> link</a>
+👉🏿From Turbo Building To Mechs, 'Fortnite' Keeps Making Unforced Errors In Season 10❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/paultassi/2019/08/28/from-turbo-building-to-mechs-fortnite-keeps-making-unforced-errors-in-season-10/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNG3fIzHdvNOjA9fQUVfjMOla-rybA'> link</a>
 
