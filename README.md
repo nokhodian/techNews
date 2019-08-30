@@ -1,20 +1,20 @@
-<b>Technology NEWS on Thursday, August 29th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Friday, August 30th, 2019</b> 📡📡📡 
 
-👉Microsoft May Finally Launch Dual-Screen Device at Oct. 2 Surface Event❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.extremetech.com/computing/297469-microsoft-may-finally-launch-dual-screen-device-at-oct-2-surface-event&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFRO6l4shsbBsqTvDZYMSAHQkGFDg'> link</a>
+👉'Astral Chain' packs top-notch combat into a weird anime world❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://mashable.com/article/astral-chain-review/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGn6R25O8zeSxJIA49ixh0HqFOKLw'> link</a>
 
-👉🏽'Fortnite' Search Between Rotary Phone, Fork-Knife & House of Carbide & Omega Posters Location❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.newsweek.com/fortnite-search-between-rotary-phone-fork-knife-house-carbide-location-1456758&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFoPNNWkik0AlGn8COmy8b6uph9GA'> link</a>
+👉🏽'Destiny 2' Removing Seasonal Activities Feels Like Weaponized FOMO❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/paultassi/2019/08/30/destiny-2-removing-seasonal-activities-feels-like-weaponized-fomo/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGAkm7FSqAeyWWvJ24XnFjqw7sA4A'> link</a>
 
-👉🏿'Pokémon Masters' Is Live On iOS And Android, And Loaded With Gacha Loot Boxes❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/paultassi/2019/08/29/pokmon-masters-is-live-on-ios-and-android-and-loaded-with-gacha-loot-boxes/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGPYbv6hWNM9pkjngtuDfOJoSBbQA'> link</a>
+👉🏿Gmail's new out of office warning will stop you sending unwanted emails❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.engadget.com/2019/08/30/gmail-ooo-notifications/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFh401uuaSP1sCxZU1gT9GmbABUlA'> link</a>
 
-👉Realme Q to feature Snapdragon 712 processor❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.livemint.com/technology/tech-news/realme-q-to-feature-snapdragon-712-processor-1567081578982.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHL_2YhohYrxsd4psE88n4lxqSIxw'> link</a>
+👉Report: Play Store apps w/ 1.5 million installs ran hidden adware, slowed phones❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://9to5google.com/2019/08/30/play-store-adware/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFWhSohRr_NTJkZkX3NG7wJ5LKnTw'> link</a>
 
-👉🏽Fortnite search between basement film camera snowy stone head flashy gold big rig guide❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.express.co.uk/entertainment/gaming/1171446/Fortnite-search-between-basement-film-camera-snowy-stone-head-flashy-gold-big-rig&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHxkplNXfnc-zu5LU-Eo0LvUHp56w'> link</a>
+👉🏽CDPR Quietly Talks About More 'Witcher' Games Under A 'Dual-Franchise' Model❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/paultassi/2019/08/30/cdpr-quietly-talks-about-more-witcher-games-under-a-dual-franchise-model/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGzt6GQUhqYbH8BqLHunevhqUUKDw'> link</a>
 
-👉🏿'Yakuza 7' is coming in 2020 with turn-based combat❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.engadget.com/2019/08/29/yakuza-7-2020-turn-based-combat/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNG3U5F4AwoFZJsPOZDSufULW5OpEA'> link</a>
+👉🏿Minecraft Earth Android beta launches in five cities❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/8/30/20840431/minecraft-earth-android-beta-closed-launch-seattle-london-tokyo-stockholm-mexico-city&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEw-p4VWyxIAt0wCFTs6BLW7vBabQ'> link</a>
 
-👉Apple is allowing independent repair shops to officially service iPhones❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://9to5mac.com/2019/08/29/apple-independent-repair-provider-program/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGPje8-rzBZMEphdqrCY9KirEANEQ'> link</a>
+👉Report: Nokia top of global rankings in third-party Android OEM updates❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://9to5google.com/2019/08/30/android-update-rankings/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFbgXC6CZC-tW_L2ygQhKoya5Z4xw'> link</a>
 
-👉🏽Spotify is testing a 'Create podcast' button inside its app❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.engadget.com/2019/08/29/spotify-one-click-podcasting/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFcC_rovZM1_BFU60MsIYStiwYlcg'> link</a>
+👉🏽Google says iPhone security flaws let websites hack away for years❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/google-says-iphone-security-flaws-let-websites-hack-them-for-years/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFq5T6LBqPEDgkNhudZTob_5BrHew'> link</a>
 
-👉🏿Global Market Share For Smart Speakers in Q2 Is Intriguing But It Doesn't Tell The Whole Story❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/kevinmurnane/2019/08/29/global-market-share-for-smart-speakers-in-q2-is-intriguing-but-it-doesnt-tell-the-whole-story/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNG30jH909bBKI96sw3KGVka0oV3Ew'> link</a>
+👉🏿WhatsApp Encryption Undone And Location Leaked — Why The Latest iPhone Hack Is Terrifying❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/thomasbrewster/2019/08/30/whatsapp-encryption-undone-and-location-leaked--why-the-latest-iphone-hack-is-terrifying/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEeZw7kI5E-fgc4LS7mR21gguKk6g'> link</a>
 
