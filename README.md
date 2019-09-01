@@ -1,20 +1,20 @@
-<b>Technology NEWS on Saturday, August 31st, 2019</b> 📡📡📡 
+<b>Technology NEWS on Sunday, September 1st, 2019</b> 📡📡📡 
 
-👉Alexa can tell you if someone breaks into your house❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/how-to/alexa-can-tell-you-if-someone-breaks-into-your-house/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEI6FUJenzsA2Azye82uNnOgqIgKg'> link</a>
+👉A Tesla Security Bug, Levandowski Indicted, and More Car News❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.wired.com/story/a-tesla-security-bug-levandowski-indicted-and-more-car-news&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGSyVMZSS_0Pp93N3MdL_a3gADGyg'> link</a>
 
-👉🏽iPhone 11, Apple Watch 5 and more: The final rumors❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/iphone-11-pro-apple-watch-5-final-rumors-apple-event-september/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGRC83cqQ7-s_k6Jd7o22A48734dg'> link</a>
+👉🏽Samsung's take on the world of 2069❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://newatlas.com/good-thinking/future-prediction-2069-samsung/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGyMCs-UrOc9AGoyWdGUnF2AMepiQ'> link</a>
 
-👉🏿Control PC: a vision for the future of real-time rendering?❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.eurogamer.net/articles/digitalfoundry-2019-control-pc-a-vision-for-next-gen-rendering&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNH658zDMbnFX88sBYhXWnsst10tSQ'> link</a>
+👉🏿Apple iOS 13 Launch Confirmed: 5 iPhone Security Features Coming This Month❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/kateoflahertyuk/2019/09/01/apple-ios-13-launch-confirmed-5-iphone-security-features-coming-this-month/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEtBt18tzVu6RaED3_PZZoFijARhw'> link</a>
 
-👉Bugatti: No Need For Special Requests – They Have Sold Out Shows❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://artofgears.com/2019/08/31/bugatti-friends-special-wants-welcomed-ferrari-centodieci/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFHdCsxQdnaeGGVpiP7lGMolAS1NA'> link</a>
+👉YouTube's new update is meant to help creators' concern for subscribers count❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.digitalinformationworld.com/2019/09/abbreviated-public-subscriber-counts-are-gradually-rolling-out-starting-next-week.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGzPjl-sZPP8WCNRqrafNzpCQmW_A'> link</a>
 
-👉🏽How Millennials Are Revolutionizing the Home Buying Process❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/megangorman/2019/08/31/how-millennials-are-revolutionizing-the-home-buying-process/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFavGa_6kAmPBtaqfgWNOeK5-z58g'> link</a>
+👉🏽Fitbit Versa 2 vs Apple Watch 4❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.techradar.com/news/fitbit-versa-2-vs-apple-watch-4&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHLz141l_Wl7DYfEr2LQlheOwiXiQ'> link</a>
 
-👉🏿Galaxy S10 vs. Galaxy S9, S10 Plus, S10E, S10 5G: What's new and what's different?❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/galaxy-s10-vs-galaxy-s9-s10-plus-s10e-s10-5g-specs-features-compare-camera-price-review-galaxy-fold-verizon-note-10/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEdQycEgTiybDMquWI2keVkyMy0KQ'> link</a>
+👉🏿A T-Mobile salesman told me Galaxy Note 10 just isn't worth it❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.zdnet.com/article/i-went-to-buy-a-galaxy-note-10-but-t-mobile-said-dont-do-it/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFE69AOx4uYQxPU_Qd_RaptZ7Brew'> link</a>
 
-👉Huawei Holding Back On Harmony OS, Wants Android For As Long As Possible❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.ibtimes.com/huawei-holding-back-harmony-os-wants-android-long-possible-2820442&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHLrukG68U-Dyq3HnK2jrSC4RSIgw'> link</a>
+👉It's official: the Huawei Mate 30 phones are launching on September 19❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.techradar.com/news/its-official-the-huawei-mate-30-phones-are-launching-on-september-19&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHkKF0gP2fuTHGP1FRp_3di8Uw5lg'> link</a>
 
-👉🏽Windows 10 May 2019 Update gets fixes for some long-standing bugs❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.techradar.com/news/windows-10-may-2019-update-gets-fixes-for-some-long-standing-bugs&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHk35Mt4_e_emrduBoTFC6Kpsmv4w'> link</a>
+👉🏽Amazon Alexa Can Now Keep Track Of People's Personal Belongings❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.techtimes.com/articles/245194/20190901/amazon-alexa-can-now-keep-track-of-peoples-personal-belongings.htm&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFi6OEaUd5rcGL_NaGO6nuP6tDXVA'> link</a>
 
-👉🏿Google Pixel 4's Leaked Images Show the Makers Were Inspired by Its Rival iPhone❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.entrepreneur.com/article/338864&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHM7EG6eB5zMimdx6xQBDXwhZkjLg'> link</a>
+👉🏿Note 10 specs vs. Note 10 Plus and Note 9: How to choose❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/note-10-specs-vs-note-10-plus-note-9-how-choose-whats-the-difference/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHpQK9bN3UOOiCAm0JpmJiIetOqcw'> link</a>
 
