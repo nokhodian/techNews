@@ -1,20 +1,20 @@
-<b>Technology NEWS on Sunday, September 1st, 2019</b> 📡📡📡 
+<b>Technology NEWS on Monday, September 2nd, 2019</b> 📡📡📡 
 
-👉A Tesla Security Bug, Levandowski Indicted, and More Car News❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.wired.com/story/a-tesla-security-bug-levandowski-indicted-and-more-car-news&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGSyVMZSS_0Pp93N3MdL_a3gADGyg'> link</a>
+👉'Cyberpunk 2077' News: CD Projekt Red Explains 3 Playstyles❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.ibtimes.com/cyberpunk-2077-news-cd-projekt-red-explains-3-playstyles-2821068&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHovOm77HvxgoUIra-m6NZ1FhLQ3Q'> link</a>
 
-👉🏽Samsung's take on the world of 2069❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://newatlas.com/good-thinking/future-prediction-2069-samsung/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGyMCs-UrOc9AGoyWdGUnF2AMepiQ'> link</a>
+👉🏽AMD Ryzen 3000 CPUs don't hit promised boost speeds in many cases, survey claims❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.techradar.com/news/amd-ryzen-3000-cpus-dont-hit-promised-boost-speeds-in-many-cases-survey-claims&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHBgxl6pSiRp7j0uwWamoY3zlbCRQ'> link</a>
 
-👉🏿Apple iOS 13 Launch Confirmed: 5 iPhone Security Features Coming This Month❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/kateoflahertyuk/2019/09/01/apple-ios-13-launch-confirmed-5-iphone-security-features-coming-this-month/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEtBt18tzVu6RaED3_PZZoFijARhw'> link</a>
+👉🏿Save Up To 40% On Select Anker Charging Accessories, Today Only❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.androidheadlines.com/2019/09/anker-charging-accessories-deal-discount-cheap-price.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEmpq5TERRAjMbI_Jw5gFbcRaIXJQ'> link</a>
 
-👉YouTube's new update is meant to help creators' concern for subscribers count❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.digitalinformationworld.com/2019/09/abbreviated-public-subscriber-counts-are-gradually-rolling-out-starting-next-week.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGzPjl-sZPP8WCNRqrafNzpCQmW_A'> link</a>
+👉Man of Medan: A fun follow-up to Until Dawn but leaves a lot to be desired❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://1428elm.com/2019/09/02/man-of-medan-game-review/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEEfmb1WpjcxGeYUFj4vhGx1pGblA'> link</a>
 
-👉🏽Fitbit Versa 2 vs Apple Watch 4❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.techradar.com/news/fitbit-versa-2-vs-apple-watch-4&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHLz141l_Wl7DYfEr2LQlheOwiXiQ'> link</a>
+👉🏽5G, laptops, streaming news and more at IFA 2019, Europe's biggest tech show❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/5g-laptops-streaming-news-and-more-at-ifa-2019-europes-biggest-tech-show/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHmNb9iyOemC2M8Vgni0d6_k3pDnw'> link</a>
 
-👉🏿A T-Mobile salesman told me Galaxy Note 10 just isn't worth it❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.zdnet.com/article/i-went-to-buy-a-galaxy-note-10-but-t-mobile-said-dont-do-it/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFE69AOx4uYQxPU_Qd_RaptZ7Brew'> link</a>
+👉🏿iPhone 11: Here's when Apple will announce the 2019 iPhones❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/iphone-11-heres-when-we-think-apple-will-announce-it-sept-10-2019-event/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGEVggr0K94hun_S_SbFDKZQPXGgQ'> link</a>
 
-👉It's official: the Huawei Mate 30 phones are launching on September 19❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.techradar.com/news/its-official-the-huawei-mate-30-phones-are-launching-on-september-19&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHkKF0gP2fuTHGP1FRp_3di8Uw5lg'> link</a>
+👉Microsoft: Flash will die on Windows 10's new Edge in line with Google Chrome❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.zdnet.com/article/microsoft-flash-will-die-on-windows-10s-new-edge-in-line-with-google-chrome/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHgnbQgGM0WE7sl9xTHj2nnuD8pRQ'> link</a>
 
-👉🏽Amazon Alexa Can Now Keep Track Of People's Personal Belongings❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.techtimes.com/articles/245194/20190901/amazon-alexa-can-now-keep-track-of-peoples-personal-belongings.htm&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFi6OEaUd5rcGL_NaGO6nuP6tDXVA'> link</a>
+👉🏽Save $850+ on this Alienware RTX 2080-spec gaming desktop, this Labor Day❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcgamer.com/save-dollar850-on-this-alienware-rtx-2080-spec-gaming-desktop-this-labor-day/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFz1K1MEgbmHYUz2N5XYCc4_me_Wg'> link</a>
 
-👉🏿Note 10 specs vs. Note 10 Plus and Note 9: How to choose❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/note-10-specs-vs-note-10-plus-note-9-how-choose-whats-the-difference/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHpQK9bN3UOOiCAm0JpmJiIetOqcw'> link</a>
+👉🏿Google Maps finally received the one feature that was missing from the mobile app❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://bgr.com/2019/09/02/google-maps-features-street-view-layer-available-on-android/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNE3pLbM7UOyKufkx4We9Dmvb1MQEg'> link</a>
 
