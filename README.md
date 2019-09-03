@@ -1,20 +1,20 @@
-<b>Technology NEWS on Monday, September 2nd, 2019</b> 📡📡📡 
+<b>Technology NEWS on Tuesday, September 3rd, 2019</b> 📡📡📡 
 
-👉'Cyberpunk 2077' News: CD Projekt Red Explains 3 Playstyles❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.ibtimes.com/cyberpunk-2077-news-cd-projekt-red-explains-3-playstyles-2821068&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHovOm77HvxgoUIra-m6NZ1FhLQ3Q'> link</a>
+👉OnePlus TV will have 8 speakers w/ Dolby Atmos, 50W, 'punchy bass'❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://9to5google.com/2019/09/03/oneplus-tv-speakers-dolby-atmos/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHL3PRkjZXCpvD87B6pfiMT-ZtZ7Q'> link</a>
 
-👉🏽AMD Ryzen 3000 CPUs don't hit promised boost speeds in many cases, survey claims❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.techradar.com/news/amd-ryzen-3000-cpus-dont-hit-promised-boost-speeds-in-many-cases-survey-claims&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHBgxl6pSiRp7j0uwWamoY3zlbCRQ'> link</a>
+👉🏽Steelseries Arctis 1 Wireless❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcmag.com/review/370426/steelseries-arctis-1-wireless&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGnbJuH9ahQXqgsrq-vB_dmlTrLaA'> link</a>
 
-👉🏿Save Up To 40% On Select Anker Charging Accessories, Today Only❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.androidheadlines.com/2019/09/anker-charging-accessories-deal-discount-cheap-price.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEmpq5TERRAjMbI_Jw5gFbcRaIXJQ'> link</a>
+👉🏿Fortnite patch notes 10.20 update: Zapper Trap, Floating Island returns and lots more❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.express.co.uk/entertainment/gaming/1173320/Fortnite-10-20-patch-notes-UPDATE-Zapper-Trap-Floating-Island-returns&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEJp3nHNehNelZtJp5nbSaQd2D6jA'> link</a>
 
-👉Man of Medan: A fun follow-up to Until Dawn but leaves a lot to be desired❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://1428elm.com/2019/09/02/man-of-medan-game-review/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEEfmb1WpjcxGeYUFj4vhGx1pGblA'> link</a>
+👉Galaxy Fold's new release date finally leaked, and it couldn't come at a worse time❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://bgr.com/2019/09/03/galaxy-folds-new-release-date-finally-leaked-and-it-couldnt-come-at-a-worse-time/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGWM2HLLdb2gKvPjsEufbaA43cBLA'> link</a>
 
-👉🏽5G, laptops, streaming news and more at IFA 2019, Europe's biggest tech show❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/5g-laptops-streaming-news-and-more-at-ifa-2019-europes-biggest-tech-show/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHmNb9iyOemC2M8Vgni0d6_k3pDnw'> link</a>
+👉🏽Firefox 69 ratchets up tracking protection, switching it on by default❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/firefox-69-ratchets-up-tracking-protection-switching-it-on-by-default/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHS7iqIq-jWLyFaw2Oa8RtOzV_yDA'> link</a>
 
-👉🏿iPhone 11: Here's when Apple will announce the 2019 iPhones❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/iphone-11-heres-when-we-think-apple-will-announce-it-sept-10-2019-event/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGEVggr0K94hun_S_SbFDKZQPXGgQ'> link</a>
+👉🏿Is the Apple Card pure titanium? Electron microscope scan reveals all…❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://9to5mac.com/2019/09/03/apple-card-pure-titanium/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGbwegm-7wz0LsOcANDMxBpzNhpGA'> link</a>
 
-👉Microsoft: Flash will die on Windows 10's new Edge in line with Google Chrome❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.zdnet.com/article/microsoft-flash-will-die-on-windows-10s-new-edge-in-line-with-google-chrome/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHgnbQgGM0WE7sl9xTHj2nnuD8pRQ'> link</a>
+👉iPhone 11 benchmark leak spills what few secrets were left❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://bgr.com/2019/09/03/iphone-11-release-date-soon-benchmark-leak-specs/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNG5XT1Jo5H0ExPPYQ95G0SsYKRpXA'> link</a>
 
-👉🏽Save $850+ on this Alienware RTX 2080-spec gaming desktop, this Labor Day❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcgamer.com/save-dollar850-on-this-alienware-rtx-2080-spec-gaming-desktop-this-labor-day/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFz1K1MEgbmHYUz2N5XYCc4_me_Wg'> link</a>
+👉🏽Monster Hunter World: Iceborne will introduce the angry ape Rajang post-launch❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcgamer.com/monster-hunter-world-iceborne-will-introduce-the-angry-ape-rajang-post-launch/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFtwpngZayu1Zd4Mlz7dF9Lj9jpvw'> link</a>
 
-👉🏿Google Maps finally received the one feature that was missing from the mobile app❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://bgr.com/2019/09/02/google-maps-features-street-view-layer-available-on-android/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNE3pLbM7UOyKufkx4We9Dmvb1MQEg'> link</a>
+👉🏿LG's mammoth 88-inch 8K OLED TV goes on sale❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.engadget.com/2019/09/03/lg-8k-oled-tv/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGf5smnAl2ulWurHEmUF5HFliA2PQ'> link</a>
 
