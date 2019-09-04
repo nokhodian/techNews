@@ -1,20 +1,20 @@
-<b>Technology NEWS on Tuesday, September 3rd, 2019</b> 📡📡📡 
+<b>Technology NEWS on Wednesday, September 4th, 2019</b> 📡📡📡 
 
-👉OnePlus TV will have 8 speakers w/ Dolby Atmos, 50W, 'punchy bass'❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://9to5google.com/2019/09/03/oneplus-tv-speakers-dolby-atmos/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHL3PRkjZXCpvD87B6pfiMT-ZtZ7Q'> link</a>
+👉Gears 5 Campaign: The Kotaku Review❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://kotaku.com/gears-5-campaign-the-kotaku-review-1837857324&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGGJ1qVa3Ff_xiTgtMY_t1auIm8vA'> link</a>
 
-👉🏽Steelseries Arctis 1 Wireless❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcmag.com/review/370426/steelseries-arctis-1-wireless&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGnbJuH9ahQXqgsrq-vB_dmlTrLaA'> link</a>
+👉🏽Magic Leap teams with Brainlab, SyncThink, and XRHealth for medical AR❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://venturebeat.com/2019/09/04/magic-leap-teams-with-brainlab-syncthink-and-xrhealth-for-medical-ar/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFKvtQ5w4-liwyiSf2ThmlNWCIpXQ'> link</a>
 
-👉🏿Fortnite patch notes 10.20 update: Zapper Trap, Floating Island returns and lots more❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.express.co.uk/entertainment/gaming/1173320/Fortnite-10-20-patch-notes-UPDATE-Zapper-Trap-Floating-Island-returns&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEJp3nHNehNelZtJp5nbSaQd2D6jA'> link</a>
+👉🏿Neura, a mobile app engagement analytics startup, raises $16 million Series B❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://techcrunch.com/2019/09/04/neura-a-mobile-app-engagement-analytics-startup-raises-16-million-series-b/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNG0_g9A87HxKtt3QYfzscE1Flkfjg'> link</a>
 
-👉Galaxy Fold's new release date finally leaked, and it couldn't come at a worse time❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://bgr.com/2019/09/03/galaxy-folds-new-release-date-finally-leaked-and-it-couldnt-come-at-a-worse-time/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGWM2HLLdb2gKvPjsEufbaA43cBLA'> link</a>
+👉Misty II begins shipping to crowdfunding backers❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://venturebeat.com/2019/09/04/misty-ii-begins-shipping-to-crowdfunding-backers/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHapmAnw1-1xbdVOMy4d08gf1-U1A'> link</a>
 
-👉🏽Firefox 69 ratchets up tracking protection, switching it on by default❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/firefox-69-ratchets-up-tracking-protection-switching-it-on-by-default/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHS7iqIq-jWLyFaw2Oa8RtOzV_yDA'> link</a>
+👉🏽Roku smart sound bar rocks built-in streaming for $180❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/roku-smart-sound-bar-rocks-built-in-streaming-for-180/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFbCW-XAjMr9bABZN304lhL6rKJXg'> link</a>
 
-👉🏿Is the Apple Card pure titanium? Electron microscope scan reveals all…❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://9to5mac.com/2019/09/03/apple-card-pure-titanium/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGbwegm-7wz0LsOcANDMxBpzNhpGA'> link</a>
+👉🏿Critical Android Warning As 1.25 Billion Smartphone Users Told To Update Now❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/daveywinder/2019/09/04/critical-android-warning-as-125-billion-smartphone-users-told-to-update-now/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHB7GMMSagFPDb1i739D_18Yv169A'> link</a>
 
-👉iPhone 11 benchmark leak spills what few secrets were left❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://bgr.com/2019/09/03/iphone-11-release-date-soon-benchmark-leak-specs/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNG5XT1Jo5H0ExPPYQ95G0SsYKRpXA'> link</a>
+👉Samsung debuts Exynos 980, a single-chip 5G modem, CPU, and GPU❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://venturebeat.com/2019/09/04/samsung-debuts-exynos-980-a-single-chip-5g-modem-cpu-and-gpu/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEj1RXWRHiEEvC5luMy4Ox8H6SYtg'> link</a>
 
-👉🏽Monster Hunter World: Iceborne will introduce the angry ape Rajang post-launch❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcgamer.com/monster-hunter-world-iceborne-will-introduce-the-angry-ape-rajang-post-launch/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFtwpngZayu1Zd4Mlz7dF9Lj9jpvw'> link</a>
+👉🏽New Acer Laptops Announced At IFA Trade Show❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/simonrockman1/2019/09/04/new-acer-laptops-announced-at-ifa-trade-show/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHuhyfFXJ8bbUXju0leipzZ7CT7lA'> link</a>
 
-👉🏿LG's mammoth 88-inch 8K OLED TV goes on sale❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.engadget.com/2019/09/03/lg-8k-oled-tv/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGf5smnAl2ulWurHEmUF5HFliA2PQ'> link</a>
+👉🏿Logitech MX Master 3❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcmag.com/review/370502/logitech-mx-master-3&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFHcJxiNlmW5mGsRK50u5kzNnIugw'> link</a>
 
