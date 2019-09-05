@@ -1,20 +1,20 @@
-<b>Technology NEWS on Wednesday, September 4th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Thursday, September 5th, 2019</b> 📡📡📡 
 
-👉Gears 5 Campaign: The Kotaku Review❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://kotaku.com/gears-5-campaign-the-kotaku-review-1837857324&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGGJ1qVa3Ff_xiTgtMY_t1auIm8vA'> link</a>
+👉iOS 13 release date revealed: Here's when your iPhone will get Dark Mode❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.phonearena.com/news/iOS-13-release-date-revealed-Heres-when-your-iPhone-will-get-dark-mode_id118705&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEjWz5c5sWry4ZSHRFR7mwqY_xkXA'> link</a>
 
-👉🏽Magic Leap teams with Brainlab, SyncThink, and XRHealth for medical AR❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://venturebeat.com/2019/09/04/magic-leap-teams-with-brainlab-syncthink-and-xrhealth-for-medical-ar/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFKvtQ5w4-liwyiSf2ThmlNWCIpXQ'> link</a>
+👉🏽Sonos' first portable speaker is the $399 Move❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/9/5/20847533/sonos-move-bluetooth-wireless-speaker-price-specs-features&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNF7K2hWtKVdIXENdPQtXpshNcmHMg'> link</a>
 
-👉🏿Neura, a mobile app engagement analytics startup, raises $16 million Series B❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://techcrunch.com/2019/09/04/neura-a-mobile-app-engagement-analytics-startup-raises-16-million-series-b/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNG0_g9A87HxKtt3QYfzscE1Flkfjg'> link</a>
+👉🏿TCL gets serious about making a name for itself in phones with the new Plex❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/9/5/20850701/tcl-plex-android-phone-announced-features-specs-pricing&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFOPOfCF-U5axq5zkBgPWxDzGwJ1w'> link</a>
 
-👉Misty II begins shipping to crowdfunding backers❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://venturebeat.com/2019/09/04/misty-ii-begins-shipping-to-crowdfunding-backers/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHapmAnw1-1xbdVOMy4d08gf1-U1A'> link</a>
+👉Security flaws in GPS trackers are leaking location of 600K kids and seniors❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/gps-tracker-security-flaws-expose-location-of-600k-users/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGHy2vLdLSVMJSJa-y0p-dkVQnplg'> link</a>
 
-👉🏽Roku smart sound bar rocks built-in streaming for $180❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/roku-smart-sound-bar-rocks-built-in-streaming-for-180/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFbCW-XAjMr9bABZN304lhL6rKJXg'> link</a>
+👉🏽'Fortnite' No Dancing Sign Locations: Where To Destroy 3 'No Dancing' Signs (Season 10)❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/erikkain/2019/09/05/fortnite-no-dancing-sign-locations-where-to-destroy-3-no-dancing-signs-season-10/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHZl711J8jEOVHtfpZFD4GAMZ-F5g'> link</a>
 
-👉🏿Critical Android Warning As 1.25 Billion Smartphone Users Told To Update Now❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/daveywinder/2019/09/04/critical-android-warning-as-125-billion-smartphone-users-told-to-update-now/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHB7GMMSagFPDb1i739D_18Yv169A'> link</a>
+👉🏿Windows 10 1903: Buggy update slows PCs, breaks Desktop Search, says Microsoft❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.zdnet.com/article/windows-10-1903-buggy-update-slows-pcs-breaks-desktop-search-says-microsoft/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFmVhRthSxlOhMnmz_RzFGnPDIHiw'> link</a>
 
-👉Samsung debuts Exynos 980, a single-chip 5G modem, CPU, and GPU❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://venturebeat.com/2019/09/04/samsung-debuts-exynos-980-a-single-chip-5g-modem-cpu-and-gpu/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEj1RXWRHiEEvC5luMy4Ox8H6SYtg'> link</a>
+👉Puma's first smartwatch was designed for athletes❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.engadget.com/2019/09/05/puma-first-smartwatch/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNG7uvwEggoZmb0Ct2kcoRJ2r2mcqw'> link</a>
 
-👉🏽New Acer Laptops Announced At IFA Trade Show❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/simonrockman1/2019/09/04/new-acer-laptops-announced-at-ifa-trade-show/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHuhyfFXJ8bbUXju0leipzZ7CT7lA'> link</a>
+👉🏽Apple's new iPhone challenge: Making modest upgrades sound like must-haves❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/apples-new-iphone-challenge-making-modest-upgrades-sound-sexy/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFgxNHvb-9y196gf3t_afIWSqB8Zw'> link</a>
 
-👉🏿Logitech MX Master 3❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcmag.com/review/370502/logitech-mx-master-3&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFHcJxiNlmW5mGsRK50u5kzNnIugw'> link</a>
+👉🏿Philips Unveils Two New Premium OLED TVs❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/johnarcher/2019/09/05/philips-unveils-two-new-premium-oled-tvs/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNECCeAqPRP-b4tcnnYqFg8dF4TwfQ'> link</a>
 
