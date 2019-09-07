@@ -1,20 +1,20 @@
-<b>Technology NEWS on Friday, September 6th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Saturday, September 7th, 2019</b> 📡📡📡 
 
-👉Iceborne is exactly what Monster Hunter World needed❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/9/6/20852558/monster-hunter-world-iceborne-review-ps4-xbox&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGLAgMZg6sS1WHZcUeZtIqaUb1eHw'> link</a>
+👉Apple programs Siri to not bother its pretty little head with questions about feminism❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theregister.co.uk/2019/09/07/apples_siri_feminism/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHnRi6WuKTTvg08t7ZlZznbXzYIPg'> link</a>
 
-👉🏽Mi Charge Turbo Wireless Charging Tech to Launch on September 19, Xiaomi Confirms❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://gadgets.ndtv.com/mobiles/news/mi-charge-turbo-wireless-charging-tech-september-9-launch-weibo-company-confirms-2096841&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEvGkE1Dd6TEw-tWyQ9ShX-v4F3Hg'> link</a>
+👉🏽Apple takes flak for disputing iOS security bombshell dropped by Google❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://arstechnica.com/information-technology/2019/09/apple-takes-flak-for-disputing-ios-security-bombshell-dropped-by-google/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHFGXGa-mVMdXupaM2bMQjHiwpC9w'> link</a>
 
-👉🏿Vulnerability lets text messages steal emails from Android phones❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.engadget.com/2019/09/06/sms-phishing-attack-android/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHDGrAcWjXqbaiYUW-HmcBHmw1ijw'> link</a>
+👉🏿Vivo Z1x vs Redmi Note 7 Pro vs Realme X: Price in India, Specifications Compared❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://gadgets.ndtv.com/mobiles/features/vivo-z1x-vs-redmi-note-7-pro-vs-realme-x-price-in-india-specifications-comparison-2097256&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNG9fZPjAtzJJrGjaur5m1XkkCKpkQ'> link</a>
 
-👉Unlocked Samsung Galaxy A50 hits US Sept. 20, starts at $350❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/samsung-galaxy-a50-unlocked-us-release-date-price-a20-a10e-tab-s6-watch-active-2/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNErkJ9fuN5oaF_8jCTTi2cw61UutA'> link</a>
+👉Apple will live stream its iPhone 11 event on YouTube for the first time❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/9/7/20854050/apple-iphone-11-event-youtube-stream&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFfSti2keIMJa4hl-DQgKpKlBRCZA'> link</a>
 
-👉🏽Everything to expect from Apple's iPhone event❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/9/6/20851690/apple-event-2019-iphone-11-rumors-preview-watch-ios-13-ipados-ipad&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHX2VsOCS3LVOvyrBmbla7q3ZhYDQ'> link</a>
+👉🏽Why iOS 13 Will Be A Security Nightmare For Millions Of Apple iPhone Users❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/zakdoffman/2019/09/07/why-ios13-will-be-a-security-nightmare-for-millions-of-apple-iphone-users/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGutxFwRgyo18jhDjbPKV1TGKFMYw'> link</a>
 
-👉🏿'NBA 2K20' Tips: 5 Things You Should Know Before Creating Your MyPlayer❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/brianmazique/2019/09/06/nba-2k20-tips-5-things-you-should-know-before-creating-your-myplayer/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHP3xfDL0BZLXatSCq6wO8Rd-b07g'> link</a>
+👉🏿Realme XT Pro with 90Hz display? Realme confirms it, says will be cheaper than OnePlus 7T❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.indiatoday.in/technology/news/story/realme-xt-pro-with-90hz-display-realme-confirms-it-says-will-be-cheaper-than-oneplus-7t-1596653-2019-09-07&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNG5q4FXcyzj0JGmMs-AK57WxlREcA'> link</a>
 
-👉'Destiny 2' Reveals All Its Shadowkeep Armor Sets And Their Sources❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/paultassi/2019/09/06/destiny-2-reveals-all-its-shadowkeep-armor-sets-and-their-sources/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGHR5T46DZFSUKOnDNUMPzJYBQkmw'> link</a>
+👉Walkman Is Making a Come Back & We Can't Help but Feel Nostalgic❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.entrepreneur.com/article/339210&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGehQ880bBlrY51SsgCbAWxvIYatg'> link</a>
 
-👉🏽Motorola One Zoom is the most beautiful phone I've seen in years❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://mashable.com/article/motorola-one-zoom/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFyWCcjngzSK6u3TaIOUOuscA4sBw'> link</a>
+👉🏽Here are 8 factors to look for while hiring a mobile app development company❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.entrepreneur.com/article/339208&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEKhN3L5YhVO6fmppL_Q2kUkpkC5g'> link</a>
 
-👉🏿Apple reportedly tweaked Siri's responses to sensitive subjects like feminism, #MeToo❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/apple-reportedly-tweaked-siris-responses-to-sensitive-subjects-like-feminism-metoo/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNG-VM_fjSJORBXcppPgpZUyiRxwKA'> link</a>
+👉🏿Puma's Self-lacing Shoe & Smart Watch Are Perfect Example of Tech Innovation❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.entrepreneur.com/article/339186&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGPv8G88T0I5aN9nIEDzrwdAc3y7A'> link</a>
 
