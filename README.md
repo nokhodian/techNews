@@ -1,20 +1,20 @@
-<b>Technology NEWS on Saturday, September 7th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Sunday, September 8th, 2019</b> 📡📡📡 
 
-👉Apple programs Siri to not bother its pretty little head with questions about feminism❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theregister.co.uk/2019/09/07/apples_siri_feminism/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHnRi6WuKTTvg08t7ZlZznbXzYIPg'> link</a>
+👉EA breaks world record for most downvoted Reddit comment❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.slashgear.com/ea-breaks-world-record-for-most-downvoted-reddit-comment-08590446/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFXsCNjf_b0qXUmPB9DioUxFo-tsg'> link</a>
 
-👉🏽Apple takes flak for disputing iOS security bombshell dropped by Google❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://arstechnica.com/information-technology/2019/09/apple-takes-flak-for-disputing-ios-security-bombshell-dropped-by-google/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHFGXGa-mVMdXupaM2bMQjHiwpC9w'> link</a>
+👉🏽Xperia 5 v Xperia 1 - Cheaper Sony flagship is what fans may have been waiting for❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.express.co.uk/life-style/science-technology/1175355/Sony-Xperia-5-release-news-v-Xperia-1-what-difference&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFaFxu8tffhVANZEwsPKxVQ_258Og'> link</a>
 
-👉🏿Vivo Z1x vs Redmi Note 7 Pro vs Realme X: Price in India, Specifications Compared❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://gadgets.ndtv.com/mobiles/features/vivo-z1x-vs-redmi-note-7-pro-vs-realme-x-price-in-india-specifications-comparison-2097256&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNG9fZPjAtzJJrGjaur5m1XkkCKpkQ'> link</a>
+👉🏿Honor's latest app helps the visually impaired read documents and roadsigns❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://thenextweb.com/apps/2019/09/08/honors-latest-app-helps-the-visually-impaired-read-documents-and-roadsigns/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNF69v8WdObQJS1MrLbM_dlGu5lKig'> link</a>
 
-👉Apple will live stream its iPhone 11 event on YouTube for the first time❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/9/7/20854050/apple-iphone-11-event-youtube-stream&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFfSti2keIMJa4hl-DQgKpKlBRCZA'> link</a>
+👉Sony to produce a special 40th anniversary Walkman❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://wtop.com/music/2019/09/sony-to-produce-a-special-40th-anniversary-walkman/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEy1LT78U3uCQXmI9aj7bxWUA6a7g'> link</a>
 
-👉🏽Why iOS 13 Will Be A Security Nightmare For Millions Of Apple iPhone Users❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/zakdoffman/2019/09/07/why-ios13-will-be-a-security-nightmare-for-millions-of-apple-iphone-users/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGutxFwRgyo18jhDjbPKV1TGKFMYw'> link</a>
+👉🏽iPhone 11, Apple Watch 5: The final rumors❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/iphone-11-apple-watch-5-final-rumors-2019-september-event/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGX-SGuiNASs_SDTbO-bLpSXZ4Tuw'> link</a>
 
-👉🏿Realme XT Pro with 90Hz display? Realme confirms it, says will be cheaper than OnePlus 7T❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.indiatoday.in/technology/news/story/realme-xt-pro-with-90hz-display-realme-confirms-it-says-will-be-cheaper-than-oneplus-7t-1596653-2019-09-07&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNG5q4FXcyzj0JGmMs-AK57WxlREcA'> link</a>
+👉🏿First Drive: Why the 2020 Lincoln Aviator Elevates American-Made SUVs❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.yahoo.com/lifestyle/first-drive-why-2020-lincoln-110004034.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNECz8ngxm2amI83TcL-LKapd3S05g'> link</a>
 
-👉Walkman Is Making a Come Back & We Can't Help but Feel Nostalgic❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.entrepreneur.com/article/339210&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGehQ880bBlrY51SsgCbAWxvIYatg'> link</a>
+👉Galaxy Fold relaunches in September, but it's not the only foldable phone coming❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/galaxy-fold-relaunches-in-september-not-the-only-foldable-phone-coming/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEjQfqdpFepxk8C1rnilmDDpl3BSQ'> link</a>
 
-👉🏽Here are 8 factors to look for while hiring a mobile app development company❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.entrepreneur.com/article/339208&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEKhN3L5YhVO6fmppL_Q2kUkpkC5g'> link</a>
+👉🏽Weekly Tech Recap: JioFiber Launch, Android 10 Release, Apple iPhone Event and More❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.news18.com/news/tech/weekly-tech-recap-jiofiber-launch-android-10-release-apple-iphone-event-and-more-2301221.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEcJ9-nDFy1Ht6LPDP-h8i6q71vlA'> link</a>
 
-👉🏿Puma's Self-lacing Shoe & Smart Watch Are Perfect Example of Tech Innovation❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.entrepreneur.com/article/339186&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGPv8G88T0I5aN9nIEDzrwdAc3y7A'> link</a>
+👉🏿Android 10: 8 of the best features and how to use them❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/how-to/android-10-8-of-the-best-features-and-how-to-use-them/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGIbQS08oaP7YJdpWxQgUJFhwQmDA'> link</a>
 
