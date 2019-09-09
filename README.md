@@ -1,20 +1,20 @@
-<b>Technology NEWS on Sunday, September 8th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Monday, September 9th, 2019</b> 📡📡📡 
 
-👉EA breaks world record for most downvoted Reddit comment❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.slashgear.com/ea-breaks-world-record-for-most-downvoted-reddit-comment-08590446/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFXsCNjf_b0qXUmPB9DioUxFo-tsg'> link</a>
+👉Microsoft unveils redesigned To Do app that will replace Wunderlist❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/9/9/20856625/microsoft-to-do-app-new-design-wunderlist-replacement&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGQX8FkPereZ_P10-lZBBrWKp4ztA'> link</a>
 
-👉🏽Xperia 5 v Xperia 1 - Cheaper Sony flagship is what fans may have been waiting for❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.express.co.uk/life-style/science-technology/1175355/Sony-Xperia-5-release-news-v-Xperia-1-what-difference&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFaFxu8tffhVANZEwsPKxVQ_258Og'> link</a>
+👉🏽Fitbit Versa 2 review: smart fitness tracker, dumb smartwatch❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/9/9/20855458/fitbit-versa-2-review-fitness-tracker-smartwatch-price-specs-features&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGPRdR-wj4C7rFyI65PCVBAPdYCgQ'> link</a>
 
-👉🏿Honor's latest app helps the visually impaired read documents and roadsigns❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://thenextweb.com/apps/2019/09/08/honors-latest-app-helps-the-visually-impaired-read-documents-and-roadsigns/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNF69v8WdObQJS1MrLbM_dlGu5lKig'> link</a>
+👉🏿Panasonic Toughbook 55❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcmag.com/review/370604/panasonic-toughbook-55&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNF5-Vugl3fglLyhLfdZEWBJfC67wA'> link</a>
 
-👉Sony to produce a special 40th anniversary Walkman❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://wtop.com/music/2019/09/sony-to-produce-a-special-40th-anniversary-walkman/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEy1LT78U3uCQXmI9aj7bxWUA6a7g'> link</a>
+👉Will Apple justify the iPhone 11's camera bump?❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/9/9/20853477/apple-event-2019-iphone-11-camera-bump-wide-angle-telephoto-dslr-rumors-expectations&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFWzyzEJRTH6gHys1-kgo8z7hsayw'> link</a>
 
-👉🏽iPhone 11, Apple Watch 5: The final rumors❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/iphone-11-apple-watch-5-final-rumors-2019-september-event/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGX-SGuiNASs_SDTbO-bLpSXZ4Tuw'> link</a>
+👉🏽Sony says you've been calling the PlayStation's X button the wrong thing for decades❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://metro.co.uk/2019/09/09/sony-says-calling-playstations-x-button-wrong-thing-decades-10711192/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFthLYSVQBtmwh2kx4zI5a41mzGyQ'> link</a>
 
-👉🏿First Drive: Why the 2020 Lincoln Aviator Elevates American-Made SUVs❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.yahoo.com/lifestyle/first-drive-why-2020-lincoln-110004034.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNECz8ngxm2amI83TcL-LKapd3S05g'> link</a>
+👉🏿Drivetime nabs $11M from Makers Fund, Amazon and Google to build voice-based games for drivers❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://techcrunch.com/2019/09/09/drivetime-nabs-11m-from-makers-fund-amazon-and-google-to-build-voice-based-games-for-drivers/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHA81lu4wWsRrF2_wF7MCrc9TBpsA'> link</a>
 
-👉Galaxy Fold relaunches in September, but it's not the only foldable phone coming❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/galaxy-fold-relaunches-in-september-not-the-only-foldable-phone-coming/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEjQfqdpFepxk8C1rnilmDDpl3BSQ'> link</a>
+👉Apple Adjusts App Store Algorithm After Realizing Many Apple Apps Dominate Search Results❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.macrumors.com/2019/09/09/apple-adjusts-app-store-search-algorithm/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNE2w3gjUAP1R4xWFzr82DN1IU28lA'> link</a>
 
-👉🏽Weekly Tech Recap: JioFiber Launch, Android 10 Release, Apple iPhone Event and More❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.news18.com/news/tech/weekly-tech-recap-jiofiber-launch-android-10-release-apple-iphone-event-and-more-2301221.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEcJ9-nDFy1Ht6LPDP-h8i6q71vlA'> link</a>
+👉🏽Arcade1Up's Street Fighter arcade cabinet hits an all-time-low $187.50❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/arcade1ups-street-fighter-arcade-cabinet-hits-an-all-time-low-187-50/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFrVwk_cOQhXz4WzwyP2u4IYi2PDw'> link</a>
 
-👉🏿Android 10: 8 of the best features and how to use them❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/how-to/android-10-8-of-the-best-features-and-how-to-use-them/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGIbQS08oaP7YJdpWxQgUJFhwQmDA'> link</a>
+👉🏿Summer Pattern Hangs On A While Longer❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.wbko.com/content/news/Summer-Pattern-Hangs-On-A-While-Longer-559809371.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHrZmnHSg24EM-_i5nsqrL5BKqlRQ'> link</a>
 
