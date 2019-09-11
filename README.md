@@ -1,20 +1,20 @@
-<b>Technology NEWS on Tuesday, September 10th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Wednesday, September 11th, 2019</b> 📡📡📡 
 
-👉The 'Borderlands 3' Review Situation Is Confusing, But Not Sinister❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/paultassi/2019/09/10/the-borderlands-3-review-situation-is-confusing-but-not-sinister/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGLNeIRMg849l3HIkkxkVtocqmAMg'> link</a>
+👉'Apex Legends' Leak Reveals Season 3 Battle Pass, Fire & Ice Name Before Release❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.newsweek.com/apex-legends-leak-season-3-battle-pass-fire-ice-name-release-1458745&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHWwVWaeycLo5dBULOJq7P7AQ_gMw'> link</a>
 
-👉🏽The Walking Dead: The Telltale Definitive Series is out now❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcgamer.com/uk/the-walking-dead-the-telltale-definitive-series-is-out-now/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFYo-nA0IIZddFQTjWPe15Fnr3auA'> link</a>
+👉🏽Fire Emblem: Three Houses update adds 'Maddening' difficulty❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://venturebeat.com/2019/09/11/fire-emblem-three-houses-update-adds-maddening-difficulty/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFvG9tsH0UhZ4NIsoyD5wLOTIiZNQ'> link</a>
 
-👉🏿MIT's color-changing ink could let you customize your shoes❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.engadget.com/2019/09/10/mit-csail-reprogrammable-ink-changes-color/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGN07oO8zAwYM02NvHynitrLNHavw'> link</a>
+👉🏿The 3 best and worst features of the iPhone 11 Pro and iPhone 11 Pro Max❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/9/11/20859743/iphone-11-max-pro-features-best-worst-camera-battery-life-colors-price-apple&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFT4DtFSdwi7KpIY3oWS36ssj3exg'> link</a>
 
-👉Mozilla's Firefox Test Pilot Program relaunches with a 'Private Network' extension❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.engadget.com/2019/09/10/firefox-test-pilot-private-network/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFMR4R25iLeW6ZBTxS04dPFnZqsvQ'> link</a>
+👉Redmi 8A allegedly spotted on TENAA; could feature single rear-facing camera and dot-notch display❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.91mobiles.com/hub/redmi-8a-tenaa-camera-details-dot-notch-display/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNE2nFk_47n9NKuOxob8Tz5EFWGv4Q'> link</a>
 
-👉🏽Facebook really hopes iOS 13 won't scare you off using its location tracking❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/facebook-talks-up-location-tracking-ahead-of-new-iphone-privacy-feature/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGuQTwynxOSPWapg5LVMXYbUnCGvA'> link</a>
+👉🏽New iPhone's 'trypophobic' design disturbs people with a fear of holes❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnn.com/2019/09/11/health/trypophobia-iphone-wellness-intl-scli/index.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFi_nyggMRmnYAjswapCpoT8cleeQ'> link</a>
 
-👉🏿Every concrete fact we know about the much-hyped OnePlus TV, all in one place❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.businessinsider.com/oneplus-tv-specs-android-tv-qled-dolby-vision-remote-2019-9&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFXrG_Db9peCGo_d4-blSfasWmRXw'> link</a>
+👉🏿How to remove location data from your iPhone photos in iOS 13❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.digitaltrends.com/mobile/how-to-remove-location-data-from-iphone-photos-in-ios-13/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFWVymv3XrHcdEYGr7EA2b2slI1jw'> link</a>
 
-👉Microsoft unveils new version of its To Do app❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://gulfnews.com/technology/microsoft-unveils-new-version-of-its-to-do-app-1.1568119735368&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGtl17t7MkYHj5JcFIU1ocbt-h0DA'> link</a>
+👉Sony shocks gamers with Playstation revelation❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.bbc.com/news/technology-49662096&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEMuA7SbE0kFQBw_WTxnv63_O0MCw'> link</a>
 
-👉🏽The Neo Geo Arcade Stick Pro Has 20 SNK Games Built-In❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://kotaku.com/the-neo-geo-arcade-stick-pro-has-20-snk-games-built-in-1838005111&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNG_H0hFsLXlG368pGJ4HreVLwAsZg'> link</a>
+👉🏽New Pixel 4 Leak Shows What You Can Do With Motion Sense❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.tomsguide.com/news/new-pixel-4-leak-shows-what-you-can-do-with-motion-sense&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEc189NWlBbP-c3bA1xko9v-xsYsQ'> link</a>
 
-👉🏿Scientists find biology's optimal 'molecular alphabet' may be preordained❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.sciencedaily.com/releases/2019/09/190910080017.htm&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNF6Sk-hiIRgki9pF-o2QfKusuWK-g'> link</a>
+👉🏿'NBA 2K20' Best OP Badges for Finishing, Playmaking, Shooting & Defense❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.newsweek.com/nba-2k20-best-op-badges-finishing-playmaking-shooting-defense-1458727&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFLOebNrXmIOuTjAjSe5LKN4gkCKQ'> link</a>
 
