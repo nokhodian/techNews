@@ -1,20 +1,20 @@
-<b>Technology NEWS on Wednesday, September 11th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Thursday, September 12th, 2019</b> 📡📡📡 
 
-👉'Apex Legends' Leak Reveals Season 3 Battle Pass, Fire & Ice Name Before Release❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.newsweek.com/apex-legends-leak-season-3-battle-pass-fire-ice-name-release-1458745&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHWwVWaeycLo5dBULOJq7P7AQ_gMw'> link</a>
+👉Sega Genesis Mini review: the best tiny console yet❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/9/12/20861085/sega-genesis-console-retro-mini-review-launch-games&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFnVnaMm96vw-2wCB0GDEsKDUFaog'> link</a>
 
-👉🏽Fire Emblem: Three Houses update adds 'Maddening' difficulty❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://venturebeat.com/2019/09/11/fire-emblem-three-houses-update-adds-maddening-difficulty/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFvG9tsH0UhZ4NIsoyD5wLOTIiZNQ'> link</a>
+👉🏽Watch nearly an hour of new Death Stranding footage❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/9/12/20862338/death-stranding-story-gameplay-trailers-tgs-2019-hideo-kojima&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFtaYtV18wJpWfZ2m6Hr9_wPlgoxw'> link</a>
 
-👉🏿The 3 best and worst features of the iPhone 11 Pro and iPhone 11 Pro Max❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/9/11/20859743/iphone-11-max-pro-features-best-worst-camera-battery-life-colors-price-apple&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFT4DtFSdwi7KpIY3oWS36ssj3exg'> link</a>
+👉🏿Improbable acquires Scavengers developer Midwinter Entertainment❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://venturebeat.com/2019/09/12/improbable-acquires-scavengers-developer-midwinter-entertainment/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHdcf4b9ABYRSYkvwV6N_NfUGZ_7A'> link</a>
 
-👉Redmi 8A allegedly spotted on TENAA; could feature single rear-facing camera and dot-notch display❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.91mobiles.com/hub/redmi-8a-tenaa-camera-details-dot-notch-display/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNE2nFk_47n9NKuOxob8Tz5EFWGv4Q'> link</a>
+👉Fortnite's 'Team Spirit' Mission: How To Pet A Teammate's Pet❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/davidthier/2019/09/12/fortnites-team-spirit-mission-how-to-pet-a-teammates-pet/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGyoCnRxGxdzCn9oBXPffGnhxWlEg'> link</a>
 
-👉🏽New iPhone's 'trypophobic' design disturbs people with a fear of holes❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnn.com/2019/09/11/health/trypophobia-iphone-wellness-intl-scli/index.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFi_nyggMRmnYAjswapCpoT8cleeQ'> link</a>
+👉🏽Google advertising practices targeted in antitrust probe❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.financialexpress.com/industry/technology/google-advertising-practices-targeted-in-antitrust-probe/1704455/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEBaxHI69-wjYbSU36JEnn5-Jy3Bw'> link</a>
 
-👉🏿How to remove location data from your iPhone photos in iOS 13❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.digitaltrends.com/mobile/how-to-remove-location-data-from-iphone-photos-in-ios-13/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFWVymv3XrHcdEYGr7EA2b2slI1jw'> link</a>
+👉🏿The best ways to trade in your old smartphone so you can upgrade to the iPhone 11❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.businessinsider.com/apple-iphone-smartphone-trade-in-best-deals-swappa-gazelle-2019-9&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFQcicg-Ki3PS0_RizLQJ5y85aDGA'> link</a>
 
-👉Sony shocks gamers with Playstation revelation❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.bbc.com/news/technology-49662096&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEMuA7SbE0kFQBw_WTxnv63_O0MCw'> link</a>
+👉Firefox paid support: Enterprise premium starts at $10 per installation, says Mozilla❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.zdnet.com/article/firefox-paid-support-enterprise-premium-starts-at-10-per-installation-says-mozilla/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGYSOMX-shXGuXLu9ifTs3j9c5dUw'> link</a>
 
-👉🏽New Pixel 4 Leak Shows What You Can Do With Motion Sense❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.tomsguide.com/news/new-pixel-4-leak-shows-what-you-can-do-with-motion-sense&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEc189NWlBbP-c3bA1xko9v-xsYsQ'> link</a>
+👉🏽UK officials call for loot boxes to be regulated like gambling❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.engadget.com/2019/09/12/uk-government-loot-boxes-regulation/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHxM4UB3Yi4IKK5QsN6i2ro6QmsnA'> link</a>
 
-👉🏿'NBA 2K20' Best OP Badges for Finishing, Playmaking, Shooting & Defense❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.newsweek.com/nba-2k20-best-op-badges-finishing-playmaking-shooting-defense-1458727&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFLOebNrXmIOuTjAjSe5LKN4gkCKQ'> link</a>
+👉🏿Gmail App's Dark Theme Is Finally Rolling Out❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.extremetech.com/mobile/298255-gmail-apps-dark-theme-is-finally-rolling-out&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNECFkvqDDbiej2OMxQNFJk8Q8AgIA'> link</a>
 
