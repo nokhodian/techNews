@@ -1,20 +1,20 @@
-<b>Technology NEWS on Thursday, September 12th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Friday, September 13th, 2019</b> 📡📡📡 
 
-👉Sega Genesis Mini review: the best tiny console yet❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/9/12/20861085/sega-genesis-console-retro-mini-review-launch-games&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFnVnaMm96vw-2wCB0GDEsKDUFaog'> link</a>
+👉NHL 20 Dev On Bringing Battle Royale To Ice Hockey And What's New In Pond Hockey This Year❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.gamespot.com/articles/nhl-20-dev-on-bringing-battle-royale-to-ice-hockey/1100-6469795/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFgClCAUHv5uvcQeRY919bZA0sLfQ'> link</a>
 
-👉🏽Watch nearly an hour of new Death Stranding footage❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/9/12/20862338/death-stranding-story-gameplay-trailers-tgs-2019-hideo-kojima&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFtaYtV18wJpWfZ2m6Hr9_wPlgoxw'> link</a>
+👉🏽Sakurai acknowledges Iwata in Japan Game Awards speech❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.videogameschronicle.com/news/sakurai-acknowledges-iwata-in-japan-game-awards-speech/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEMt54ijRvF1Z6i1sp9cefAb6VloQ'> link</a>
 
-👉🏿Improbable acquires Scavengers developer Midwinter Entertainment❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://venturebeat.com/2019/09/12/improbable-acquires-scavengers-developer-midwinter-entertainment/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHdcf4b9ABYRSYkvwV6N_NfUGZ_7A'> link</a>
+👉🏿Here's The Best 'Borderlands 3' Character For Solo Players❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/paultassi/2019/09/13/heres-the-best-borderlands-3-character-for-solo-players/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNE7WleK2899KiH4Hr9oYPfHTCra8Q'> link</a>
 
-👉Fortnite's 'Team Spirit' Mission: How To Pet A Teammate's Pet❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/davidthier/2019/09/12/fortnites-team-spirit-mission-how-to-pet-a-teammates-pet/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGyoCnRxGxdzCn9oBXPffGnhxWlEg'> link</a>
+👉Windows 10 1903: Microsoft details search fix as new update bug hits❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.zdnet.com/article/windows-10-1903-microsoft-details-search-fix-as-new-update-bug-hits/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFXzpSn5-5rFAdbnRYXBRrNRtzmZQ'> link</a>
 
-👉🏽Google advertising practices targeted in antitrust probe❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.financialexpress.com/industry/technology/google-advertising-practices-targeted-in-antitrust-probe/1704455/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEBaxHI69-wjYbSU36JEnn5-Jy3Bw'> link</a>
+👉🏽Amazon Echo Wall Clock review❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.techradar.com/uk/reviews/amazon-echo-wall-clock-review&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGNL0NbOmnEfcoiBPYMFyoKQk37vA'> link</a>
 
-👉🏿The best ways to trade in your old smartphone so you can upgrade to the iPhone 11❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.businessinsider.com/apple-iphone-smartphone-trade-in-best-deals-swappa-gazelle-2019-9&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFQcicg-Ki3PS0_RizLQJ5y85aDGA'> link</a>
+👉🏿News Analysis: Apple's Arcade video game service seeks to upend another business model❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.latimes.com/business/technology/story/2019-09-12/apples-arcade-video-game-service-seeks-to-upend-another-business-model&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGLG1gtBA9RV1AEmfZCbP1IdGWVKg'> link</a>
 
-👉Firefox paid support: Enterprise premium starts at $10 per installation, says Mozilla❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.zdnet.com/article/firefox-paid-support-enterprise-premium-starts-at-10-per-installation-says-mozilla/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGYSOMX-shXGuXLu9ifTs3j9c5dUw'> link</a>
+👉iPhone 11 and 11 Pro preorders are live: Here's how to buy Apple's new phones❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/how-to/iphone-11-and-11-pro-preorders-are-live-heres-how-to-buy-apples-new-phones/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNG_xpzrrSWy1u7dWzf7gf4OCVWHKg'> link</a>
 
-👉🏽UK officials call for loot boxes to be regulated like gambling❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.engadget.com/2019/09/12/uk-government-loot-boxes-regulation/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHxM4UB3Yi4IKK5QsN6i2ro6QmsnA'> link</a>
+👉🏽The awkward days of the Apple Watch are over❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/9/13/20863385/apple-watch-series-5-new-always-on-display-awkward&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHXbwqXdltTnqzJX_G7Usbs0KeKww'> link</a>
 
-👉🏿Gmail App's Dark Theme Is Finally Rolling Out❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.extremetech.com/mobile/298255-gmail-apps-dark-theme-is-finally-rolling-out&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNECFkvqDDbiej2OMxQNFJk8Q8AgIA'> link</a>
+👉🏿OnePlus 7T and OnePlus 7T Pro leak appears to reveal all the specs❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.techradar.com/news/oneplus-7t-and-oneplus-7t-pro-leak-appears-to-reveal-all-the-specs&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFAOW08EvgRh0W03vXUk-GqoyZ61g'> link</a>
 
