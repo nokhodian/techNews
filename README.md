@@ -1,20 +1,20 @@
-<b>Technology NEWS on Sunday, September 15th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Monday, September 16th, 2019</b> 📡📡📡 
 
-👉The iPhone 11 Pro Max is another in a long line of confusing tech names❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.techradar.com/uk/news/the-iphone-11-pro-max-is-another-in-a-long-line-of-confusing-tech-names&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFQ4Wi2887m_pC_pO2H0RGJ_FBIsA'> link</a>
+👉'Pokémon GO' Gen 5: Here Are The Pokémon Releasing In Wave 1, Wild, Eggs, Shiny And Regional❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/davidthier/2019/09/16/pokemon-go-gen-5-here-are-the-pokemon-releasing-in-wave-1-wild-eggs-shiny-and-regional/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGbSe5Rqx2QR1TdZ9BJyhIifc2hCw'> link</a>
 
-👉🏽Review: Fitbit Versa 2❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.wired.com/review/fitbit-versa-2/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEqGygHoIgozLL8s4TyWvlb4lqxqg'> link</a>
+👉🏽Oppo confirms the launch of Reno Ace with 65W fast charging on October 10❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.moneycontrol.com/news/trends/oppo-confirms-the-launch-of-reno-ace-with-65w-fast-charging-on-october-10-4441051.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNE4MvITf7RHvjqDB1H40maALmEd2g'> link</a>
 
-👉🏿Nissan's working with leading esports teams on concept gaming chairs❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/roadshow/news/nissan-gaming-chair-concepts-faze-clan-optic-esports/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHoCjd-7A19AdT6am7yCzEksSafyQ'> link</a>
+👉🏿Xiaomi Mi 9 Pro and Mi Mix 4 could place Xiaomi as 5G phone champions❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.techradar.com/uk/news/xiaomi-mi-9-pro-and-mi-mix-4-could-place-xiaomi-as-5g-phone-champions&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGDLCf_Go7mjWRMRebcEXxI1H0sMw'> link</a>
 
-👉Pokemon GO: A Warning About Today's Turtwig Community Day Start Time❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/davidthier/2019/09/15/pokemon-go-a-warning-about-todays-turtwig-community-day-start-time/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNE3VxCsTgFrd-5IpOhRiG0ZIZYaGQ'> link</a>
+👉Borderlands 3 review❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.techradar.com/in/reviews/borderlands-3-review&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGAczAHMShhrcdKsIyUFRBObVbVEg'> link</a>
 
-👉🏽Bridge: Sept. 15, 2019❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.eastbaytimes.com/2019/09/15/bridge-sept-15-2019/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHBL4QxpalZKO3wEXTK5Smuz2_j7A'> link</a>
+👉🏽OnePlus TV Will Feature Support for Amazon Alexa Voice Assistant❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.news18.com/news/tech/oneplus-tv-will-feature-support-for-amazon-alexa-voice-assistant-2311181.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEPi1HW1pmHiktQg-p-pjyT34Lw_Q'> link</a>
 
-👉🏿LG may soon unveiled G Pad 5 tablet with 10.1-inch display, Snapdragon 821 SoC: Report❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.digit.in/news/tablets/lg-may-soon-unveiled-g-pad-5-tablet-with-101-inch-display-snapdragon-821-soc-report-50228.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGHzHN5f5fzyqjPTbIrv3scVcNRfg'> link</a>
+👉🏿Windows 10 1903 problems: Now Microsoft reverts change that muffled audio❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.zdnet.com/article/windows-10-1903-problems-now-microsoft-reverts-change-that-muffled-audio/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGGhumczDY-XeUrSetdFVzAILsyUw'> link</a>
 
-👉Facebook may soon launch a TV streaming device under the Portal brand: Report❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.digit.in/news/tvs/facebook-may-soon-launch-a-tv-streaming-device-under-the-portal-brand-report-50229.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEQn7O9F8fzaBx0mY4c40ArRq2AqA'> link</a>
+👉Vivo Nex 3 5G Hands-On: Like A 'More' Version Of Samsung's Note 10❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/bensin/2019/09/16/vivo-nex-3-5g-hands-on-like-a-more-version-of-samsungs-note-10/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFjcgVtMg-weanrPFVkhbVgNUrs5w'> link</a>
 
-👉🏽One Of The Best Games Of The Year Is Offering A Free First Chapter And A Short-Lived Sale❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/kevinmurnane/2019/09/15/one-of-the-best-games-of-the-year-is-offering-a-free-first-chapter-and-a-short-lived-sale/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHoQqcxiOokkqC9TOsdSN2vgN4CQA'> link</a>
+👉🏽OnePlus 7T to be revealed on September 26th❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/9/16/20868173/oneplus-7t-pro-launch-date-cities-new-delhi-india-london-england-new-york-america&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEtKvfwjR3AQUgUV_5kMuJkbLvHUQ'> link</a>
 
-👉🏿Gmail has dark mode on your Android phone. Turn it on now❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/how-to/gmail-has-dark-mode-on-your-android-phone-turn-it-on-now/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNF64Bor5NbgFp9SlAFVVkN1fJAJhg'> link</a>
+👉🏿Huawei Mate 30 Line-Up Leaks❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcmag.com/news/370764/huawei-mate-30-line-up-leaks&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGi-iS7ZSUt9fl-NDrKJA-3LVRvxQ'> link</a>
 
