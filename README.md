@@ -1,20 +1,20 @@
-<b>Technology NEWS on Monday, September 16th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Tuesday, September 17th, 2019</b> 📡📡📡 
 
-👉'Pokémon GO' Gen 5: Here Are The Pokémon Releasing In Wave 1, Wild, Eggs, Shiny And Regional❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/davidthier/2019/09/16/pokemon-go-gen-5-here-are-the-pokemon-releasing-in-wave-1-wild-eggs-shiny-and-regional/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGbSe5Rqx2QR1TdZ9BJyhIifc2hCw'> link</a>
+👉Pokémon Go's Pokédex Expands Into The Unova Region❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://kotaku.com/pokemon-gos-pokedex-expands-into-the-unova-region-1838177409&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFRx3K5fd06wawKCghMz-1A7Q8Gcw'> link</a>
 
-👉🏽Oppo confirms the launch of Reno Ace with 65W fast charging on October 10❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.moneycontrol.com/news/trends/oppo-confirms-the-launch-of-reno-ace-with-65w-fast-charging-on-october-10-4441051.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNE4MvITf7RHvjqDB1H40maALmEd2g'> link</a>
+👉🏽Philips Hue box makes smart lights flash along with anything on your TV❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/9/17/20864953/tv-light-sync-box-philips-hue-play-hdmi-passthrough-4k&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHTXnYLSHx7Nsg7FNUAGwr8lfwzOQ'> link</a>
 
-👉🏿Xiaomi Mi 9 Pro and Mi Mix 4 could place Xiaomi as 5G phone champions❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.techradar.com/uk/news/xiaomi-mi-9-pro-and-mi-mix-4-could-place-xiaomi-as-5g-phone-champions&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGDLCf_Go7mjWRMRebcEXxI1H0sMw'> link</a>
+👉🏿Get a free copy of Call of Duty: Modern Warfare with Nvidia RTX graphics cards❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.digitaltrends.com/computing/get-a-free-copy-of-call-of-duty-modern-warfare-with-nvidia-rtx-graphics-cards/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHthYgbS7o_1qW4o4pUQrrydEAgVQ'> link</a>
 
-👉Borderlands 3 review❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.techradar.com/in/reviews/borderlands-3-review&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGAczAHMShhrcdKsIyUFRBObVbVEg'> link</a>
+👉1Password's corporate tool can enforce two-factor use company-wide❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.engadget.com/2019/09/17/1passwords-advanced-protection/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEewjJEE2LW7Yp0HWNK_wtOSWfwsw'> link</a>
 
-👉🏽OnePlus TV Will Feature Support for Amazon Alexa Voice Assistant❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.news18.com/news/tech/oneplus-tv-will-feature-support-for-amazon-alexa-voice-assistant-2311181.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEPi1HW1pmHiktQg-p-pjyT34Lw_Q'> link</a>
+👉🏽Apple invests an extra $250 million into glass supplier Corning❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/9/17/20870166/apple-corning-250-million-investment-foldable-displays-supplier-iphone-ipad-watch-glass&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNE5dcRnWNIVCt9CC1aWsIyTmsiiHQ'> link</a>
 
-👉🏿Windows 10 1903 problems: Now Microsoft reverts change that muffled audio❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.zdnet.com/article/windows-10-1903-problems-now-microsoft-reverts-change-that-muffled-audio/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGGhumczDY-XeUrSetdFVzAILsyUw'> link</a>
+👉🏿11 Things Nobody Has Told You About The iPhone 11 And iPhone 11 Pro❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/davidphelan/2019/09/17/eleven-things-nobody-has-told-you-about-the-iphone-11-and-iphone-11-pro/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNH496lKBr687QqAdhzsrltTQoMN1w'> link</a>
 
-👉Vivo Nex 3 5G Hands-On: Like A 'More' Version Of Samsung's Note 10❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/bensin/2019/09/16/vivo-nex-3-5g-hands-on-like-a-more-version-of-samsungs-note-10/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFjcgVtMg-weanrPFVkhbVgNUrs5w'> link</a>
+👉Xiaomi Mi TV 4X 43 vs Motorola 43-inch 4K smart TV: Choosing between two affordable 4K smart TVs❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.indiatoday.in/technology/features/story/xiaomi-mi-tv-4x-43-vs-motorola-43-inch-4k-smart-tv-choosing-between-two-affordable-4k-smart-tvs-1600141-2019-09-17&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNG0GZ3_bKQMt8DF6VtggFmuazceEQ'> link</a>
 
-👉🏽OnePlus 7T to be revealed on September 26th❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/9/16/20868173/oneplus-7t-pro-launch-date-cities-new-delhi-india-london-england-new-york-america&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEtKvfwjR3AQUgUV_5kMuJkbLvHUQ'> link</a>
+👉🏽How low can it go? The Google Home Hub is now just $56❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/best-google-home-hub-deal-ever-56/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEl9ol63RdbDy3cxpKOLngkskGfMA'> link</a>
 
-👉🏿Huawei Mate 30 Line-Up Leaks❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcmag.com/news/370764/huawei-mate-30-line-up-leaks&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGi-iS7ZSUt9fl-NDrKJA-3LVRvxQ'> link</a>
+👉🏿Why you should get the $200 Apple Watch Series 3 over the brand-new Apple Watch Series 5❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.businessinsider.com/apple-watch-series-3-vs-series-5-which-to-buy-2019-9&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFe6Hj-CpwlilODPuFIIQvZ7DT_7A'> link</a>
 
