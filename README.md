@@ -1,20 +1,20 @@
-<b>Technology NEWS on Tuesday, September 17th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Wednesday, September 18th, 2019</b> 📡📡📡 
 
-👉Pokémon Go's Pokédex Expands Into The Unova Region❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://kotaku.com/pokemon-gos-pokedex-expands-into-the-unova-region-1838177409&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFRx3K5fd06wawKCghMz-1A7Q8Gcw'> link</a>
+👉Nasty WhatsApp Privacy Surprise: 'Delete For Everyone' Doesn't Delete For Everyone❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/zakdoffman/2019/09/18/nasty-whatsapp-privacy-surprise-delete-for-everyone-doesnt-delete-for-everyone/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHnK2kURC5id6A4QKUt2-jarkWFDQ'> link</a>
 
-👉🏽Philips Hue box makes smart lights flash along with anything on your TV❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/9/17/20864953/tv-light-sync-box-philips-hue-play-hdmi-passthrough-4k&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHTXnYLSHx7Nsg7FNUAGwr8lfwzOQ'> link</a>
+👉🏽Long-Rumored Apex Legends Hero Apparently Spotted In Game❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://kotaku.com/long-rumored-apex-legends-hero-apparently-spotted-in-ga-1838211772&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGwUmx_3klzx3Bp8MLugUukvXzHHA'> link</a>
 
-👉🏿Get a free copy of Call of Duty: Modern Warfare with Nvidia RTX graphics cards❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.digitaltrends.com/computing/get-a-free-copy-of-call-of-duty-modern-warfare-with-nvidia-rtx-graphics-cards/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHthYgbS7o_1qW4o4pUQrrydEAgVQ'> link</a>
+👉🏿Just What Everyone Needs, A Merge Dragons Sequel❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://kotaku.com/just-what-everyone-needs-a-merge-dragons-sequel-1838211645&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFN7dtlqOQmLlQmN6xkLOv024yowQ'> link</a>
 
-👉1Password's corporate tool can enforce two-factor use company-wide❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.engadget.com/2019/09/17/1passwords-advanced-protection/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEewjJEE2LW7Yp0HWNK_wtOSWfwsw'> link</a>
+👉Sonos Move review: house shaker, not road warrior❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/9/18/20871409/sonos-move-wireless-bluetooth-speaker-review-alexa-google-assistant-wifi-price-specs-sound-quality&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNG8bTAbIoWCOOqp5DKhb3ew6mDN8Q'> link</a>
 
-👉🏽Apple invests an extra $250 million into glass supplier Corning❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/9/17/20870166/apple-corning-250-million-investment-foldable-displays-supplier-iphone-ipad-watch-glass&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNE5dcRnWNIVCt9CC1aWsIyTmsiiHQ'> link</a>
+👉🏽13+ things you'll want to try first when you upgrade to iOS 13❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.computerworld.com/article/3439441/13-things-you-ll-want-to-try-first-when-you-upgrade-to-ios-13.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFIDsSVPrtDb2wIh-r_WZw_nmAc2w'> link</a>
 
-👉🏿11 Things Nobody Has Told You About The iPhone 11 And iPhone 11 Pro❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/davidphelan/2019/09/17/eleven-things-nobody-has-told-you-about-the-iphone-11-and-iphone-11-pro/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNH496lKBr687QqAdhzsrltTQoMN1w'> link</a>
+👉🏿HP Is Trying to Reinvent the Business Laptop With the Elite Dragonfly❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://gizmodo.com/hp-is-trying-to-reinvent-the-business-laptop-with-the-e-1838197351&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGlWKNkevkREZR0CWMw2lP_ynZ0lQ'> link</a>
 
-👉Xiaomi Mi TV 4X 43 vs Motorola 43-inch 4K smart TV: Choosing between two affordable 4K smart TVs❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.indiatoday.in/technology/features/story/xiaomi-mi-tv-4x-43-vs-motorola-43-inch-4k-smart-tv-choosing-between-two-affordable-4k-smart-tvs-1600141-2019-09-17&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNG0GZ3_bKQMt8DF6VtggFmuazceEQ'> link</a>
+👉Nintendo Switch Lite: Pre-order latest console and get the best price❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.express.co.uk/entertainment/gaming/1179019/Nintendo-Switch-Lite-Pre-order-console-best-price-grey-yellow-turquoise-pokemon&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFZtpt2p9_V0hvoYoLBghE4zo5l_w'> link</a>
 
-👉🏽How low can it go? The Google Home Hub is now just $56❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/best-google-home-hub-deal-ever-56/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEl9ol63RdbDy3cxpKOLngkskGfMA'> link</a>
+👉🏽The 10 Apple Arcade launch games you have to play❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/9/18/20870146/apple-arcade-launch-best-top-games-iphone-ipad-apple-tv&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHQ0HncVSAuX4NcwhAjajjzXwzorg'> link</a>
 
-👉🏿Why you should get the $200 Apple Watch Series 3 over the brand-new Apple Watch Series 5❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.businessinsider.com/apple-watch-series-3-vs-series-5-which-to-buy-2019-9&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFe6Hj-CpwlilODPuFIIQvZ7DT_7A'> link</a>
+👉🏿Google search can now point you to the exact part of a video you need❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/9/18/20871933/google-search-video-description-timestamp-markup&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHhXADZ8pWcozj99AHEBMjESGUj-w'> link</a>
 
