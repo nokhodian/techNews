@@ -1,20 +1,20 @@
-<b>Technology NEWS on Wednesday, September 18th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Thursday, September 19th, 2019</b> 📡📡📡 
 
-👉Nasty WhatsApp Privacy Surprise: 'Delete For Everyone' Doesn't Delete For Everyone❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/zakdoffman/2019/09/18/nasty-whatsapp-privacy-surprise-delete-for-everyone-doesnt-delete-for-everyone/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHnK2kURC5id6A4QKUt2-jarkWFDQ'> link</a>
+👉Huawei unveils Mate 30 series with no mention of Google❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://venturebeat.com/2019/09/19/huawei-unveils-mate-30-series-with-no-mention-of-google-or-android/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEaDbkMg8kkqMaT4xcggirJ2GR7xw'> link</a>
 
-👉🏽Long-Rumored Apex Legends Hero Apparently Spotted In Game❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://kotaku.com/long-rumored-apex-legends-hero-apparently-spotted-in-ga-1838211772&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGwUmx_3klzx3Bp8MLugUukvXzHHA'> link</a>
+👉🏽Google is testing Incognito Mode for Maps❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.engadget.com/2019/09/19/google-incognito-mode-maps-test/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGtt-fw0QSJh5a5D3FvTcTbkclSfQ'> link</a>
 
-👉🏿Just What Everyone Needs, A Merge Dragons Sequel❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://kotaku.com/just-what-everyone-needs-a-merge-dragons-sequel-1838211645&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFN7dtlqOQmLlQmN6xkLOv024yowQ'> link</a>
+👉🏿CHEAP: Save big on ASUS' powerful new ROG Phone 2 gaming handset with $180 off❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://thenextweb.com/plugged/2019/09/19/cheap-save-big-on-asus-powerful-new-rog-phone-2-gaming-handset-with-180-off/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFvuGg_PkX7qQ5YpzOpzHpNVjqyng'> link</a>
 
-👉Sonos Move review: house shaker, not road warrior❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/9/18/20871409/sonos-move-wireless-bluetooth-speaker-review-alexa-google-assistant-wifi-price-specs-sound-quality&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNG8bTAbIoWCOOqp5DKhb3ew6mDN8Q'> link</a>
+👉Borderlands 3 guide: Vault Insider Program, VIP codes, and how to redeem rewards❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.polygon.com/borderlands-3-guide/2019/9/19/20872803/vault-insider-program-vip-points-redeem-rewards-activities&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGSBOKg9QHTD1hwSsrLaweb7VAn-g'> link</a>
 
-👉🏽13+ things you'll want to try first when you upgrade to iOS 13❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.computerworld.com/article/3439441/13-things-you-ll-want-to-try-first-when-you-upgrade-to-ios-13.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFIDsSVPrtDb2wIh-r_WZw_nmAc2w'> link</a>
+👉🏽Here are the biggest differences between the $1000 iPhone 11 Pro and last year's iPhone XS❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.businessinsider.com/apple-iphone-11-pro-vs-iphone-xs-compared-2019-9&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEGx7ap35u2W7MC171usvVyeSb0dg'> link</a>
 
-👉🏿HP Is Trying to Reinvent the Business Laptop With the Elite Dragonfly❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://gizmodo.com/hp-is-trying-to-reinvent-the-business-laptop-with-the-e-1838197351&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGlWKNkevkREZR0CWMw2lP_ynZ0lQ'> link</a>
+👉🏿How to Go to the Bathroom in Space❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.wired.com/story/how-to-go-to-the-bathroom-in-space/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHjvDwTuMM1WjfYfS_zYORxh1aSfQ'> link</a>
 
-👉Nintendo Switch Lite: Pre-order latest console and get the best price❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.express.co.uk/entertainment/gaming/1179019/Nintendo-Switch-Lite-Pre-order-console-best-price-grey-yellow-turquoise-pokemon&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFZtpt2p9_V0hvoYoLBghE4zo5l_w'> link</a>
+👉The $100 streaming box is back❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.techhive.com/article/3439740/the-100-streaming-box-is-back.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHbImAJtHuK41Ncr9ViaiAoEr6Elg'> link</a>
 
-👉🏽The 10 Apple Arcade launch games you have to play❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/9/18/20870146/apple-arcade-launch-best-top-games-iphone-ipad-apple-tv&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHQ0HncVSAuX4NcwhAjajjzXwzorg'> link</a>
+👉🏽6 ways your Amazon Echo can help keep you healthy❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/how-to/6-ways-your-amazon-echo-can-help-keep-you-healthy/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFmzeF3eYJ30hnsTPI71mspL1IIMA'> link</a>
 
-👉🏿Google search can now point you to the exact part of a video you need❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/9/18/20871933/google-search-video-description-timestamp-markup&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHhXADZ8pWcozj99AHEBMjESGUj-w'> link</a>
+👉🏿'Fortnite' Season 10, Week 8 'Storm Racers' Challenges Revealed And How To Solve Them❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/erikkain/2019/09/19/fortnite-season-10-week-8-storm-racers-challenges-revealed-and-how-to-solve-them/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEbKho--H-nhu8m6kZL7o3fiOQtqA'> link</a>
 
