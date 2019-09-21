@@ -1,20 +1,20 @@
-<b>Technology NEWS on Friday, September 20th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Saturday, September 21st, 2019</b> 📡📡📡 
 
-👉That Samsung Android 10 update list that drops the Galaxy S8 isn't real❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://9to5google.com/2019/09/20/samsung-android-10-update-list-not-official/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNESfp4kkryH_qalYrScIMJQaOEtUg'> link</a>
+👉Fortnite Batman Crossover Event Officially Revealed, Includes Batman Costumes, Items, And More❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.gamespot.com/articles/fortnite-batman-crossover-event-officially-reveale/1100-6470000/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGL4BqY-dbPQgUdSgdWLnlILHQl0w'> link</a>
 
-👉🏽Move Over Online Dating! Virtual Reality Is The Future Of Finding Love❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/solrogers/2019/09/20/move-over-tinder-virtual-reality-is-the-future-of-dating/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEQuH8zruLDrtp0jwb8HCDA3pQt7w'> link</a>
+👉🏽iPhone photos just got a big update: What you need to know❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/how-to/iphone-photos-just-got-a-big-update-what-you-need-to-know/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFWcvu-XxaNpaUUrVaWiiii26-N6g'> link</a>
 
-👉🏿Here's How Big The 'Borderlands 3' Mayhem Loot Nerf Is❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/paultassi/2019/09/20/heres-how-big-the-borderlands-3-mayhem-loot-nerf-is/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNETWCPqjtlEk6bugDtXVQhpw2wIUw'> link</a>
+👉🏿iPhone 11 charging slowly? Get a fast charger to dramatically speed up charge times❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://9to5mac.com/2019/09/21/iphone-11-charging-slowly-fast-charger/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGgmPtLL46wqxwPtVnVgbGqfvWPqQ'> link</a>
 
-👉Samsung PCIe 4 'Never Die' SSDs: Machine Learning, Built-in Virtualization Support❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.extremetech.com/computing/298714-samsung-pcie-4-never-die-ssds-machine-learning-built-in-virtualization-support&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGvf8f5KXF7DB60vKmubKDXyFd5zg'> link</a>
+👉Huawei Mate 30 Pro hands-on review❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.digitalcameraworld.com/reviews/huawei-mate-30-pro-hands-on-review&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGgChS4ldC10mDCzV2UKv38TMjRlA'> link</a>
 
-👉🏽Ghost Recon: Breakpoint open beta starts next week on consoles and PC❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://metro.co.uk/2019/09/20/ghost-recon-breakpoint-open-beta-starts-next-week-on-consoles-and-pc-10777006/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGySxqdV6me4UUjZosLtHS6rcf_YA'> link</a>
+👉🏽Apple Arcade Makes You Ask, What Is a Videogame Worth?❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.wired.com/story/apple-arcade-videogame-value/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGEvtO-ZAXaSZl_hqjCnATWdYzWhw'> link</a>
 
-👉🏿Google Chrome is getting way better tab management soon❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/9/20/20875441/google-chrome-tab-management-improvements-color-customization-features&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFMq62euoOPq9Mdg8ettQQ-4Pshpg'> link</a>
+👉🏿Use the new Find My app to hunt down your friends and your iPhone❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/how-to/use-the-new-find-my-app-to-hunt-down-your-friends-and-your-iphone/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFFQILIXS3nWiALv77rkSClNHr2Pw'> link</a>
 
-👉Samsung's PCIe Gen 4 Enterprise SSDs Get Reliability & Performance Boost❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.anandtech.com/show/14884/samsungs-pcie-gen-4-enterprise-ssds-get-reliability-performance-boost&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFg_AIW2fvSbWNs97ffZ4zVd7zQjg'> link</a>
+👉Realme X2 will ship with 4000mAh battery that supports 30W VOOC Flash Charge 4.0❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.digit.in/news/mobile-phones/realme-x2-will-ship-with-4000mah-battery-that-supports-30w-vooc-flash-charge-40-50307.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNE9ZqjtiR1ZhGdOSyhzlFcINElotg'> link</a>
 
-👉🏽Holy awesome giveaways! Get 6 free Batman games for PC, no strings attached❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/holy-awesome-giveaways-get-6-free-batman-games-for-pc-no-strings-attached/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGAVvdmtQ9Jimc7tb558QUmSca5CA'> link</a>
+👉🏽Amazon Prime perks now include mobile game add-ons❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.engadget.com/2019/09/21/amazon-prime-pubg-mobile/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFEMmM_sig8R_MWAqmu1UkD3dnV-g'> link</a>
 
-👉🏿'Borderlands 3' is one of this year's most anticipated games, and it's everything fans of the series could hope for❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.businessinsider.com/borderlands-3-review-overview-breakdown-screenshots-2019-8&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFCdflt_FzWQvsRD6q-j9yrBRWn-Q'> link</a>
+👉🏿iPhone 11 and 11 Pro drop test: We couldn't crack these phones❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/iphone-11-and-11-pro-drop-test-we-couldnt-crack-these-phones/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFoVXLewF5BRRHDAe-HUBb3sU_ImA'> link</a>
 
