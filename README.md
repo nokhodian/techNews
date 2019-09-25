@@ -1,20 +1,20 @@
-<b>Technology NEWS on Sunday, September 22nd, 2019</b> 📡📡📡 
+<b>Technology NEWS on Wednesday, September 25th, 2019</b> 📡📡📡 
 
-👉What Time Does The 'Call Of Duty: Modern Warfare Open Beta End On PC, PS4 And Xbox One?❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/davidthier/2019/09/22/what-time-does-the-call-of-duty-modern-warfare-open-beta-end-on-pc-ps4-and-xbox-one/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNErxVmgmdez3jSjNLziCrymzb0EyQ'> link</a>
+👉Huawei Mate X reportedly confirmed to launch in October for the Chinese market❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.firstpost.com/tech/news-analysis/huawei-mate-x-reportedly-confirmed-to-launch-in-october-for-the-chinese-market-7401681.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFMIjED0afMlG0VewdF115_VmwyDg'> link</a>
 
-👉🏽Fortnite's New Gotham City 'Final Reckoning' Posters May Be Teasing The End Of The World❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/paultassi/2019/09/22/fortnites-new-gotham-city-final-reckoning-posters-may-be-teasing-the-end-of-the-world/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHM9c2bhnoxMr-ewlJ2RJcLAvxPuA'> link</a>
+👉🏽Amazon wants to set Alexa free❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/9/25/20883110/amazon-alexa-echo-hardware-earbuds-fitness-band-robot-september-event&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFjkEhtB6KT0T2nokzbz6R9g-V78w'> link</a>
 
-👉🏿PS4 good news: Sony boss confirms Xbox exclusive series could make its way to PlayStation❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.dailystar.co.uk/tech/gaming/good-news-ps4-owners-xbox-20131384&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGqoLS6OSacTXaSOHrCfytaDWfVSg'> link</a>
+👉🏿'Mario Kart Tour' Has A Bad Subscription Model That Costs As Much As Apple Arcade❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/paultassi/2019/09/25/mario-kart-tour-has-a-bad-subscription-model-that-costs-as-much-as-apple-arcade/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFlQkPjbEOgdOtX29sjqSbnSm1iGg'> link</a>
 
-👉Facebook Testimonial: An Apple Watch 'Fall Detection' Story❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.patentlyapple.com/patently-apple/2019/09/facebook-testimonial-an-apple-watch-fall-detection-story.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGzzspDJv7x6ffuh0dWk-vppZBbLQ'> link</a>
+👉Google Play Pass trumps Apple Arcade because the Play Store is such a mess❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/google-play-pass-trumps-apple-arcade-because-the-play-store-is-such-a-mess/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNG9San18hnkx0ZG0M4eIYESqJIFsQ'> link</a>
 
-👉🏽Next State Of Play Will Feature “The Last Of Us Part II”❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.bleedingcool.com/2019/09/22/next-state-of-play-will-feature-the-last-of-us-part-ii/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFefpSoc3zMUjV-wPHryHNelw94ug'> link</a>
+👉🏽Apple Watch Series 5 review: A better, more independent timepiece❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://arstechnica.com/gadgets/2019/09/apple-watch-series-5-review-a-better-more-independent-timepiece/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFKGli4IWOLZxqfCMUwoPiQSzRKEw'> link</a>
 
-👉🏿5 ways to make Google Home talk nerdy to you❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/how-to/5-ways-to-make-google-home-talk-nerdy-to-you/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEGPxfLGJvXVSDJ8i0-lMt_DPOtqQ'> link</a>
+👉🏿Review: Nintendo Switch Lite❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.wired.com/review/nintendo-switch-lite/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEmcFS02a-IWQZPYHRiV9YzlSrNig'> link</a>
 
-👉All the ways the iPhone, iPad browser finally grow up in iOS 13❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/how-to/all-the-ways-the-iphone-ipad-browser-finally-grow-up-in-ios-13/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHWvULuz8cgEwiJM29wPDrteqkHDQ'> link</a>
+👉3 new ways to share iPhone photos and links in iOS 13❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/how-to/3-new-ways-to-share-iphone-photos-and-links-in-ios-13/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHUDO9C9vTfVjr9YwXNOq9kg8D_tA'> link</a>
 
-👉🏽Samsung M30s Price in India, iPhone 11 Pre-Orders, Vivo V17 Pro Launch, and Other Tech Stories of the Week❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://gadgets.ndtv.com/mobiles/features/samsung-m30s-m10s-price-in-india-iphone-11-pro-max-vivo-v17-pro-nokia-7-2-specifications-2105110&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNF5rxxT4hB4NfPIrinaoNLro2Vapw'> link</a>
+👉🏽'Fortnite' v10.40 Patch Notes: Starry Suburbs, A Strange Unvaulting And The Combine❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/paultassi/2019/09/25/fortnite-v1040-patch-notes-starry-suburbs-a-strange-unvaulting-and-the-combine/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHxdLqg1-Sr7UVphIlEfImmUwnZkw'> link</a>
 
-👉🏿The iPhone 11 has a few more features than we first thought❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/the-iphone-11-has-a-few-more-features-than-we-first-thought/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNESQFWw1bhiC1-PY0Tywdj_76fTNA'> link</a>
+👉🏿Nintendo's 'Mario Kart Tour' is out now for iPhone and iPad❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://techcrunch.com/2019/09/25/nintendos-mario-kart-tour-is-out-now-for-iphone-and-ipad/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGcLGIinV3X9AfOrJp8n-RqpWbzBA'> link</a>
 
