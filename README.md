@@ -1,20 +1,20 @@
-<b>Technology NEWS on Wednesday, September 25th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Thursday, September 26th, 2019</b> 📡📡📡 
 
-👉Huawei Mate X reportedly confirmed to launch in October for the Chinese market❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.firstpost.com/tech/news-analysis/huawei-mate-x-reportedly-confirmed-to-launch-in-october-for-the-chinese-market-7401681.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFMIjED0afMlG0VewdF115_VmwyDg'> link</a>
+👉How Amazon's new Echos compare to other smart speakers❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/9/26/20882483/amazon-echo-studio-apple-homepod-google-home-max-sonos-move-specs-price-comparison&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNG0IAtPm-nc-kUIEcplAj3pDCNH_w'> link</a>
 
-👉🏽Amazon wants to set Alexa free❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/9/25/20883110/amazon-alexa-echo-hardware-earbuds-fitness-band-robot-september-event&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFjkEhtB6KT0T2nokzbz6R9g-V78w'> link</a>
+👉🏽AMD Ryzen 9 3900: A 12-Core 65W CPU Listed❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.anandtech.com/show/14912/amds-ryzen-9-3900-a-12core-65w-cpu-listed-by-motherboard-maker&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFe32WL3zObI-ck41UemiBulpBbRg'> link</a>
 
-👉🏿'Mario Kart Tour' Has A Bad Subscription Model That Costs As Much As Apple Arcade❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/paultassi/2019/09/25/mario-kart-tour-has-a-bad-subscription-model-that-costs-as-much-as-apple-arcade/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFlQkPjbEOgdOtX29sjqSbnSm1iGg'> link</a>
+👉🏿Poco F1 will get MIUI 11 update in India as soon as global rollout begins❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.indiatoday.in/technology/android-os/story/poco-f1-will-get-upgrade-to-miui-11-in-india-as-soon-as-global-rollout-begins-1603573-2019-09-26&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFsczCWc0VSx8OOyyPTJ6TweucYHw'> link</a>
 
-👉Google Play Pass trumps Apple Arcade because the Play Store is such a mess❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/google-play-pass-trumps-apple-arcade-because-the-play-store-is-such-a-mess/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNG9San18hnkx0ZG0M4eIYESqJIFsQ'> link</a>
+👉Cisco warning: These routers running IOS have 9.9/10-severity security flaw❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.zdnet.com/article/cisco-warning-these-routers-running-ios-have-9-910-severity-security-flaw/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNF23okdW_ROymfpFAK1J1voU69GBQ'> link</a>
 
-👉🏽Apple Watch Series 5 review: A better, more independent timepiece❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://arstechnica.com/gadgets/2019/09/apple-watch-series-5-review-a-better-more-independent-timepiece/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFKGli4IWOLZxqfCMUwoPiQSzRKEw'> link</a>
+👉🏽Why Google's Quantum Victory Is a Huge Deal—and a Letdown❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.wired.com/story/why-googles-quantum-computing-victory-is-a-huge-deal-and-a-letdown/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGOrrXgTPye7gda1CZXE-fzVeM7WA'> link</a>
 
-👉🏿Review: Nintendo Switch Lite❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.wired.com/review/nintendo-switch-lite/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEmcFS02a-IWQZPYHRiV9YzlSrNig'> link</a>
+👉🏿Never feel bad for running late again, thanks to iOS 13's Apple Maps update❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/how-to/never-feel-bad-for-running-late-again-thanks-to-ios-13s-apple-maps-update/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGVuBp_9D04O018UQaDxsZqmHyfNQ'> link</a>
 
-👉3 new ways to share iPhone photos and links in iOS 13❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/how-to/3-new-ways-to-share-iphone-photos-and-links-in-ios-13/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHUDO9C9vTfVjr9YwXNOq9kg8D_tA'> link</a>
+👉Class-leading Samsung Note 10 the real deal❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.irishexaminer.com/breakingnews/technow/class-leading-samsung-note-10-the-real-deal-953196.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGavtOEeO56i8L7Xowv_hTks_8Sjg'> link</a>
 
-👉🏽'Fortnite' v10.40 Patch Notes: Starry Suburbs, A Strange Unvaulting And The Combine❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/paultassi/2019/09/25/fortnite-v1040-patch-notes-starry-suburbs-a-strange-unvaulting-and-the-combine/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHxdLqg1-Sr7UVphIlEfImmUwnZkw'> link</a>
+👉🏽After a million other leaks, an official Pixel 4 press render just leaked too❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://bgr.com/2019/09/26/pixel-4-release-date-close-press-renders-leak-confirms-white-color/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEA9z-yyiqTlrL9ZVfF21odcxC27w'> link</a>
 
-👉🏿Nintendo's 'Mario Kart Tour' is out now for iPhone and iPad❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://techcrunch.com/2019/09/25/nintendos-mario-kart-tour-is-out-now-for-iphone-and-ipad/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGcLGIinV3X9AfOrJp8n-RqpWbzBA'> link</a>
+👉🏿Google Pixel 4 XL Leak Shows Off Improved Google Assistant, Face Unlock❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://gadgets.ndtv.com/mobiles/news/pixel-4-xl-google-hand-on-assistant-face-unlock-october-15-launch-2107681&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFASPnxxEFJWcvRh_WpqLYyPo2kKg'> link</a>
 
