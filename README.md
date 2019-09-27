@@ -1,20 +1,20 @@
-<b>Technology NEWS on Thursday, September 26th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Friday, September 27th, 2019</b> 📡📡📡 
 
-👉How Amazon's new Echos compare to other smart speakers❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/9/26/20882483/amazon-echo-studio-apple-homepod-google-home-max-sonos-move-specs-price-comparison&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNG0IAtPm-nc-kUIEcplAj3pDCNH_w'> link</a>
+👉Apple Releases 10.2-inch iPad (7th Generation) a Week Early❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.laptopmag.com/articles/apple-ipad-7th-gen-on-sale-early&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEXuwvnaacCmj_Hl_JEfaHKXxe56g'> link</a>
 
-👉🏽AMD Ryzen 9 3900: A 12-Core 65W CPU Listed❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.anandtech.com/show/14912/amds-ryzen-9-3900-a-12core-65w-cpu-listed-by-motherboard-maker&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFe32WL3zObI-ck41UemiBulpBbRg'> link</a>
+👉🏽Land a limited-run 2020 Dodge Charger Hellcat Daytona for $75635❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/roadshow/news/2020-dodge-charger-hellcat-daytona-price-msrp/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHYmisratYEcOMGn0vg7C9A5rGf_A'> link</a>
 
-👉🏿Poco F1 will get MIUI 11 update in India as soon as global rollout begins❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.indiatoday.in/technology/android-os/story/poco-f1-will-get-upgrade-to-miui-11-in-india-as-soon-as-global-rollout-begins-1603573-2019-09-26&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFsczCWc0VSx8OOyyPTJ6TweucYHw'> link</a>
+👉🏿Samsung Galaxy Watch Active 2 review:❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/reviews/samsung-galaxy-watch-active-2-review/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEH1DxalM2T9jx-aQyJg75XLe7ERw'> link</a>
 
-👉Cisco warning: These routers running IOS have 9.9/10-severity security flaw❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.zdnet.com/article/cisco-warning-these-routers-running-ios-have-9-910-severity-security-flaw/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNF23okdW_ROymfpFAK1J1voU69GBQ'> link</a>
+👉When will you get the next version of Windows 10? Here's how to take control❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.zdnet.com/article/when-will-you-get-the-next-version-of-windows-10/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFFN9glcW49jsBrFEMIRmlThS4Kpg'> link</a>
 
-👉🏽Why Google's Quantum Victory Is a Huge Deal—and a Letdown❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.wired.com/story/why-googles-quantum-computing-victory-is-a-huge-deal-and-a-letdown/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGOrrXgTPye7gda1CZXE-fzVeM7WA'> link</a>
+👉🏽AirPods are the preferred brand for true wireless in-ear headphones❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://9to5mac.com/2019/09/27/airpods-are-the-preferred-brand/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHsIa8A6G4ThavFlKT1huJlsLv8QA'> link</a>
 
-👉🏿Never feel bad for running late again, thanks to iOS 13's Apple Maps update❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/how-to/never-feel-bad-for-running-late-again-thanks-to-ios-13s-apple-maps-update/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGVuBp_9D04O018UQaDxsZqmHyfNQ'> link</a>
+👉🏿Spotify is finally getting Siri support with iOS 13❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/9/27/20886783/spotify-siri-integration-support-ios-13-beta-launch-airpods&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGofO9ZUaFv-ql8Je78CMwncgl7Kg'> link</a>
 
-👉Class-leading Samsung Note 10 the real deal❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.irishexaminer.com/breakingnews/technow/class-leading-samsung-note-10-the-real-deal-953196.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGavtOEeO56i8L7Xowv_hTks_8Sjg'> link</a>
+👉Video games can't replace the gym. But they can be a great complement to it.❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.vox.com/the-goods/2019/9/27/20883999/nintendo-switch-ring-fit-adventure-exercise-video-games&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGpzItHeiPMOK6FOAXV5WDeZ1wazw'> link</a>
 
-👉🏽After a million other leaks, an official Pixel 4 press render just leaked too❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://bgr.com/2019/09/26/pixel-4-release-date-close-press-renders-leak-confirms-white-color/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEA9z-yyiqTlrL9ZVfF21odcxC27w'> link</a>
+👉🏽Sony adds 'God of War' and six other games to its PlayStation Hits lineup❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.engadget.com/2019/09/27/sony-games-playstation-hits/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHLsJ0FVLf7ityRCtjjUi3DohbjLw'> link</a>
 
-👉🏿Google Pixel 4 XL Leak Shows Off Improved Google Assistant, Face Unlock❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://gadgets.ndtv.com/mobiles/news/pixel-4-xl-google-hand-on-assistant-face-unlock-october-15-launch-2107681&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFASPnxxEFJWcvRh_WpqLYyPo2kKg'> link</a>
+👉🏿Android 10 Go Edition heading to Nokia phones in early 2020❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://9to5google.com/2019/09/27/android-10-go-edition-heading-to-nokia-phones-in-early-2020/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEMPejmJlmaHNyxVSSxiKIJw-hGuw'> link</a>
 
