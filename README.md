@@ -1,20 +1,20 @@
-<b>Technology NEWS on Saturday, September 28th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Sunday, September 29th, 2019</b> 📡📡📡 
 
-👉Alexa's real competition is still your phone screen❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/9/28/20887378/amazon-alexa-competition-siri-google-assistant-echo-buds&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEOIhjswg7yBygZ125N5SvZN0h9hQ'> link</a>
+👉Apple Watch Series 5 Review: The Best Smartwatch Is Now a Watch❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.wsj.com/articles/apple-watch-series-5-review-the-best-smartwatch-is-now-a-watch-11569762003&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHin7lj2y-ZQxm65FFsmqEyLVplrw'> link</a>
 
-👉🏽OnePlus 7 Pro, OnePlus 7 Price Cut Brings Down Starting Price to Rs 29999❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.news18.com/news/tech/oneplus-7-pro-oneplus-7-price-cut-brings-down-starting-price-to-rs-29999-2326465.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNG_p2ToKXD6aTaeWxa6tEemXshPfg'> link</a>
+👉🏽Malware uses web apps to turn PCs into conduits for attacks❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.engadget.com/2019/09/29/nodersok-malware-uses-web-apps/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHXJnV8ES2tav5L1hFtALdrRk86-g'> link</a>
 
-👉🏿Do You Never Truly Relax? You're Not The Only One❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.refinery29.com/en-gb/smartphone-stops-relaxation-poll&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHY4Qd_mCUzfkEuWL9qhDIMJiIxQg'> link</a>
+👉🏿Why Facebook and Amazon have joined the race to bring computing to your face❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnbc.com/2019/09/29/why-facebook-and-amazon-are-making-computer-glasses.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFDRTXj3_urRrC-0L274RmnhvOOqA'> link</a>
 
-👉Ghost Recon Breakpoint's open beta has players frustrated but hopeful❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcgamesn.com/ghost-recon-breakpoint/open-beta-reactions&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEDGCTNcKNrw6fo-zE1uJVA7j271A'> link</a>
+👉AMD's Ryzen 9 3900X is going for as much as $800 amid supply issues❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.techspot.com/news/82113-amd-ryzen-9-3900x-going-much-800-amid.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEvoGrsBqpENSpt0ZcebXmo0fLadA'> link</a>
 
-👉🏽Google Home's 3 most common problems and how to solve them❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/how-to/google-homes-3-most-common-problems-and-how-to-solve-them/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEdhoOuYTaWhHmyqnb-m4C0L38HnQ'> link</a>
+👉🏽Nintendo Switch Lite users affected by Joy-Con drift join class-action lawsuit❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.eurogamer.net/articles/2019-09-29-nintendo-switch-lite-users-affected-by-joy-con-drift-join-class-action-lawsuit&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNENHtRyqax45nOdCLFaB28Ljvau6w'> link</a>
 
-👉🏿Developer of Checkm8 explains why iDevice jailbreak exploit is a game changer❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://arstechnica.com/information-technology/2019/09/developer-of-checkm8-explains-why-idevice-jailbreak-exploit-is-a-game-changer/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGey-2pMji79gg6y-nqU5vSrZlcbA'> link</a>
+👉🏿Best smartwatch for fitness 2019 – We reveal if Samsung, Apple, Fitbit or Garmin is the gadget for you❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.thesun.co.uk/tech/10012730/best-smartwatch-fitness-2019-samsung-apple-fitbit-garmin/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGcCtzbaJTr669b0JXjgc9ilgFbbw'> link</a>
 
-👉Amazon Great Indian Festival sale begins: Here are top smartphone deals you must not miss❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.indiatoday.in/technology/news/story/amazon-great-indian-festival-sale-begins-for-prime-users-check-out-top-smartphone-deals-1604231-2019-09-28&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNH6C2UbzwoqAjmQ7AU9RSKgmybkkg'> link</a>
+👉iPhone 11 review: The most attractive choice in Apple's best lineup in years❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://arstechnica.com/gadgets/2019/09/iphone-11-review-the-sweet-spot-iphone/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHJZ8ZYKcpppJ0ubE6QsnchD5P_Ig'> link</a>
 
-👉🏽The Goose Game Is on Sale! And 13 More Great Weekend Deals❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.wired.com/story/weekend-deals-goose-game-soundbars-and-more/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFiQA4vSjO0ts39wHyHTNm-We1fyQ'> link</a>
+👉🏽It's Game On Again for Nintendo's Mobile Ambitions❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.wsj.com/articles/its-game-on-again-for-nintendos-mobile-ambitions-11569758401&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNF9iiWVkXgL31UO3ZHZmWe0HqNCIw'> link</a>
 
-👉🏿The best iPhone and iPad hidden features we've unearthed❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/how-to/the-best-iphone-and-ipad-hidden-features-weve-unearthed/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNF0CAn9he3U5pROvn2pfNUHvNrmdw'> link</a>
+👉🏿Ford Focus ST Estate review: Hot hatch spirit lives on❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.mirror.co.uk/lifestyle/motoring/car-reviews/ford-focus-st-estate-review-20174364&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEV5CHbpdsr4_fL9fdhPq7Q8w5_mw'> link</a>
 
