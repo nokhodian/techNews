@@ -1,20 +1,20 @@
-<b>Technology NEWS on Sunday, September 29th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Monday, September 30th, 2019</b> 📡📡📡 
 
-👉Apple Watch Series 5 Review: The Best Smartwatch Is Now a Watch❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.wsj.com/articles/apple-watch-series-5-review-the-best-smartwatch-is-now-a-watch-11569762003&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHin7lj2y-ZQxm65FFsmqEyLVplrw'> link</a>
+👉Apple Maps is looking better than ever, but it still has a long way to go❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/9/30/20888734/apple-maps-update-northeast-transit-google-maps&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNECrj0XoWTN-rEFM4yG6DbfFMbSSw'> link</a>
 
-👉🏽Malware uses web apps to turn PCs into conduits for attacks❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.engadget.com/2019/09/29/nodersok-malware-uses-web-apps/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHXJnV8ES2tav5L1hFtALdrRk86-g'> link</a>
+👉🏽EA vows to fix FIFA 20's broken Career Mode❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.engadget.com/2019/09/30/ea-to-fix-fifa-20-career-mode/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHZFJ9N1ezjSITGSuCgY7h8lbxXLw'> link</a>
 
-👉🏿Why Facebook and Amazon have joined the race to bring computing to your face❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnbc.com/2019/09/29/why-facebook-and-amazon-are-making-computer-glasses.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFDRTXj3_urRrC-0L274RmnhvOOqA'> link</a>
+👉🏿Troy Baker Says He Didn't Voice Rhys In Borderlands 3 Because 'They Wouldn't Go Union'❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://kotaku.com/troy-baker-says-he-didnt-voice-rhys-in-borderlands-3-be-1838620065&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHhiwRd2Li8fS2e8mrMZfqXHdfpFQ'> link</a>
 
-👉AMD's Ryzen 9 3900X is going for as much as $800 amid supply issues❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.techspot.com/news/82113-amd-ryzen-9-3900x-going-much-800-amid.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEvoGrsBqpENSpt0ZcebXmo0fLadA'> link</a>
+👉Amazon Great Indian Festival: Here are top 5 smartphone deals available today❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.indiatoday.in/technology/news/story/top-5-smartphone-deals-available-on-amazon-great-indian-festival-today-1604883-2019-09-30&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNE8en5umv445hBgByPLE0md3wCs6g'> link</a>
 
-👉🏽Nintendo Switch Lite users affected by Joy-Con drift join class-action lawsuit❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.eurogamer.net/articles/2019-09-29-nintendo-switch-lite-users-affected-by-joy-con-drift-join-class-action-lawsuit&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNENHtRyqax45nOdCLFaB28Ljvau6w'> link</a>
+👉🏽HP's Spectre x360 13 seems like an improvement in almost every way❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/9/30/20886871/hp-spectre-x360-13-2019-small-bezels-oled-screen&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGTQduQ1ION8GIjI-LivQZ9zWLBgw'> link</a>
 
-👉🏿Best smartwatch for fitness 2019 – We reveal if Samsung, Apple, Fitbit or Garmin is the gadget for you❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.thesun.co.uk/tech/10012730/best-smartwatch-fitness-2019-samsung-apple-fitbit-garmin/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGcCtzbaJTr669b0JXjgc9ilgFbbw'> link</a>
+👉🏿'Destiny 2' Shadowkeep & New Light Release Time: When is the PS4, Xbox DLC Out?❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.newsweek.com/destiny-2-shadowkeep-new-light-release-time-when-ps4-xbox-dlc-out-1461841&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNH2GnB4rR1wDSI17aHQZpW2-yVd4Q'> link</a>
 
-👉iPhone 11 review: The most attractive choice in Apple's best lineup in years❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://arstechnica.com/gadgets/2019/09/iphone-11-review-the-sweet-spot-iphone/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHJZ8ZYKcpppJ0ubE6QsnchD5P_Ig'> link</a>
+👉'Apex Legends' Season 3 Release - What Time & Date Does the Battle Pass Start?❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.newsweek.com/apex-legends-season-3-release-time-date-battle-pass-start-1461805&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFSETu4hVzRjRUq3luG5Qbv7j_VJQ'> link</a>
 
-👉🏽It's Game On Again for Nintendo's Mobile Ambitions❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.wsj.com/articles/its-game-on-again-for-nintendos-mobile-ambitions-11569758401&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNF9iiWVkXgL31UO3ZHZmWe0HqNCIw'> link</a>
+👉🏽iPhone Lineup May Get LED-Illuminated Apple Logo, Patent Tips❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://gadgets.ndtv.com/mobiles/news/iphone-lineup-may-get-led-illuminated-apple-logo-patent-tips-2109720&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGPNU9m2jwFYVfV7DCag7HyHKZ3fg'> link</a>
 
-👉🏿Ford Focus ST Estate review: Hot hatch spirit lives on❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.mirror.co.uk/lifestyle/motoring/car-reviews/ford-focus-st-estate-review-20174364&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEV5CHbpdsr4_fL9fdhPq7Q8w5_mw'> link</a>
+👉🏿OnePlus 7 now selling for Rs 27999: Is it worth buying this flagship killer after OnePlus 7T launch?❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.indiatoday.in/technology/features/story/oneplus-7-now-selling-for-rs-27-999-is-it-worth-buying-this-flagship-killer-after-oneplus-7t-launch-1604871-2019-09-30&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGMeOKQDPd977IaPLtbR_IjBqiQSg'> link</a>
 
