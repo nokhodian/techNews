@@ -1,20 +1,20 @@
-<b>Technology NEWS on Monday, September 30th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Tuesday, October 1st, 2019</b> 📡📡📡 
 
-👉Apple Maps is looking better than ever, but it still has a long way to go❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/9/30/20888734/apple-maps-update-northeast-transit-google-maps&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNECrj0XoWTN-rEFM4yG6DbfFMbSSw'> link</a>
+👉Google Pixel 4 might call for help automatically if you're in a car crash❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/google-pixel-4-might-call-for-help-automatically-if-youre-in-a-car-crash/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHJcypZ1VsYwl_5JZyN-A7cLaJK2A'> link</a>
 
-👉🏽EA vows to fix FIFA 20's broken Career Mode❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.engadget.com/2019/09/30/ea-to-fix-fifa-20-career-mode/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHZFJ9N1ezjSITGSuCgY7h8lbxXLw'> link</a>
+👉🏽WhatsApp is testing a self-destructing messages feature❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://techcrunch.com/2019/10/01/whatsapp-self-destructing-beta/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGVGTr86yAV7QxDgB_reOHNB2YVZw'> link</a>
 
-👉🏿Troy Baker Says He Didn't Voice Rhys In Borderlands 3 Because 'They Wouldn't Go Union'❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://kotaku.com/troy-baker-says-he-didnt-voice-rhys-in-borderlands-3-be-1838620065&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHhiwRd2Li8fS2e8mrMZfqXHdfpFQ'> link</a>
+👉🏿AMD Tweaks Radeon, Ryzen Bundles to Entice Gamers❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.extremetech.com/gaming/299334-amd-tweaks-radeon-ryzen-bundles-to-entice-gamers&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEF7YjRaLExu8sIMm_m8KpjB971zw'> link</a>
 
-👉Amazon Great Indian Festival: Here are top 5 smartphone deals available today❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.indiatoday.in/technology/news/story/top-5-smartphone-deals-available-on-amazon-great-indian-festival-today-1604883-2019-09-30&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNE8en5umv445hBgByPLE0md3wCs6g'> link</a>
+👉GoPro Hero 8 Black review: smooth operator❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/10/1/20891984/gopro-hero8-black-review-action-camera-image-stabilization-price-specs-features&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFX8vUyL6WalamPinz2-b7DrNlQVw'> link</a>
 
-👉🏽HP's Spectre x360 13 seems like an improvement in almost every way❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/9/30/20886871/hp-spectre-x360-13-2019-small-bezels-oled-screen&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGTQduQ1ION8GIjI-LivQZ9zWLBgw'> link</a>
+👉🏽Pitch launches in private beta and raises $30 million to be the presentation tool for 'generation Slack'❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://venturebeat.com/2019/10/01/pitch-launches-in-private-beta-and-raises-30-million-to-be-the-presentation-tool-for-generation-slack/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNG4Nb0XQqd-lx7pD4hobTnS80BBWA'> link</a>
 
-👉🏿'Destiny 2' Shadowkeep & New Light Release Time: When is the PS4, Xbox DLC Out?❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.newsweek.com/destiny-2-shadowkeep-new-light-release-time-when-ps4-xbox-dlc-out-1461841&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNH2GnB4rR1wDSI17aHQZpW2-yVd4Q'> link</a>
+👉🏿With SteelSeries Sensei Ten, an old favorite respawns for modern esports❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/with-steelseries-sensei-ten-an-old-favorite-respawns-for-modern-esports/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNH8SbiSOC2MU4SsZEHiSpTaleZKEg'> link</a>
 
-👉'Apex Legends' Season 3 Release - What Time & Date Does the Battle Pass Start?❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.newsweek.com/apex-legends-season-3-release-time-date-battle-pass-start-1461805&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFSETu4hVzRjRUq3luG5Qbv7j_VJQ'> link</a>
+👉Techart 992 Porsche 911 Carrera 4S boasts more power than a GT3❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.evo.co.uk/porsche/911/201802/techart-992-porsche-911-carrera-4s-boasts-more-power-than-a-gt3&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHQfF2b3PIiQgHE6EAwQtK-SL5kNg'> link</a>
 
-👉🏽iPhone Lineup May Get LED-Illuminated Apple Logo, Patent Tips❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://gadgets.ndtv.com/mobiles/news/iphone-lineup-may-get-led-illuminated-apple-logo-patent-tips-2109720&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGPNU9m2jwFYVfV7DCag7HyHKZ3fg'> link</a>
+👉🏽iOS 13: Security and privacy settings you need to tweak and check❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.zdnet.com/article/ios-13-security-and-privacy-settings-you-need-to-tweak-and-check/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGOJrFIlHWSKeg8fPPSfj8ATwYf1w'> link</a>
 
-👉🏿OnePlus 7 now selling for Rs 27999: Is it worth buying this flagship killer after OnePlus 7T launch?❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.indiatoday.in/technology/features/story/oneplus-7-now-selling-for-rs-27-999-is-it-worth-buying-this-flagship-killer-after-oneplus-7t-launch-1604871-2019-09-30&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGMeOKQDPd977IaPLtbR_IjBqiQSg'> link</a>
+👉🏿Call of Duty: Mobile now available to play on both Android and iOS❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.techradar.com/news/call-of-duty-mobile-now-available-on-android-and-ios&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEvtF74572AdBKOhsxzJOz8zTS-qg'> link</a>
 
