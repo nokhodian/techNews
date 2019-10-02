@@ -1,20 +1,20 @@
-<b>Technology NEWS on Tuesday, October 1st, 2019</b> 📡📡📡 
+<b>Technology NEWS on Wednesday, October 2nd, 2019</b> 📡📡📡 
 
-👉Google Pixel 4 might call for help automatically if you're in a car crash❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/google-pixel-4-might-call-for-help-automatically-if-youre-in-a-car-crash/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHJcypZ1VsYwl_5JZyN-A7cLaJK2A'> link</a>
+👉'Destiny 2: Shadowkeep' Day 1 Review: The Dark Side Of The Moon❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/paultassi/2019/10/02/destiny-2-shadowkeep-day-1-review-the-dark-side-of-the-moon/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEJpd0ekLRVlOfUduOrnO_6FzywEw'> link</a>
 
-👉🏽WhatsApp is testing a self-destructing messages feature❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://techcrunch.com/2019/10/01/whatsapp-self-destructing-beta/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGVGTr86yAV7QxDgB_reOHNB2YVZw'> link</a>
+👉🏽Try Xbox Game Pass Ultimate for 1 month plus Spotify Premium for $1❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcworld.com/article/3442957/try-xbox-game-pass-ultimate-for-1-month-plus-spotify-premium-for-1.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHFSZNsvbj4CrlReb8WR7mMP-jnbg'> link</a>
 
-👉🏿AMD Tweaks Radeon, Ryzen Bundles to Entice Gamers❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.extremetech.com/gaming/299334-amd-tweaks-radeon-ryzen-bundles-to-entice-gamers&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEF7YjRaLExu8sIMm_m8KpjB971zw'> link</a>
+👉🏿AMD vs Intel: Which CPU Cooks Better Pancakes?❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.tomshardware.com/reviews/intel-amd-hedt-pancakes,6366.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNErYRnu2YFTdeKK7j6AIm-0noLolQ'> link</a>
 
-👉GoPro Hero 8 Black review: smooth operator❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/10/1/20891984/gopro-hero8-black-review-action-camera-image-stabilization-price-specs-features&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFX8vUyL6WalamPinz2-b7DrNlQVw'> link</a>
+👉BMW M bundles supercar-like performance into the X5 and the X6❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.digitaltrends.com/cars/2020-bmw-x5-m-x6-m-get-600-horsepower-v8-competition-package/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGPJP6pPC6Fx4j7X8clLqOjwkcfPw'> link</a>
 
-👉🏽Pitch launches in private beta and raises $30 million to be the presentation tool for 'generation Slack'❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://venturebeat.com/2019/10/01/pitch-launches-in-private-beta-and-raises-30-million-to-be-the-presentation-tool-for-generation-slack/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNG4Nb0XQqd-lx7pD4hobTnS80BBWA'> link</a>
+👉🏽The Walking Dead: Saints and Sinners release date and trailer revealed❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.windowscentral.com/walking-dead-saints-and-sinners-release-date-and-trailer-revealed&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGzcjCAZIV0ngfXtncSh5U986qT_w'> link</a>
 
-👉🏿With SteelSeries Sensei Ten, an old favorite respawns for modern esports❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/with-steelseries-sensei-ten-an-old-favorite-respawns-for-modern-esports/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNH8SbiSOC2MU4SsZEHiSpTaleZKEg'> link</a>
+👉🏿Google 'tracking iPhone users' case goes ahead❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.bbc.com/news/technology-49908606&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNG_acu46sKqrPNEdcbWNmianL_ATA'> link</a>
 
-👉Techart 992 Porsche 911 Carrera 4S boasts more power than a GT3❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.evo.co.uk/porsche/911/201802/techart-992-porsche-911-carrera-4s-boasts-more-power-than-a-gt3&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHQfF2b3PIiQgHE6EAwQtK-SL5kNg'> link</a>
+👉Mario & Luigi RPG developer AlphaDream has gone bankrupt❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://metro.co.uk/2019/10/02/mario-luigi-rpg-developer-alphadream-gone-bankrupt-10848624/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHDwsRu1VQk_zYC9WyDoiutTYc7yA'> link</a>
 
-👉🏽iOS 13: Security and privacy settings you need to tweak and check❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.zdnet.com/article/ios-13-security-and-privacy-settings-you-need-to-tweak-and-check/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGOJrFIlHWSKeg8fPPSfj8ATwYf1w'> link</a>
+👉🏽Siri will soon default to the messaging apps you prefer, not just iMessage❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/10/2/20894806/siri-apple-third-party-messaging-apps-whatsapp-imessage-calls&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEtZ__2U0-sSLSdTtpY5qDojzUSPA'> link</a>
 
-👉🏿Call of Duty: Mobile now available to play on both Android and iOS❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.techradar.com/news/call-of-duty-mobile-now-available-on-android-and-ios&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEvtF74572AdBKOhsxzJOz8zTS-qg'> link</a>
+👉🏿The Internet's horrifying new method for installing Google apps on Huawei phones❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://arstechnica.com/gadgets/2019/10/the-internets-horrifying-new-method-for-installing-google-apps-on-huawei-phones/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHrwfa_vQwFgJliaTE24-BoV5cAVg'> link</a>
 
