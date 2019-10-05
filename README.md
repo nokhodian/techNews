@@ -1,20 +1,20 @@
-<b>Technology NEWS on Friday, October 4th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Saturday, October 5th, 2019</b> 📡📡📡 
 
-👉Microsoft Surface: Saving the future of PCs❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.computerworld.com/article/3444178/microsoft-surface-saving-the-future-of-pcs.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNF6Caqr8GWmp7VG-Kvh_a0a8RdkBw'> link</a>
+👉Security News This Week: A Bug in Popular Android Smartphones Gives Hackers Full Control❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.wired.com/story/android-smartphone-hacking-fcc-bots-voatz-security-news/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEVHMkHB4KyOga1wb7FtOTWy3JnCQ'> link</a>
 
-👉🏽In this, the month of Luigi, how are you celebrating?❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://venturebeat.com/2019/10/04/month-of-luigi/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFloi27BijDNyrqQeybN3F0t2f9ig'> link</a>
+👉🏽What Is Hot Yoga For?❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://slate.com/human-interest/2019/10/hot-yoga-point-not-about-exercise-fun.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEUXy3Tqhk4DRCCm4LV-WPiLnM0Xw'> link</a>
 
-👉🏿The Galaxy Fold fell short of Samsung's claims in folding torture test❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/10/4/20898484/samsung-galaxy-fold-folding-test-failure-durability&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNH65mABU1p8bfajgumRbudYEgGQ4g'> link</a>
+👉🏿Tim Cook tweets in memory of Steve Jobs on anniversary of his passing❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://9to5mac.com/2019/10/05/tim-cook-tweets-in-memory-of-steve-jobs-on-anniversary-of-his-passing/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGquEub7w33nPBSnYi4NT6tXZeMxQ'> link</a>
 
-👉Google finds Android zero day that can take control of Pixel and Galaxy devices❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/10/4/20898460/android-security-vulnerability-project-zero-pixel-galaxy-huawei-xiaomi&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHvxHlsbRj8rAspHemZ8lcxXaI1wQ'> link</a>
+👉Microsoft's embrace of Google's Android software is bigger than its new phone❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/microsofts-embrace-of-googles-android-software-is-bigger-than-its-new-phone/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEAP9bTobwn2r6iOFMC3oPVC8VDrg'> link</a>
 
-👉🏽Best Apple Watch Case❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://bgr.com/2019/10/04/best-apple-watch-case/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGZ24QZuFMMRmrxfUb00xh5V1whxA'> link</a>
+👉🏽Steven Soderbergh will need to upgrade to the iPhone 11 Pro for his next film❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/steven-soderbergh-will-need-to-upgrade-to-the-iphone-11-pro-for-his-next-film/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHRNtNVBEbtj_o-bOojwirlU0j9XA'> link</a>
 
-👉🏿Call of Duty Mobile overloads servers, becomes #1 iOS app in 100+ countries❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://9to5mac.com/2019/10/04/1-ios-app/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFRkq2eZY4uqSVGXhfQJhE58kIyag'> link</a>
+👉🏿Apple Watch 5 vs Galaxy Watch Active 2: Which Smartwatch Wins?❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.tomsguide.com/face-off/apple-watch-5-vs-samsung-galaxy-watch-active-2&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFl1OTGhWgbCTuFnxBG38viaVHZOg'> link</a>
 
-👉Friday Fortnite Week 9 Oct. 4 - Time, Bracket, Teams, Who Won & How to Watch❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.newsweek.com/friday-fortnite-week-9-time-bracket-teams-who-won-october-watch-1463183&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEVtx4WxKgPRXMZFMjY0uMp6qjBxQ'> link</a>
+👉Kim Komando shares 9 new features in iOS 13 you'll use time and time again❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.foxnews.com/tech/kim-komando-shares-9-new-features-in-ios-13-youll-use-time-and-time-again&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFrc0r8ExwoobYCyg9BDtFgNs802g'> link</a>
 
-👉🏽Death Stranding: will Hideo Kojima's mystery project redefine gaming?❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theguardian.com/games/2019/oct/04/death-stranding-hideo-kojima-bionic-woman-guillermo-del-toro&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEM1YUq2MGfclnUhRnSCR7I4x5C_Q'> link</a>
+👉🏽4 iPhone 11 camera features you should use if you want better photos❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/how-to/4-iphone-11-camera-features-you-should-use-if-you-want-better-photos/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNG7CwSs1gHx_6hHFzuc3jlsmx9DoA'> link</a>
 
-👉🏿Brand new leak confirms all the best new features coming to the Pixel 4 and Pixel 4 XL❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://bgr.com/2019/10/04/pixel-4-leaks-confirmed-in-official-pixel-tips-app-update/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNF216_u2uzTzAU1oGTyYCYfI1HjGw'> link</a>
+👉🏿OnePlus 7T, Realme XT, Redmi K20: Best phones to buy in October❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.indiatoday.in/technology/buying-guide/story/oneplus-7t-realme-xt-redmi-k20-best-phones-to-buy-in-october-1606522-2019-10-05&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGk8aTIq6hh12uLrPH4G-EoVprJzw'> link</a>
 
