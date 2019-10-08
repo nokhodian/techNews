@@ -1,20 +1,20 @@
-<b>Technology NEWS on Monday, October 7th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Tuesday, October 8th, 2019</b> 📡📡📡 
 
-👉Spotify rolls out Siri support and new Apple TV app❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/10/7/20902604/spotify-siri-feature-iphone-ipad-design-apple-tv-app-available&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNH0s8g9bTmdmyiNMWqDNtYUWuRWLA'> link</a>
+👉New Google Android Update Warning Issued To Hundreds Of Millions Of Users❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/kateoflahertyuk/2019/10/08/new-google-android-update-warning-issued-to-hundreds-of-millions-of-users/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHhZyKjDWhxJXdXLqq8tg1Rij3wEQ'> link</a>
 
-👉🏽Intel Benchmarks Core i9 Chips, Preps New Xeon Desktop Line❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcmag.com/news/371166/intel-benchmarks-core-i9-chips-preps-new-xeon-desktop-line&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNE8mGh26fA0tw93v-mDgztxJ8eXzQ'> link</a>
+👉🏽Fortnite: Where To Find The Floating Island Visitor Tape Location❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/paultassi/2019/10/08/fortnite-where-to-find-the-floating-island-visitor-tape-location/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFpCPFQEmVfo-XAO6oYubjwjjHYuw'> link</a>
 
-👉🏿Apple's own Sleep app inadvertently disclosed in Alarms App Store listing❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://appleinsider.com/articles/19/10/07/apples-own-sleep-app-inadvertently-disclosed-in-alarms-app-store-listing&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFeITI2YwGeXs37_WLkvPeT52r6Dg'> link</a>
+👉🏿Samsung Galaxy Watch Active 2 review: 'good' is as good as it gets❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/10/8/20903452/samsung-galaxy-watch-active-2-review-fitness-tizen-apps-features-android-price&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFxpIiu17AyTrKcje9FahyVaKy0jA'> link</a>
 
-👉Indivisible Review❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.ign.com/articles/2019/10/07/indivisible-review&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFfYJhIX9RVYb7lT7QXVR_uDX1MBQ'> link</a>
+👉Chromebook 101: How to add another user to your Chromebook❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/10/8/20895929/chromebook-chrome-os-add-user-login-how-to&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFqL7JqbfADj_83KbMnnkycCkuPHw'> link</a>
 
-👉🏽AMD's Radeon RX 5500 graphics card brings Navi to the masses with 'next level 1080p gaming'❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcworld.com/article/3444401/amds-radeon-rx-5500-graphics-card-specs-features.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFbBkLnzRLbVJXEQDLOHfvNPRHUgg'> link</a>
+👉🏽UPDATE 1-"Call of Duty: Mobile" smashes records with 100 mln downloads in first week❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.reuters.com/article/activision-call-of-duty/update-1-call-of-duty-mobile-smashes-records-with-100-mln-downloads-in-first-week-idUSL3N26T2MZ&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGr3i5QbHzkin6xI-yj-V7Y0tRong'> link</a>
 
-👉🏿Samsung's Chromebook 4 and Chromebook 4+ offer affordable, small luxuries❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcworld.com/article/3444203/samsungs-chromebook-4-and-chromebook-4-offer-affordable-small-luxuries.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHtKNZuGzFo6FGczT4SLMLcMcl63A'> link</a>
+👉🏿Behold: This is the all-screen iPhone 12 Pro of our dreams❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://bgr.com/2019/10/08/iphone-12-release-date-coming-design-leaks-video/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEvqQcxyqpy55VckXfUHZT4TOqUTg'> link</a>
 
-👉Want your kids to read more? Amazon has a new Kindle for them❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.usatoday.com/story/tech/talkingtech/2019/10/07/amazon-announces-kindle-for-kids/3863191002/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEGD6F8CEmqCqg0tesOm5J0B_vItw'> link</a>
+👉Amazon Fire HD 10 Kids Edition❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://gadgets.ndtv.com/amazon-fire-hd-10-kids-edition-price-in-india-91199&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEBcbF9tAdeKrzrwvdCX_6e3pOQsQ'> link</a>
 
-👉🏽Release of Apple Watch 5 means you can save on a slightly older model❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.chicagotribune.com/consumer-reviews/sns-bestreviews-tech-apple-watch-5-release-save-on-gen-4-20191007-story.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEUjXq0HWGVGXITmIeVbBIDx2yhlA'> link</a>
+👉🏽PUBG Mobile 0.15.0 Update to Bring BRDM-2 Vehicle, Ledge Grab Mechanism, and Exploding Gas Cans❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://gadgets.ndtv.com/games/news/pubg-mobile-0-15-0-update-ledge-grab-brdm-2-vehicle-exploding-gas-cans-october-2113643&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGQBC29ph2GCBB96vKzB_Alm_xshA'> link</a>
 
-👉🏿Get an unlocked Google Pixel 3 for $409.99❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/get-an-unlocked-google-pixel-3-for-409-99/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHxzsmDgG5fcZW3IwSBsV996V1Ijg'> link</a>
+👉🏿Hearthstone player banned for supporting Hong Kong protesters during live stream❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/10/8/20904308/hearthstone-player-blitzchung-hong-kong-protesters-ban-blizzard&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEdrIHc7JDQqF3nKSNTCqFO9Zy-Vg'> link</a>
 
