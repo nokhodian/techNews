@@ -1,20 +1,20 @@
-<b>Technology NEWS on Thursday, October 10th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Friday, October 11th, 2019</b> 📡📡📡 
 
-👉Soon, Steam Will Let You Play Local Multiplayer Games Online❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://kotaku.com/soon-steam-will-let-you-play-local-multiplayer-games-o-1838935673&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFTKPeorNETA6nyfSSeb1jtk-GlmQ'> link</a>
+👉Untitled Goose Game needs this character creator❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcgamer.com/uk/untitled-goose-game-needs-this-character-creator/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNH-5sJ_AItEkRP9oMLFhA_5kzB2mw'> link</a>
 
-👉🏽iPhone 11 and Pixel 4 cameras' secret sauce: Why computational photography matters❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/iphone-11-pixel-4-camera-secret-sauce-why-computational-photography-matters/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGEChSrZEqN6ySRzufSmMjxK2iu5A'> link</a>
+👉🏽Google Tasks and Voice both have new dark modes – and here's how to try them❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.techradar.com/news/google-tasks-and-voice-both-have-new-dark-modes-and-heres-how-to-try-them&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEGbHxnP2FJXZGpr4y7jP69j_9T7A'> link</a>
 
-👉🏿Windows 10 to let you make phone calls from PC; here's how❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.financialexpress.com/industry/technology/windows-10-to-let-you-make-phone-calls-from-pc-heres-how/1731956/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNH7pCJfRsZ5ZjgkxK432jB4zJuotA'> link</a>
+👉🏿Why Waze Doesn't Share Traffic Data With Google Maps—Data Sheet❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://fortune.com/2019/10/11/waze-google-maps-how-it-works/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEAcRCQJRe98ci__59jXP-HFu2ezQ'> link</a>
 
-👉The Oppo Reno Ace Charges Unbelievably Fast❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.tomsguide.com/news/oppo-reno-ace&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNE-n1ahMSht3S30oZCCeHNXRvxXQA'> link</a>
+👉Nintendo Switch Brain Age followup gets January launch in Europe❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://venturebeat.com/2019/10/11/nintendo-switch-brain-age-followup-gets-january-launch-in-europe/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGlcPXe52FcVBn_pEjWAXezjJP_UA'> link</a>
 
-👉🏽The Realme X2 Pro could take down the Xiaomi Mi 9T Pro and OnePlus 7T❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.trustedreviews.com/news/the-realme-x2-pro-could-take-down-the-xiaomi-mi-9t-pro-and-oneplus-7t-3945321&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFtQJZxiE96vAUIsxWjh8tp_6UZXw'> link</a>
+👉🏽Redmi 8 to Go on Sale in India Tonight via Flipkart, Mi.com: Price, Offers, Specifications❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://gadgets.ndtv.com/mobiles/news/redmi-8-sale-tonight-price-in-india-rs-7999-xiaomi-specifications-features-2115374&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEFYunhivPoJMrqmQQhytmhpITeTA'> link</a>
 
-👉🏿Untitled Goose Game Is the Most Joyful Video Game of the Year❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.esquire.com/lifestyle/a29416107/untitled-goose-game-video-game-review/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGaQqlWXFnwiOfsYxhkB7wVkdgG6A'> link</a>
+👉🏿Sony WF-1000XM3 headphones review: Stunning sound and exceptional noise cancellation❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.mirror.co.uk/tech/sony-wf-1000xm3-headphones-review-20559851&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGJg5woaM4yYbo8G7BhW5x2YBGfxQ'> link</a>
 
-👉OnePlus 7T Series will get an Amazon special launch: 7T Pro, McLaren Edition to make a starry debut❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://economictimes.indiatimes.com/magazines/panache/oneplus-7t-series-will-get-an-amazon-special-launch-7t-pro-mclaren-edition-to-make-a-starry-debut/articleshow/71519484.cms&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNH2LFuTLllnBOzE-oC2cG2m8wQ6bg'> link</a>
+👉Samsung Galaxy Note 10❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcmag.com/review/371174/samsung-galaxy-note-10&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGlrj9Ly1RgJ-715kcW6Pn5fPW97g'> link</a>
 
-👉🏽[Update: US Unlocked Note 10] October 2019 security patch now rolling out for Galaxy S10, Note 10❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://9to5google.com/2019/10/10/october-patch-galaxy-s10-note-10/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFoGL0BbXBSSeqHyAOwBvinoCIKew'> link</a>
+👉🏽Under Armour edition of Samsung's Galaxy Watch Active 2 arrives today❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.engadget.com/2019/10/11/samsung-galaxy-watch-active-2-under-armour-edition/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFOsPoZMO6kY5hxHzbCa_saEXPqyQ'> link</a>
 
-👉🏿Samsung Galaxy Tab S6, Watch Active 2 and Watch 4G launched: Price, specs and availability❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.indiatoday.in/technology/news/story/samsung-galaxy-tab-s6-watch-active-2-4g-launched-price-specs-availability-1607963-2019-10-10&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNF-r1c5Z0jyiGrCs0RZlt1jkOzobg'> link</a>
+👉🏿iOS 13.2 Public Beta 2 Arrives With Surprise New Features❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/anthonykarcz/2019/10/11/ios-132-public-beta-2-arrives-with-surprise-new-features/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGl5JbgZK-acgOTe1FPesCasyqWwA'> link</a>
 
