@@ -1,20 +1,20 @@
-<b>Technology NEWS on Sunday, October 13th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Monday, October 14th, 2019</b> 📡📡📡 
 
-👉WWE 2K20: Release Date and 'The Fiend' Bray Wyatt Pre-Order Bonus Details❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://bleacherreport.com/articles/2856134-wwe-2k20-release-date-and-the-fiend-bray-wyatt-pre-order-bonus-details&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGkqCJgdhQ85WTMEgDMROH4y4wvhA'> link</a>
+👉Call of Duty: Mobile Controller Support Being Tested, Activision Says❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://gadgets.ndtv.com/games/news/seo-headline-call-of-duty-mobile-controller-support-activision-tencent-games-2116646&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHdrVaRKTyn91Q6dVzZPrpTWshMBQ'> link</a>
 
-👉🏽Why You Should Watch Fortnite's Huge Event Today, And Stick Around For The New Map❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/davidthier/2019/10/13/why-you-should-watch-fortnites-huge-event-today-and-stick-around-for-the-new-map/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHAizpMMlPCMEctT0rSep8tDkUapw'> link</a>
+👉🏽Safari on iOS can be sending your browsing data to China's Tencent❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://appleinsider.com/articles/19/10/14/safari-on-ios-can-be-sending-your-browsing-data-to-chinas-tencent&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGcsakOBlMp6Xbmaq3ubK0R7edhpw'> link</a>
 
-👉🏿What Happens When 'Generation Voice' Grows Up?❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://observer.com/2019/10/voice-assistants-generation-alpha-big-tech-brands-implications/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEbnJjsoickpwIGJaHqcPQAbtIoZA'> link</a>
+👉🏿This Week in Apps: Apple caves to China's App Store demands, Q3 trend outlook, more❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://techcrunch.com/2019/10/12/this-week-in-apps-apple-caves-to-chinas-app-store-demands-q3-trend-outlook-more/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNENCoZ602hN1HsdUaNdj_LvzuYg9g'> link</a>
 
-👉iPhone 11 Pro Max: Taking the camera skateboarding❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/iphone-11-pro-max-taking-the-camera-skateboarding/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEs63y1gob9z64Vszy2DfOnDq0DIw'> link</a>
+👉Honor Vision Smart TV Unveiled at IMC, Will Release in India in Q1 2020❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://gadgets.ndtv.com/tv/news/honor-vision-pro-smart-tv-india-unveiling-release-date-price-expectations-2116641&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEwcfZ2L6DCo_DNihkX8rf9rJEhiA'> link</a>
 
-👉🏽10 Apple Arcade kids games that even parents won't hate❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/10-apple-arcade-kids-games-that-even-parents-wont-hate/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGK09WJ-eyg2sHYY_T3OhL_ks7Wzg'> link</a>
+👉🏽World's top Apple insider just leaked pricing and release timing for the iPhone SE 2❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://bgr.com/2019/10/14/iphone-se-2-release-date-2020-specs-size/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEyH0CC4x4eoNKIBE5drTGjZV_UTg'> link</a>
 
-👉🏿Apple Sidecar: How to use your iPad as a second screen for your Mac❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/how-to/apple-sidecar-how-to-use-your-ipad-as-a-second-screen-for-your-mac/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNG-nTNtVrRLpjdJaoaJObukK9LKtA'> link</a>
+👉🏿Redmi K30 Teaser Posters Reveal Dual Hole-Punch Display, Dual Band 5G Support❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://gadgets.ndtv.com/mobiles/news/redmi-k30-specifications-teaser-posters-reveal-dual-hole-punch-display-5g-sa-nsa-bands-2116637&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGr_VzJdcHu1nIbECMT5Xr5na2Ejw'> link</a>
 
-👉Google bans predatory personal loan apps from the Play Store❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.slashgear.com/google-bans-predatory-personal-loan-apps-from-the-play-store-13595249/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGPSJn8qpA1v-i0fPBDXeTEnfbXSQ'> link</a>
+👉Here Are The Betting Odds For When 'Fortnite' Comes Back Online❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/paultassi/2019/10/14/here-are-the-betting-odds-for-when-fortnite-comes-back-online/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEKu85PeJV62rB0Jy9kwCJAV9ivHg'> link</a>
 
-👉🏽Our Favorite Android Phone Is on Sale Right Now❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.wired.com/story/google-pixel-3a-deal-2019/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEMDgjLEM-b8eDLwGfdG0HXPQE97w'> link</a>
+👉🏽Car Review: 2019 Mercedes-AMG GT 63 S 4-Door Coupe❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://driving.ca/mercedes-benz/amg-gt-4-door/reviews/road-test/car-review-2019-mercedes-amg-gt-63-s-4-door-coupe&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHhmmTTO_omiM5x-lLgaHAAzNoJ4Q'> link</a>
 
-👉🏿Moons of Madness, the horror game set in Funcom's The Secret World universe, is out this month❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcgamer.com/au/moons-of-madness-the-horror-game-set-in-funcoms-the-secret-world-universe-is-out-this-month/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGf385cs073PWssNkTpUWXGUscCIg'> link</a>
+👉🏿Windows 10 Start menu problems: We'll fix them in late October, says Microsoft❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.zdnet.com/article/windows-10-start-menu-problems-well-fix-them-in-late-october-says-microsoft/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFuvyilCCH4Cr3qYPSzQ5xDR94BZA'> link</a>
 
