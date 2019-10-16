@@ -1,20 +1,20 @@
-<b>Technology NEWS on Tuesday, October 15th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Wednesday, October 16th, 2019</b> 📡📡📡 
 
-👉Betting on free speech at the The League of Legends World Championship❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://sports.yahoo.com/betting-free-speech-league-legends-194732151.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHFg4RQ1X3C7jbZ1DTQTgdA1agPWQ'> link</a>
+👉Huawei Mate X unboxing video hints at foldable phone's imminent release❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/huawei-mate-x-unboxing-video-hints-at-foldable-phones-imminent-release/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGL2G-fywf7ye-FDxXstEOsCJtXMg'> link</a>
 
-👉🏽8 noise-cancelling wireless headphones to quiet the world❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://nypost.com/2019/10/15/8-noise-cancelling-wireless-headphones-to-quiet-the-world/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEMNRrXUs06qqrFuImYe9q2AkB63w'> link</a>
+👉🏽Piranha teeth stun researchers after amazing discovery❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.foxnews.com/science/piranha-teeth-stun-researchers-amazing-discovery&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNH2Exyuq_EFIW1N2n3EUYDCBknRrA'> link</a>
 
-👉🏿Last-Minute Leak Shows Official Pixelbook Go In the Flesh❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.laptopmag.com/articles/google-pixelbook-go-specs-price&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGYfxhiNfYDmIpULEV5ulnWdR5KFQ'> link</a>
+👉🏿Mozilla: Firefox 70 brings you these new security indicators❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.zdnet.com/article/mozilla-firefox-70-brings-you-these-new-security-indicators/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEXGFExZtFRedeNbAli88U-o2p3gA'> link</a>
 
-👉Garmin Swim 2 GPS Watch In-Depth Review❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.dcrainmaker.com/2019/10/garmin-swim-2-openwater-pool-gps-watch-review.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEufPlU_gXx-FiX1nz2YzoFih251A'> link</a>
+👉Why Google unveiled only 5 devices this fall, while Amazon announced 15❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/heres-why-google-released-only-5-devices-this-fall-while-amazon-launched-15/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNF1lY8dzimUzdOrlkx_jav7r0Mkyw'> link</a>
 
-👉🏽Ghost Recon Breakpoint update 1.02 out today as Ubisoft responds to feedback❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.thesixthaxis.com/2019/10/15/ghost-recon-update-1-02-patch-notes/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEoZ182rltIVesWlhydOTXYiqo-Xg'> link</a>
+👉🏽You'll need to eat Taco Bell to get Microsoft's Xbox Elite 2 controller early❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/10/16/20916937/microsoft-xbox-one-x-eclipse-limited-edition-console-elite-2-controller-taco-bell&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFTvG5KKxO4g3taEImDi5tKUg1QaA'> link</a>
 
-👉🏿OnePlus looks to add a one-handed mode to future OxygenOS build❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://9to5google.com/2019/10/15/oxygenos-one-handed-mode/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNE1QWUo-JYCI0Axa3NtcSZBKIIkZg'> link</a>
+👉🏿Can the Pixel 4 win back Google's camera crown?❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/10/16/20916938/pixel-4-camera-vs-iphone-11-pro&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGtNkVyS96oBQqFmD4VJQxelwqphQ'> link</a>
 
-👉A Stunning, Customized 430 HP Land Rover Defender 110 6X6 is Up for Sale❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://robbreport.com/lifestyle/news/land-rover-110-black-mamba-2874338/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNG4Gs1_0bhKFTFB2kkf02y_C38vEA'> link</a>
+👉Top Travel Apps For Android And iPhone Fail Privacy And Security Tests❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/daveywinder/2019/10/16/top-travel-apps-for-android-and-iphone-fail-privacy-and-security-tests/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFHlqOpyD2X4-YBquHgnGtSfxlaTg'> link</a>
 
-👉🏽Facebook's new Portal increases privacy, but is still searching for a reason to exist❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://techcrunch.com/2019/10/15/facebooks-new-portal-increases-privacy-but-is-still-searching-for-a-reason-to-exist/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHOS5rEu3yPL7LCJC5EgNjayq0DAQ'> link</a>
+👉🏽PS5 controller could copy a key Google Stadia feature❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.techradar.com/uk/news/ps5-controller-could-copy-a-key-google-stadia-feature&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFwr39n9vCKMJeGwpfOfkYAdlBRyw'> link</a>
 
-👉🏿Hands-on with Microsoft's xCloud game streaming service❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/10/15/20915220/microsoft-xcloud-game-streaming-preview-hands-on&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEI1dMmW5NwKuN0ycZcrasJeEYfBg'> link</a>
+👉🏿Pokémon Sword and Shield revives longcat meme for Gigantamax Meowth❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.eurogamer.net/articles/2019-10-16-pokemon-sword-and-shield-revives-longcat-meme&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNG1O8Mz7ETBRmdiAV10dBJC9IhP8Q'> link</a>
 
