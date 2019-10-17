@@ -1,20 +1,20 @@
-<b>Technology NEWS on Wednesday, October 16th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Thursday, October 17th, 2019</b> 📡📡📡 
 
-👉Huawei Mate X unboxing video hints at foldable phone's imminent release❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/huawei-mate-x-unboxing-video-hints-at-foldable-phones-imminent-release/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGL2G-fywf7ye-FDxXstEOsCJtXMg'> link</a>
+👉Parents talk road safety with your teen driver❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.moultonadvertiser.com/opinion/editorials/article_79331698-f04b-11e9-a813-37eadfa727d6.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHCgy1FYtvJ9-YrRSRlG73_d2UzBA'> link</a>
 
-👉🏽Piranha teeth stun researchers after amazing discovery❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.foxnews.com/science/piranha-teeth-stun-researchers-amazing-discovery&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNH2Exyuq_EFIW1N2n3EUYDCBknRrA'> link</a>
+👉🏽Google Clips Automatic Camera Bites the Dust, Removed From Company Store❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://gadgets.ndtv.com/cameras/news/google-clips-automatic-camera-discontinued-listing-removed-from-store-2118498&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHcBxqxQxpDoM5LJeKNdQ4xff1Avw'> link</a>
 
-👉🏿Mozilla: Firefox 70 brings you these new security indicators❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.zdnet.com/article/mozilla-firefox-70-brings-you-these-new-security-indicators/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEXGFExZtFRedeNbAli88U-o2p3gA'> link</a>
+👉🏿Asus ZenBook Pro Duo UX581, ZenBook Duo UX481 Launched in India Starting Rs. 89990❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://gadgets.ndtv.com/laptops/news/asus-zenbook-pro-duo-13-14-15-vivobook-s431-s532-price-in-india-launch-specifications-2118482&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEgWGq9DJuR8SRIv022roq50ekIOQ'> link</a>
 
-👉Why Google unveiled only 5 devices this fall, while Amazon announced 15❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/heres-why-google-released-only-5-devices-this-fall-while-amazon-launched-15/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNF1lY8dzimUzdOrlkx_jav7r0Mkyw'> link</a>
+👉Google's mobile data-saving app Datally removed from the Play Store❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://9to5google.com/2019/10/17/google-datally/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEE-7h05qE3nCzrtd-cj0nL9BfzVA'> link</a>
 
-👉🏽You'll need to eat Taco Bell to get Microsoft's Xbox Elite 2 controller early❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/10/16/20916937/microsoft-xbox-one-x-eclipse-limited-edition-console-elite-2-controller-taco-bell&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFTvG5KKxO4g3taEImDi5tKUg1QaA'> link</a>
+👉🏽Ring Fit Adventure review: two weeks with Nintendo's charming exercise RPG❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/10/17/20917908/nintendo-switch-ring-fit-adventure-review&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEskp3uwJbL_Dj2wZANL4vS_KJTPg'> link</a>
 
-👉🏿Can the Pixel 4 win back Google's camera crown?❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/10/16/20916938/pixel-4-camera-vs-iphone-11-pro&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGtNkVyS96oBQqFmD4VJQxelwqphQ'> link</a>
+👉🏿7 of the most epic Fortnite events: Black hole, giant mech and rockets❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/7-of-the-most-epic-fortnite-events-black-hole-giant-mech-and-rockets/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFKH_k45JYkoHH89_J4oO42VOIo3Q'> link</a>
 
-👉Top Travel Apps For Android And iPhone Fail Privacy And Security Tests❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/daveywinder/2019/10/16/top-travel-apps-for-android-and-iphone-fail-privacy-and-security-tests/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFHlqOpyD2X4-YBquHgnGtSfxlaTg'> link</a>
+👉Arlo's Video Doorbell is like an Arlo security camera for your front door❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/arlos-video-doorbell-is-like-an-arlo-security-camera-for-your-front-door/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEGE7INLA7qADZHlk6CqMPuLL4WhA'> link</a>
 
-👉🏽PS5 controller could copy a key Google Stadia feature❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.techradar.com/uk/news/ps5-controller-could-copy-a-key-google-stadia-feature&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFwr39n9vCKMJeGwpfOfkYAdlBRyw'> link</a>
+👉🏽Every Google Assistant command you want to give your Home or Nest speaker❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/how-to/every-google-assistant-command-you-want-to-give-your-home-or-nest-speaker/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGO1T4xSSxP9XVHDpM4JGZRMRTKvg'> link</a>
 
-👉🏿Pokémon Sword and Shield revives longcat meme for Gigantamax Meowth❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.eurogamer.net/articles/2019-10-16-pokemon-sword-and-shield-revives-longcat-meme&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNG1O8Mz7ETBRmdiAV10dBJC9IhP8Q'> link</a>
+👉🏿Half-Life VR game could land on Valve Index this year – but is it Half Life 3?❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.techradar.com/in/news/half-life-vr-game-could-land-on-valve-index-this-year-but-is-it-half-life-3&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEYWVX2Ol_o6aZACgBf0gZqLDImgA'> link</a>
 
