@@ -1,20 +1,20 @@
-<b>Technology NEWS on Thursday, October 17th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Friday, October 18th, 2019</b> 📡📡📡 
 
-👉Parents talk road safety with your teen driver❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.moultonadvertiser.com/opinion/editorials/article_79331698-f04b-11e9-a813-37eadfa727d6.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHCgy1FYtvJ9-YrRSRlG73_d2UzBA'> link</a>
+👉Call of Duty League: How Activision reimagined its city-based esports structure❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://venturebeat.com/2019/10/18/call-of-duty-league-how-activision-reimagined-its-city-based-esports-structure/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNE-UkdFR8UkbN62rfqBWeyHhi1a4w'> link</a>
 
-👉🏽Google Clips Automatic Camera Bites the Dust, Removed From Company Store❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://gadgets.ndtv.com/cameras/news/google-clips-automatic-camera-discontinued-listing-removed-from-store-2118498&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHcBxqxQxpDoM5LJeKNdQ4xff1Avw'> link</a>
+👉🏽Nintendo's Ring Fit Adventure has the perfect party games for when you're slightly drunk❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/10/18/20917245/nintendo-ring-fit-adventure-minigame-switch-mario-party-game&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFKDhQSR3KzAsZGg_94TkJiUbnCpQ'> link</a>
 
-👉🏿Asus ZenBook Pro Duo UX581, ZenBook Duo UX481 Launched in India Starting Rs. 89990❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://gadgets.ndtv.com/laptops/news/asus-zenbook-pro-duo-13-14-15-vivobook-s431-s532-price-in-india-launch-specifications-2118482&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEgWGq9DJuR8SRIv022roq50ekIOQ'> link</a>
+👉🏿Pixel Buds 2: The lowdown on Google's new 'floating' wireless earbuds for 2020❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/how-to/pixel-buds-2-the-lowdown-on-googles-new-floating-wireless-earbuds-for-2020/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEkesqlDL1dV8zaTouuBByn_zelsQ'> link</a>
 
-👉Google's mobile data-saving app Datally removed from the Play Store❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://9to5google.com/2019/10/17/google-datally/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEE-7h05qE3nCzrtd-cj0nL9BfzVA'> link</a>
+👉Pre-Black Friday Sale: Save $600 on Surface Pro 6❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.laptopmag.com/articles/microsoft-surface-pro-6-600-off&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEL0DHIC9CZLEHXPYxd8KP8akQIEw'> link</a>
 
-👉🏽Ring Fit Adventure review: two weeks with Nintendo's charming exercise RPG❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/10/17/20917908/nintendo-switch-ring-fit-adventure-review&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEskp3uwJbL_Dj2wZANL4vS_KJTPg'> link</a>
+👉🏽AMD Ryzen 9 3900X vs. Intel Core i9-9900K: Which High-End CPU to Buy?❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcmag.com/compare/370690/amd-ryzen-9-3900x-vs-intel-core-i9-9900k-which-high-end-cp&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNF6r_Kg6yvswqANskoOi2ySyq_Gkg'> link</a>
 
-👉🏿7 of the most epic Fortnite events: Black hole, giant mech and rockets❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/7-of-the-most-epic-fortnite-events-black-hole-giant-mech-and-rockets/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFKH_k45JYkoHH89_J4oO42VOIo3Q'> link</a>
+👉🏿OnePlus 7T Review: The Best Software And Screen❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/bensin/2019/10/18/oneplus-7t-review-the-best-software-and-screen/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFoj9eBtU0IbwLi58YW_NQqpQwFSg'> link</a>
 
-👉Arlo's Video Doorbell is like an Arlo security camera for your front door❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/arlos-video-doorbell-is-like-an-arlo-security-camera-for-your-front-door/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEGE7INLA7qADZHlk6CqMPuLL4WhA'> link</a>
+👉Windows 10 Security Alert As Microsoft Warns: 'Do Not Install This Update'❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/daveywinder/2019/10/18/windows-10-security-alert-as-microsoft-warns-do-not-install-this-update/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHB65m7wsBrXrQ14P-sIU4z7ux1tg'> link</a>
 
-👉🏽Every Google Assistant command you want to give your Home or Nest speaker❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/how-to/every-google-assistant-command-you-want-to-give-your-home-or-nest-speaker/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGO1T4xSSxP9XVHDpM4JGZRMRTKvg'> link</a>
+👉🏽All-female spacewalk marks a new milestone for NASA — watch live❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cbsnews.com/news/all-female-spacewalk-watch-live-stream-nasa-astronauts-spacewalk-today-2019-10-18/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEXKE5oPJvfrzqg_CLonuOtDDwQGw'> link</a>
 
-👉🏿Half-Life VR game could land on Valve Index this year – but is it Half Life 3?❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.techradar.com/in/news/half-life-vr-game-could-land-on-valve-index-this-year-but-is-it-half-life-3&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEYWVX2Ol_o6aZACgBf0gZqLDImgA'> link</a>
+👉🏿Amazon Echo Dot With Clock❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcmag.com/review/371359/amazon-echo-dot-with-clock&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNE_RL8SwqAabB4v25m7bFILw3Pzmg'> link</a>
 
