@@ -1,20 +1,20 @@
-<b>Technology NEWS on Friday, October 18th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Saturday, October 19th, 2019</b> 📡📡📡 
 
-👉Call of Duty League: How Activision reimagined its city-based esports structure❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://venturebeat.com/2019/10/18/call-of-duty-league-how-activision-reimagined-its-city-based-esports-structure/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNE-UkdFR8UkbN62rfqBWeyHhi1a4w'> link</a>
+👉Why can't I watch Netflix on my old Roku?❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.usatoday.com/story/tech/talkingtech/2019/10/19/why-netflix-disney-and-apple-tv-wont-work-old-roku-devices/4012976002/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHMWoRO2YlBIlXF_PoIdbz-mMMVRw'> link</a>
 
-👉🏽Nintendo's Ring Fit Adventure has the perfect party games for when you're slightly drunk❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/10/18/20917245/nintendo-ring-fit-adventure-minigame-switch-mario-party-game&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFKDhQSR3KzAsZGg_94TkJiUbnCpQ'> link</a>
+👉🏽How to get the best Nintendo Switch Black Friday deals❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.techradar.com/uk/how-to/how-to-get-the-best-nintendo-switch-black-friday-deal&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHgrINVOzG5WZEo1SGTHTZ5uWxFcQ'> link</a>
 
-👉🏿Pixel Buds 2: The lowdown on Google's new 'floating' wireless earbuds for 2020❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/how-to/pixel-buds-2-the-lowdown-on-googles-new-floating-wireless-earbuds-for-2020/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEkesqlDL1dV8zaTouuBByn_zelsQ'> link</a>
+👉🏿Pixel 4 vs. iPhone 11: Google's phone is the pricier one, surprisingly❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/pixel-4-vs-iphone-11-googles-phone-is-the-pricier-one-surprisingly/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEL6To5oPrIeisHIG0JoCEotC_ALw'> link</a>
 
-👉Pre-Black Friday Sale: Save $600 on Surface Pro 6❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.laptopmag.com/articles/microsoft-surface-pro-6-600-off&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEL0DHIC9CZLEHXPYxd8KP8akQIEw'> link</a>
+👉Fortnite Chapter 2: 9 hidden changes you may not have noticed❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/fortnite-chapter-2-10-hidden-changes-you-may-not-have-noticed/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNH06kbCEqaDleTVVLncbLt78e0q0A'> link</a>
 
-👉🏽AMD Ryzen 9 3900X vs. Intel Core i9-9900K: Which High-End CPU to Buy?❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcmag.com/compare/370690/amd-ryzen-9-3900x-vs-intel-core-i9-9900k-which-high-end-cp&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNF6r_Kg6yvswqANskoOi2ySyq_Gkg'> link</a>
+👉🏽Microsoft: Why our new Surface line-up really does have something for everyone❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.techradar.com/uk/news/microsoft-why-our-new-surface-line-up-really-does-have-something-for-everyone&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEZz7uRCD6rtQRvS3aH1Mcd7_4jaQ'> link</a>
 
-👉🏿OnePlus 7T Review: The Best Software And Screen❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/bensin/2019/10/18/oneplus-7t-review-the-best-software-and-screen/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFoj9eBtU0IbwLi58YW_NQqpQwFSg'> link</a>
+👉🏿Android 10 arrives for the OnePlus 6/6T in Open Beta❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.androidpolice.com/2019/10/19/android-10-arrives-for-the-oneplus-6-6t-in-open-beta/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGaXhfU4uA8St_awxluBNlnCPDyZA'> link</a>
 
-👉Windows 10 Security Alert As Microsoft Warns: 'Do Not Install This Update'❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/daveywinder/2019/10/18/windows-10-security-alert-as-microsoft-warns-do-not-install-this-update/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHB65m7wsBrXrQ14P-sIU4z7ux1tg'> link</a>
+👉iPhone SE2 is coming, and it could be huge (but also kinda small)❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/iphone-se2-is-coming-and-it-could-be-huge-but-also-kinda-small/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGdk5LmRB0vn00Ky43EUF-QEmCYRA'> link</a>
 
-👉🏽All-female spacewalk marks a new milestone for NASA — watch live❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cbsnews.com/news/all-female-spacewalk-watch-live-stream-nasa-astronauts-spacewalk-today-2019-10-18/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEXKE5oPJvfrzqg_CLonuOtDDwQGw'> link</a>
+👉🏽Pixel 4 vs. OnePlus 7T: Which Is the Better Android Phone?❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.tomsguide.com/face-off/pixel-4-vs-oneplus-7t&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGGsWQXCNURaYvHMfhgr2Z2g7FOUQ'> link</a>
 
-👉🏿Amazon Echo Dot With Clock❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcmag.com/review/371359/amazon-echo-dot-with-clock&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNE_RL8SwqAabB4v25m7bFILw3Pzmg'> link</a>
+👉🏿How to use voice control in macOS Catalina❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.techradar.com/uk/how-to/how-to-use-voice-control-in-macos-catalina&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFME6ajWz3QSuajEGph3B1IzWO8-A'> link</a>
 
