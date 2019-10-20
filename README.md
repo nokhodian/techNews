@@ -1,20 +1,20 @@
-<b>Technology NEWS on Saturday, October 19th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Sunday, October 20th, 2019</b> 📡📡📡 
 
-👉Why can't I watch Netflix on my old Roku?❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.usatoday.com/story/tech/talkingtech/2019/10/19/why-netflix-disney-and-apple-tv-wont-work-old-roku-devices/4012976002/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHMWoRO2YlBIlXF_PoIdbz-mMMVRw'> link</a>
+👉New haptic arm places robotics within easy reach❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.sciencedaily.com/releases/2019/10/191020084936.htm&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNE7jccJUoMMtQtI9csvAQ13gIuimQ'> link</a>
 
-👉🏽How to get the best Nintendo Switch Black Friday deals❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.techradar.com/uk/how-to/how-to-get-the-best-nintendo-switch-black-friday-deal&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHgrINVOzG5WZEo1SGTHTZ5uWxFcQ'> link</a>
+👉🏽NASA's InSight lander can finally dig a hole for its Mars heat probe❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.engadget.com/2019/10/20/nasa-insight-heat-probe-can-dig-at-last/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEZpEFer5hV5dNOdl8j0GkKrJrX6Q'> link</a>
 
-👉🏿Pixel 4 vs. iPhone 11: Google's phone is the pricier one, surprisingly❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/pixel-4-vs-iphone-11-googles-phone-is-the-pricier-one-surprisingly/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEL6To5oPrIeisHIG0JoCEotC_ALw'> link</a>
+👉🏿Why I Haven't Upgraded to macOS Catalina❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.laptopmag.com/articles/waiting-for-macos-catalina&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNG01pC3mrwC9clJytYkfaimJRcjyA'> link</a>
 
-👉Fortnite Chapter 2: 9 hidden changes you may not have noticed❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/fortnite-chapter-2-10-hidden-changes-you-may-not-have-noticed/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNH06kbCEqaDleTVVLncbLt78e0q0A'> link</a>
+👉AT&T left me speechless when I asked about the Samsung Galaxy Fold❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.zdnet.com/article/at-t-left-me-speechless-when-i-asked-about-the-samsung-galaxy-fold/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEZe63adJOIJ4EwZYZBCAq3ifLBTg'> link</a>
 
-👉🏽Microsoft: Why our new Surface line-up really does have something for everyone❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.techradar.com/uk/news/microsoft-why-our-new-surface-line-up-really-does-have-something-for-everyone&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEZz7uRCD6rtQRvS3aH1Mcd7_4jaQ'> link</a>
+👉🏽Amazing PS Plus deal goes live ahead of November free PS4 games reveal❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.express.co.uk/entertainment/gaming/1193130/PS-Plus-deal-November-free-PS4-games-PlayStation-October&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHWeHABidnmLkYN6GIBOH9qW8i8hQ'> link</a>
 
-👉🏿Android 10 arrives for the OnePlus 6/6T in Open Beta❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.androidpolice.com/2019/10/19/android-10-arrives-for-the-oneplus-6-6t-in-open-beta/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGaXhfU4uA8St_awxluBNlnCPDyZA'> link</a>
+👉🏿A German Banking Giant Made Big Bets on Uber, Lyft, Beyond Meat, and Slack Stock❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.barrons.com/articles/a-german-banking-giant-made-big-bets-on-uber-lyft-beyond-meat-and-slack-stock-51571571058&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGy0e1dgBmLds6gjL2g1tebliLoLQ'> link</a>
 
-👉iPhone SE2 is coming, and it could be huge (but also kinda small)❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/iphone-se2-is-coming-and-it-could-be-huge-but-also-kinda-small/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGdk5LmRB0vn00Ky43EUF-QEmCYRA'> link</a>
+👉Amazon Great Indian Festival sale: OnePlus 7, iPhone XR and other smartphones available at discount❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.gadgetsnow.com/tech-news/amazon-great-indian-festival-sale-oneplus-7-iphone-xr-and-other-smartphones-available-at-discount/articleshow/71673522.cms&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNE2DGOZpTtNGgWr5cj4aSC7mfq9Vg'> link</a>
 
-👉🏽Pixel 4 vs. OnePlus 7T: Which Is the Better Android Phone?❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.tomsguide.com/face-off/pixel-4-vs-oneplus-7t&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGGsWQXCNURaYvHMfhgr2Z2g7FOUQ'> link</a>
+👉🏽Google Home, Nest Mini, Nest Wifi: Set up whole-home audio the right way❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/how-to/google-home-nest-mini-nest-wifi-set-up-whole-home-audio-the-right-way/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGwU1FVW67c4cSnk0WYOWhx4LUZug'> link</a>
 
-👉🏿How to use voice control in macOS Catalina❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.techradar.com/uk/how-to/how-to-use-voice-control-in-macos-catalina&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFME6ajWz3QSuajEGph3B1IzWO8-A'> link</a>
+👉🏿How to Control the Privacy of Your Social Media Posts❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.wired.com/story/facebook-instagram-twitter-posts-private&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHp_wWO_dbTJBIA3jQk6XMdVuB1qg'> link</a>
 
