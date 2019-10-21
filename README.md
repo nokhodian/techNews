@@ -1,20 +1,20 @@
-<b>Technology NEWS on Sunday, October 20th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Monday, October 21st, 2019</b> 📡📡📡 
 
-👉New haptic arm places robotics within easy reach❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.sciencedaily.com/releases/2019/10/191020084936.htm&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNE7jccJUoMMtQtI9csvAQ13gIuimQ'> link</a>
+👉Surface Laptop 3 review: AMD Ryzen makes a great 15-inch Surface, but Intel's version may be better❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcworld.com/article/3446757/surface-laptop-3-review-amd-ryzen.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHjwfJvALef7Fbi8fJou2gk0MHxwA'> link</a>
 
-👉🏽NASA's InSight lander can finally dig a hole for its Mars heat probe❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.engadget.com/2019/10/20/nasa-insight-heat-probe-can-dig-at-last/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEZpEFer5hV5dNOdl8j0GkKrJrX6Q'> link</a>
+👉🏽Google Pixel 4 and 4 XL review: more than the sum of its sensors❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/10/21/20923660/google-pixel-4-xl-review-camera-radar-face-unlock-90hz-display-telephoto&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEUnIq_V3VTyEyKQsSTOOrLa_aFtQ'> link</a>
 
-👉🏿Why I Haven't Upgraded to macOS Catalina❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.laptopmag.com/articles/waiting-for-macos-catalina&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNG01pC3mrwC9clJytYkfaimJRcjyA'> link</a>
+👉🏿Faux flesh phone cases: Does your device need a covering that feels like human skin?❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.usatoday.com/story/tech/2019/10/21/phone-cases-made-faux-human-skin-next-big-thing/4051017002/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFemOy8PWEwD5hTBB5Oq5JSr-pBAQ'> link</a>
 
-👉AT&T left me speechless when I asked about the Samsung Galaxy Fold❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.zdnet.com/article/at-t-left-me-speechless-when-i-asked-about-the-samsung-galaxy-fold/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEZe63adJOIJ4EwZYZBCAq3ifLBTg'> link</a>
+👉Samsung Linux on DeX is dead, here are open source alternatives❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.slashgear.com/samsung-linux-on-dex-is-dead-here-are-open-source-alternatives-21596310/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFNYxSzNZ9hBsRNhQtGesWXlSy7Qw'> link</a>
 
-👉🏽Amazing PS Plus deal goes live ahead of November free PS4 games reveal❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.express.co.uk/entertainment/gaming/1193130/PS-Plus-deal-November-free-PS4-games-PlayStation-October&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHWeHABidnmLkYN6GIBOH9qW8i8hQ'> link</a>
+👉🏽Apple TV app crashes plague small number of users before Apple TV+ launches❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://appleinsider.com/articles/19/10/21/apple-tv-app-crashes-plague-small-number-of-users-before-apple-tv-launches&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHOFjHRvNP1xbuxNszaHIIzwnBzhg'> link</a>
 
-👉🏿A German Banking Giant Made Big Bets on Uber, Lyft, Beyond Meat, and Slack Stock❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.barrons.com/articles/a-german-banking-giant-made-big-bets-on-uber-lyft-beyond-meat-and-slack-stock-51571571058&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGy0e1dgBmLds6gjL2g1tebliLoLQ'> link</a>
+👉🏿OxygenOS 10.0.4 rolling out for the OnePlus 7T, 7T Pro w/ more camera boosts❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://9to5google.com/2019/10/21/oxygenos-10-0-4-oneplus-7t/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEi5yAJFOw3DP6w9sxebwHwt3PSPQ'> link</a>
 
-👉Amazon Great Indian Festival sale: OnePlus 7, iPhone XR and other smartphones available at discount❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.gadgetsnow.com/tech-news/amazon-great-indian-festival-sale-oneplus-7-iphone-xr-and-other-smartphones-available-at-discount/articleshow/71673522.cms&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNE2DGOZpTtNGgWr5cj4aSC7mfq9Vg'> link</a>
+👉Moto G8 to Rival Xiaomi, Realme and Others; Renders Leaked Ahead of Launch❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.news18.com/news/tech/moto-g8-to-rival-xiaomi-realme-and-others-renders-leaked-ahead-of-launch-2355321.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGHEWBzj-PG4HjE6kTmaFbc26IlLQ'> link</a>
 
-👉🏽Google Home, Nest Mini, Nest Wifi: Set up whole-home audio the right way❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/how-to/google-home-nest-mini-nest-wifi-set-up-whole-home-audio-the-right-way/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGwU1FVW67c4cSnk0WYOWhx4LUZug'> link</a>
+👉🏽Rocket Lab Aims for the Moon and Beyond with New Photon Satellite Platform❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.space.com/rocket-lab-photon-moon-missions.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHFo_ADQuRun5z-MQvQhj6nGuf5qw'> link</a>
 
-👉🏿How to Control the Privacy of Your Social Media Posts❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.wired.com/story/facebook-instagram-twitter-posts-private&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHp_wWO_dbTJBIA3jQk6XMdVuB1qg'> link</a>
+👉🏿Games of the week❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.inverness-courier.co.uk/lifestyle/games-of-the-week-184326/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHUfoBznU0Q6XnNaS4ZQnmEQiIrCw'> link</a>
 
