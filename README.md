@@ -1,20 +1,20 @@
-<b>Technology NEWS on Monday, October 21st, 2019</b> 📡📡📡 
+<b>Technology NEWS on Tuesday, October 22nd, 2019</b> 📡📡📡 
 
-👉Surface Laptop 3 review: AMD Ryzen makes a great 15-inch Surface, but Intel's version may be better❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcworld.com/article/3446757/surface-laptop-3-review-amd-ryzen.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHjwfJvALef7Fbi8fJou2gk0MHxwA'> link</a>
+👉The Outer Worlds game review – fallout in space (and without the bugs)❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://metro.co.uk/2019/10/22/the-outer-worlds-game-review-fallout-in-space-and-without-the-bugs-10962207/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFSdl3zk7ALlJsN2ljUkxITSXgXZw'> link</a>
 
-👉🏽Google Pixel 4 and 4 XL review: more than the sum of its sensors❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/10/21/20923660/google-pixel-4-xl-review-camera-radar-face-unlock-90hz-display-telephoto&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEUnIq_V3VTyEyKQsSTOOrLa_aFtQ'> link</a>
+👉🏽GoPro Max review: the most accessible 360 camera❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/10/22/20921641/gopro-max-review-360-camera-specs-price-features-test-video&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHiB36KKI3sNTynoT6kpWdTbUxvTQ'> link</a>
 
-👉🏿Faux flesh phone cases: Does your device need a covering that feels like human skin?❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.usatoday.com/story/tech/2019/10/21/phone-cases-made-faux-human-skin-next-big-thing/4051017002/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFemOy8PWEwD5hTBB5Oq5JSr-pBAQ'> link</a>
+👉🏿Firefox now shines a light on websites that track you❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/how-to/firefox-now-shines-a-light-on-websites-that-track-you/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGSEnHRExJPkczNMT5WxcnUc3gxNw'> link</a>
 
-👉Samsung Linux on DeX is dead, here are open source alternatives❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.slashgear.com/samsung-linux-on-dex-is-dead-here-are-open-source-alternatives-21596310/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFNYxSzNZ9hBsRNhQtGesWXlSy7Qw'> link</a>
+👉Samsung patent application reveals augmented reality headset design❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/10/22/20926528/samsung-augmented-reality-headset-patent-application&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNG-6AiIvRm72qWDyeoM33Dbm0uJiQ'> link</a>
 
-👉🏽Apple TV app crashes plague small number of users before Apple TV+ launches❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://appleinsider.com/articles/19/10/21/apple-tv-app-crashes-plague-small-number-of-users-before-apple-tv-launches&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHOFjHRvNP1xbuxNszaHIIzwnBzhg'> link</a>
+👉🏽Learn to code by 2020 with this training bundle❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://nypost.com/2019/10/22/learn-to-code-by-2020-with-this-training-bundle/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGfRYYUNM4geaYEr2Vw762_Vhy9Xw'> link</a>
 
-👉🏿OxygenOS 10.0.4 rolling out for the OnePlus 7T, 7T Pro w/ more camera boosts❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://9to5google.com/2019/10/21/oxygenos-10-0-4-oneplus-7t/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEi5yAJFOw3DP6w9sxebwHwt3PSPQ'> link</a>
+👉🏿Google's celebrity Q&A app Cameo comes to Android❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.engadget.com/2019/10/22/google-cameo-app-android/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGYl2ignLGmsmEr8hkTvqlwfsTbqg'> link</a>
 
-👉Moto G8 to Rival Xiaomi, Realme and Others; Renders Leaked Ahead of Launch❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.news18.com/news/tech/moto-g8-to-rival-xiaomi-realme-and-others-renders-leaked-ahead-of-launch-2355321.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGHEWBzj-PG4HjE6kTmaFbc26IlLQ'> link</a>
+👉Google is getting skimpy on free cloud storage❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://techcentral.co.za/google-is-getting-skimpy-on-free-cloud-storage/93473/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNH1josOIU_029NGefGxy5uNNox-Hg'> link</a>
 
-👉🏽Rocket Lab Aims for the Moon and Beyond with New Photon Satellite Platform❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.space.com/rocket-lab-photon-moon-missions.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHFo_ADQuRun5z-MQvQhj6nGuf5qw'> link</a>
+👉🏽Google to Fix 'Bug' That Gave iOS Users Unlimited Google Photos Access❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.news18.com/news/tech/google-to-fix-bug-that-gave-ios-users-unlimited-google-photos-access-2356799.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNETpH6pMrmiYshGjAptwy5mEccFDA'> link</a>
 
-👉🏿Games of the week❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.inverness-courier.co.uk/lifestyle/games-of-the-week-184326/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHUfoBznU0Q6XnNaS4ZQnmEQiIrCw'> link</a>
+👉🏿Call of Duty, WWE 2K20 and The Outer Worlds: BIGGEST Games launching this week❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.express.co.uk/entertainment/gaming/1193498/Call-of-Duty-WWE-2K20-and-The-Outer-Worlds-BIGGEST-Games-launching-this-week&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGXDH3FsKaeSAn6h-U6mLWAv-YEWw'> link</a>
 
