@@ -1,20 +1,20 @@
-<b>Technology NEWS on Tuesday, October 22nd, 2019</b> 📡📡📡 
+<b>Technology NEWS on Wednesday, October 23rd, 2019</b> 📡📡📡 
 
-👉The Outer Worlds game review – fallout in space (and without the bugs)❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://metro.co.uk/2019/10/22/the-outer-worlds-game-review-fallout-in-space-and-without-the-bugs-10962207/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFSdl3zk7ALlJsN2ljUkxITSXgXZw'> link</a>
+👉Sony Xperia 1 Professional Edition With Ethernet Support via USB Type-C Port Launched: Price, Specifications❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://gadgets.ndtv.com/mobiles/news/sony-xperia-1-professional-edition-price-jpy-143000-launch-specifications-features-2121570&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGyp6lY1Suymy8AV3eN7z7vIfLk9Q'> link</a>
 
-👉🏽GoPro Max review: the most accessible 360 camera❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/10/22/20921641/gopro-max-review-360-camera-specs-price-features-test-video&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHiB36KKI3sNTynoT6kpWdTbUxvTQ'> link</a>
+👉🏽Google Confirms Achieving Quantum Supremacy❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://gizmodo.com/google-confirms-achieving-quantum-supremacy-1839288099&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNG1dgkV2k2WeVc7kfe2_qgKkI-3WQ'> link</a>
 
-👉🏿Firefox now shines a light on websites that track you❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/how-to/firefox-now-shines-a-light-on-websites-that-track-you/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGSEnHRExJPkczNMT5WxcnUc3gxNw'> link</a>
+👉🏿iPhone 11 sales continue to cut down Android's market share globally❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://appleinsider.com/articles/19/10/23/iphone-11-sales-continue-to-cut-down-androids-market-share-globally&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNE9KS0opQM0pvuZ37EhFMPQo_QcxA'> link</a>
 
-👉Samsung patent application reveals augmented reality headset design❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/10/22/20926528/samsung-augmented-reality-headset-patent-application&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNG-6AiIvRm72qWDyeoM33Dbm0uJiQ'> link</a>
+👉WhatsApp adds group privacy options, blacklists in the latest beta build❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://9to5google.com/2019/10/23/whatsapp-group-privacy/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEZWd_LBSsaA6uwmZzFUCJjr7KQTA'> link</a>
 
-👉🏽Learn to code by 2020 with this training bundle❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://nypost.com/2019/10/22/learn-to-code-by-2020-with-this-training-bundle/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGfRYYUNM4geaYEr2Vw762_Vhy9Xw'> link</a>
+👉🏽'The Outer Worlds' Review Roundup: Here's What Critics Are Saying About Obsidian's New Space RPG❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/erikkain/2019/10/23/the-outer-worlds-review-roundup-heres-what-critics-are-saying-about-obsidians-new-space-rpg/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFgKaeBJsrdF2-u3irV_ladTeSpIg'> link</a>
 
-👉🏿Google's celebrity Q&A app Cameo comes to Android❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.engadget.com/2019/10/22/google-cameo-app-android/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGYl2ignLGmsmEr8hkTvqlwfsTbqg'> link</a>
+👉🏿The best Nintendo Switch deal right now: $262.95❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/the-best-nintendo-switch-deal-right-now-262-95/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEo3nSnSggaLnOIqU_wkFYOu2aGBg'> link</a>
 
-👉Google is getting skimpy on free cloud storage❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://techcentral.co.za/google-is-getting-skimpy-on-free-cloud-storage/93473/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNH1josOIU_029NGefGxy5uNNox-Hg'> link</a>
+👉How to forcibly enable Dark Mode on every website with Google Chrome❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.zdnet.com/article/how-to-forcibly-enable-dark-mode-in-on-every-website-with-google-chrome/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGAydAbVBbTULZ0HEYkh3P1eMjWpA'> link</a>
 
-👉🏽Google to Fix 'Bug' That Gave iOS Users Unlimited Google Photos Access❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.news18.com/news/tech/google-to-fix-bug-that-gave-ios-users-unlimited-google-photos-access-2356799.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNETpH6pMrmiYshGjAptwy5mEccFDA'> link</a>
+👉🏽Kasa Smart Lights come ready to party or give your home a vintage, classic glow❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.digitaltrends.com/home/kasa-smart-lights-are-ready-to-party-or-give-your-home-a-vintage-classic-glow/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNF2MaKuj824D_79crbq6bK3vimONw'> link</a>
 
-👉🏿Call of Duty, WWE 2K20 and The Outer Worlds: BIGGEST Games launching this week❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.express.co.uk/entertainment/gaming/1193498/Call-of-Duty-WWE-2K20-and-The-Outer-Worlds-BIGGEST-Games-launching-this-week&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGXDH3FsKaeSAn6h-U6mLWAv-YEWw'> link</a>
+👉🏿Kasa's newest smart light bulbs are old-fashioned lookalikes❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/tp-link-kasa-newest-smart-bulbs-are-old-fashioned-lookalikes-multi-color-light-strip/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFVfiM8zvGdpYmjIMUVlJ3C2-TwKA'> link</a>
 
