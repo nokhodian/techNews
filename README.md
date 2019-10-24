@@ -1,20 +1,20 @@
-<b>Technology NEWS on Wednesday, October 23rd, 2019</b> 📡📡📡 
+<b>Technology NEWS on Thursday, October 24th, 2019</b> 📡📡📡 
 
-👉Sony Xperia 1 Professional Edition With Ethernet Support via USB Type-C Port Launched: Price, Specifications❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://gadgets.ndtv.com/mobiles/news/sony-xperia-1-professional-edition-price-jpy-143000-launch-specifications-features-2121570&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGyp6lY1Suymy8AV3eN7z7vIfLk9Q'> link</a>
+👉Gmail hooked us on free storage. Now Google is making us pay❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.latimes.com/business/story/2019-10-24/gmail-hooked-us-on-free-storage-now-google-is-making-us-pay&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHPP547za1IWxOij6tMkEBUjNdHbg'> link</a>
 
-👉🏽Google Confirms Achieving Quantum Supremacy❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://gizmodo.com/google-confirms-achieving-quantum-supremacy-1839288099&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNG1dgkV2k2WeVc7kfe2_qgKkI-3WQ'> link</a>
+👉🏽New iPhone Threat: These 17 Malicious Apps May Be On Your Device—Delete Them Now❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/zakdoffman/2019/10/24/new-iphone-threat-these-17-malicious-apps-may-be-on-your-devicedelete-them-now/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHm7yatqOy6IIo8fZvG3MxJCG05aA'> link</a>
 
-👉🏿iPhone 11 sales continue to cut down Android's market share globally❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://appleinsider.com/articles/19/10/23/iphone-11-sales-continue-to-cut-down-androids-market-share-globally&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNE9KS0opQM0pvuZ37EhFMPQo_QcxA'> link</a>
+👉🏿Microsoft Surface Laptop 3 Gets High Repairability Marks in iFixit Teardown❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.laptopmag.com/articles/microsoft-surface-laptop-3-ifixit-repairability&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHYr6rC8xu3utYlpm5YYQCGlpLR_Q'> link</a>
 
-👉WhatsApp adds group privacy options, blacklists in the latest beta build❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://9to5google.com/2019/10/23/whatsapp-group-privacy/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEZWd_LBSsaA6uwmZzFUCJjr7KQTA'> link</a>
+👉Good news: new Firefox for Android will support extensions❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.ghacks.net/2019/10/24/good-news-new-firefox-for-android-will-support-extensions/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNH0oqP9BRkpPHaCRsP8uCRaydWoHQ'> link</a>
 
-👉🏽'The Outer Worlds' Review Roundup: Here's What Critics Are Saying About Obsidian's New Space RPG❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/erikkain/2019/10/23/the-outer-worlds-review-roundup-heres-what-critics-are-saying-about-obsidians-new-space-rpg/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFgKaeBJsrdF2-u3irV_ladTeSpIg'> link</a>
+👉🏽Google Says Project Treble Has Massively Accelerated Android Updates❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.extremetech.com/mobile/300738-google-says-project-treble-has-massively-accelerated-android-updates&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHe9v8OphS8WhCtsRbO8IpNzbydxw'> link</a>
 
-👉🏿The best Nintendo Switch deal right now: $262.95❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/the-best-nintendo-switch-deal-right-now-262-95/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEo3nSnSggaLnOIqU_wkFYOu2aGBg'> link</a>
+👉🏿'Fortnite' Compact Cars, Locke's Lighthouse & Weather Station Location Week 3 Guide❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.newsweek.com/fortnite-compact-cars-lockes-lighthouse-weather-station-location-week-3-1467471&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGRvDI_550ofO89YFjbAtkXuKgYHQ'> link</a>
 
-👉How to forcibly enable Dark Mode on every website with Google Chrome❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.zdnet.com/article/how-to-forcibly-enable-dark-mode-in-on-every-website-with-google-chrome/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGAydAbVBbTULZ0HEYkh3P1eMjWpA'> link</a>
+👉OxygenOS Open Beta 4 for the OnePlus 7 and OnePlus 7 Pro set to roll out soon❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://9to5google.com/2019/10/24/oxygenos-open-beta-4-oneplus-7-oneplus-7-pro/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGdNc39hpFFc8tUDPkFPI5MnBgLYA'> link</a>
 
-👉🏽Kasa Smart Lights come ready to party or give your home a vintage, classic glow❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.digitaltrends.com/home/kasa-smart-lights-are-ready-to-party-or-give-your-home-a-vintage-classic-glow/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNF2MaKuj824D_79crbq6bK3vimONw'> link</a>
+👉🏽How to find every Outer Worlds companion❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcgamer.com/the-outer-worlds-companions-romance/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFNRnu1Okq4sob-Ju_1hRE2DU6utQ'> link</a>
 
-👉🏿Kasa's newest smart light bulbs are old-fashioned lookalikes❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/tp-link-kasa-newest-smart-bulbs-are-old-fashioned-lookalikes-multi-color-light-strip/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFVfiM8zvGdpYmjIMUVlJ3C2-TwKA'> link</a>
+👉🏿Twitter says it now removes half of all abusive tweets before users report them❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/10/24/20929290/twitter-abusive-tweets-automated-removal-earnings-q3-2019&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGgehzMRzkud09sFggjpbPCvjLTag'> link</a>
 
