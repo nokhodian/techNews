@@ -1,20 +1,20 @@
-<b>Technology NEWS on Thursday, October 24th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Friday, October 25th, 2019</b> 📡📡📡 
 
-👉Gmail hooked us on free storage. Now Google is making us pay❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.latimes.com/business/story/2019-10-24/gmail-hooked-us-on-free-storage-now-google-is-making-us-pay&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHPP547za1IWxOij6tMkEBUjNdHbg'> link</a>
+👉8 spooky Halloween tricks you didn't know your Echo could do❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/how-to/8-spooky-halloween-tricks-you-didnt-know-your-echo-could-do/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEhc6P4e7NjEO7ImuLCvyTlWEIBsQ'> link</a>
 
-👉🏽New iPhone Threat: These 17 Malicious Apps May Be On Your Device—Delete Them Now❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/zakdoffman/2019/10/24/new-iphone-threat-these-17-malicious-apps-may-be-on-your-devicedelete-them-now/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHm7yatqOy6IIo8fZvG3MxJCG05aA'> link</a>
+👉🏽'Call of Duty: Modern Warfare' Best Guns & Weapon Tips for Beginners❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.newsweek.com/call-duty-modern-warfare-best-guns-weapon-tips-beginners-1467741&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNH2xHXob9iNAxCGfl1tSDSIKFGO6Q'> link</a>
 
-👉🏿Microsoft Surface Laptop 3 Gets High Repairability Marks in iFixit Teardown❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.laptopmag.com/articles/microsoft-surface-laptop-3-ifixit-repairability&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHYr6rC8xu3utYlpm5YYQCGlpLR_Q'> link</a>
+👉🏿Where to find ghosts in Borderlands 3❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcgamer.com/uk/borderlands-3-search-the-galaxy-for-a-ghost-descent-into-heck/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHdxfDLVlaIBorq1uJNcltrNf66Fg'> link</a>
 
-👉Good news: new Firefox for Android will support extensions❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.ghacks.net/2019/10/24/good-news-new-firefox-for-android-will-support-extensions/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNH0oqP9BRkpPHaCRsP8uCRaydWoHQ'> link</a>
+👉Google has a '.new' shortcut for creating Calendar events❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.engadget.com/2019/10/25/google-calendar-events-shortcut/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFw17xmP_2mGdEjLr4gy4Qnv6Dpqw'> link</a>
 
-👉🏽Google Says Project Treble Has Massively Accelerated Android Updates❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.extremetech.com/mobile/300738-google-says-project-treble-has-massively-accelerated-android-updates&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHe9v8OphS8WhCtsRbO8IpNzbydxw'> link</a>
+👉🏽This app gives your iPhone 11 Pro an awesome camera feature no one else has❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://bgr.com/2019/10/25/iphone-11-pro-camera-review-features-with-night-mode-app/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGvyTawKKYopqG8IRn5bBA5LXO-HQ'> link</a>
 
-👉🏿'Fortnite' Compact Cars, Locke's Lighthouse & Weather Station Location Week 3 Guide❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.newsweek.com/fortnite-compact-cars-lockes-lighthouse-weather-station-location-week-3-1467471&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGRvDI_550ofO89YFjbAtkXuKgYHQ'> link</a>
+👉🏿Control minds and shrink enemies with these crazy Outer Worlds science weapons❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcgamer.com/uk/the-outer-worlds-science-weapons-from-the-void-datapads/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGZNSC383-34KVjXFqzt3W3MBrunw'> link</a>
 
-👉OxygenOS Open Beta 4 for the OnePlus 7 and OnePlus 7 Pro set to roll out soon❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://9to5google.com/2019/10/24/oxygenos-open-beta-4-oneplus-7-oneplus-7-pro/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGdNc39hpFFc8tUDPkFPI5MnBgLYA'> link</a>
+👉Take your Switch everywhere with this Legend of Zelda: Breath of the Wild messenger bag at $13 off❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.imore.com/take-your-switch-everywhere-legend-zelda-breath-wild-messenger-bag-13&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHucqqc-n-0LMNw7Rb6da4yUpG00w'> link</a>
 
-👉🏽How to find every Outer Worlds companion❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcgamer.com/the-outer-worlds-companions-romance/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFNRnu1Okq4sob-Ju_1hRE2DU6utQ'> link</a>
+👉🏽Missing news? FB's latest tab will have it all; tech giant set to pay publishers as well❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://economictimes.indiatimes.com/magazines/panache/missing-news-fbs-latest-tab-will-have-it-all-tech-giant-set-to-pay-publishers-as-well/articleshow/71759199.cms&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEjuyXf74sdDr7WMYZAS5BERsD5Dw'> link</a>
 
-👉🏿Twitter says it now removes half of all abusive tweets before users report them❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/10/24/20929290/twitter-abusive-tweets-automated-removal-earnings-q3-2019&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGgehzMRzkud09sFggjpbPCvjLTag'> link</a>
+👉🏿Google Pixelbook Go❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcmag.com/review/371507/google-pixelbook-go&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNF3fAZZ1n7lbrS68uC8yMphDIEULQ'> link</a>
 
