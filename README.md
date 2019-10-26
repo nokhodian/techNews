@@ -1,20 +1,20 @@
-<b>Technology NEWS on Friday, October 25th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Saturday, October 26th, 2019</b> 📡📡📡 
 
-👉8 spooky Halloween tricks you didn't know your Echo could do❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/how-to/8-spooky-halloween-tricks-you-didnt-know-your-echo-could-do/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEhc6P4e7NjEO7ImuLCvyTlWEIBsQ'> link</a>
+👉Pixelbook Go: a happy medium between budget and high-end Chromebooks❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.fastcompany.com/90422397/pixelbook-go-a-happy-medium-between-budget-and-high-end-chromebooks&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGELRFNJIqIdVqOkqaMqG5f7qXvFw'> link</a>
 
-👉🏽'Call of Duty: Modern Warfare' Best Guns & Weapon Tips for Beginners❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.newsweek.com/call-duty-modern-warfare-best-guns-weapon-tips-beginners-1467741&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNH2xHXob9iNAxCGfl1tSDSIKFGO6Q'> link</a>
+👉🏽Everyone expected the Pixel 4 to have the best smartphone camera, but Apple's iPhone 11 Pro ruined Google's party❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.businessinsider.com/apple-iphone-11-vs-google-pixel-4-camera-shootout-result-2019-10&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGrDDs0E_0On0_6HdFDC598Qks5JQ'> link</a>
 
-👉🏿Where to find ghosts in Borderlands 3❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcgamer.com/uk/borderlands-3-search-the-galaxy-for-a-ghost-descent-into-heck/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHdxfDLVlaIBorq1uJNcltrNf66Fg'> link</a>
+👉🏿Microsoft Surface Laptop 3 vs. MacBook Pro: Which Premium Laptop Wins?❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.laptopmag.com/articles/microsoft-surface-laptop-3-vs-macbook-pro&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGPfddHxU-2_BiR8lDPwpoGIxdBLA'> link</a>
 
-👉Google has a '.new' shortcut for creating Calendar events❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.engadget.com/2019/10/25/google-calendar-events-shortcut/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFw17xmP_2mGdEjLr4gy4Qnv6Dpqw'> link</a>
+👉Android Messaging Might Finally Become a Little More Competitive With Apple iMessage❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.fool.com/investing/2019/10/26/android-messaging-might-finally-become-a-little-mo.aspx&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHSn6R3uw7WV4Naj8xIAPjzVilABw'> link</a>
 
-👉🏽This app gives your iPhone 11 Pro an awesome camera feature no one else has❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://bgr.com/2019/10/25/iphone-11-pro-camera-review-features-with-night-mode-app/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGvyTawKKYopqG8IRn5bBA5LXO-HQ'> link</a>
+👉🏽Mi Note 10, Mi Note 10 Pro Allegedly Certified in Thailand, Expected to Launch Soon❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://gadgets.ndtv.com/mobiles/news/mi-note-10-pro-nbtc-eec-certification-xiaomi-m1910f4g-m1910f4s-launch-date-2123091&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGzF6Lgp82iHuW_u-WCj4Y6u2dSnA'> link</a>
 
-👉🏿Control minds and shrink enemies with these crazy Outer Worlds science weapons❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcgamer.com/uk/the-outer-worlds-science-weapons-from-the-void-datapads/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGZNSC383-34KVjXFqzt3W3MBrunw'> link</a>
+👉🏿6 spooky Google Home tricks (and treats) to try this Halloween❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/how-to/6-spooky-google-home-tricks-and-treats-to-try-this-halloween/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFoyqTNUymxqOVa2fmLAThPIJm7aw'> link</a>
 
-👉Take your Switch everywhere with this Legend of Zelda: Breath of the Wild messenger bag at $13 off❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.imore.com/take-your-switch-everywhere-legend-zelda-breath-wild-messenger-bag-13&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHucqqc-n-0LMNw7Rb6da4yUpG00w'> link</a>
+👉This battery saving Apple Watch feature may reach future iPhones❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.gadgetsnow.com/more-gadgets/this-battery-saving-apple-watch-feature-may-reach-future-iphones/articleshow/71774356.cms&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEzfEXGndgkAtwf5tdp3nO1z_bIRw'> link</a>
 
-👉🏽Missing news? FB's latest tab will have it all; tech giant set to pay publishers as well❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://economictimes.indiatimes.com/magazines/panache/missing-news-fbs-latest-tab-will-have-it-all-tech-giant-set-to-pay-publishers-as-well/articleshow/71759199.cms&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEjuyXf74sdDr7WMYZAS5BERsD5Dw'> link</a>
+👉🏽Google Stadia's Exclusives Could Take Games Where None Have Gone Before❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/kevinmurnane/2019/10/26/google-stadias-exclusives-could-take-games-where-none-have-gone-before/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNF83foqax5bxIKzWIHnVZ6Z-KHTPQ'> link</a>
 
-👉🏿Google Pixelbook Go❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcmag.com/review/371507/google-pixelbook-go&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNF3fAZZ1n7lbrS68uC8yMphDIEULQ'> link</a>
+👉🏿Stereo speaker pairing comes to the original Google Home and Home Mini❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.androidpolice.com/2019/10/26/stereo-speaker-pairing-comes-to-the-original-google-home-and-home-mini/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFqtgXNaHQWkQ0P7aJOt8lJDjsUTw'> link</a>
 
