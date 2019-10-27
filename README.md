@@ -1,20 +1,20 @@
-<b>Technology NEWS on Saturday, October 26th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Sunday, October 27th, 2019</b> 📡📡📡 
 
-👉Pixelbook Go: a happy medium between budget and high-end Chromebooks❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.fastcompany.com/90422397/pixelbook-go-a-happy-medium-between-budget-and-high-end-chromebooks&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGELRFNJIqIdVqOkqaMqG5f7qXvFw'> link</a>
+👉Media Molecule wants Dreams to go beyond the PlayStation ecosystem❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.techradar.com/au/news/media-molecule-wants-dreams-to-go-beyond-the-playstation-ecosystem&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGHVQc2da8TLhUSgkRo-uc5YBX8gQ'> link</a>
 
-👉🏽Everyone expected the Pixel 4 to have the best smartphone camera, but Apple's iPhone 11 Pro ruined Google's party❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.businessinsider.com/apple-iphone-11-vs-google-pixel-4-camera-shootout-result-2019-10&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGrDDs0E_0On0_6HdFDC598Qks5JQ'> link</a>
+👉🏽Why The Outer Worlds needs VR support❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://venturebeat.com/2019/10/27/why-the-outer-worlds-needs-vr-support/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHiUow6xntgQxxjrzt41-sM93fR8A'> link</a>
 
-👉🏿Microsoft Surface Laptop 3 vs. MacBook Pro: Which Premium Laptop Wins?❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.laptopmag.com/articles/microsoft-surface-laptop-3-vs-macbook-pro&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGPfddHxU-2_BiR8lDPwpoGIxdBLA'> link</a>
+👉🏿Media Molecule's Dreams, and the games made in it, could come to PC, co-founder says❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcgamer.com/media-molecules-dreams-and-the-games-made-in-it-could-come-to-pc-co-founder-says/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEmBZne2pki643oCnBuDot1Qx-JjQ'> link</a>
 
-👉Android Messaging Might Finally Become a Little More Competitive With Apple iMessage❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.fool.com/investing/2019/10/26/android-messaging-might-finally-become-a-little-mo.aspx&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHSn6R3uw7WV4Naj8xIAPjzVilABw'> link</a>
+👉Uber, Lyft working with more health-care providers to get patients to appointments❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cleveland.com/business/2019/10/catching-uber-or-lyft-to-medical-appointments-is-gaining-traction-in-ne-ohio.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNE3CMTc9QSIQTWIKoV-lKiRTTo_wQ'> link</a>
 
-👉🏽Mi Note 10, Mi Note 10 Pro Allegedly Certified in Thailand, Expected to Launch Soon❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://gadgets.ndtv.com/mobiles/news/mi-note-10-pro-nbtc-eec-certification-xiaomi-m1910f4g-m1910f4s-launch-date-2123091&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGzF6Lgp82iHuW_u-WCj4Y6u2dSnA'> link</a>
+👉🏽Google's experimental Morph app highlights a feature that should be baked into all smartphones❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://venturebeat.com/2019/10/27/googles-experimental-morph-app-highlights-a-feature-that-should-be-baked-into-all-smartphones/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHjPoiVJPd1xWiTKhxf_vKN2hX0MA'> link</a>
 
-👉🏿6 spooky Google Home tricks (and treats) to try this Halloween❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/how-to/6-spooky-google-home-tricks-and-treats-to-try-this-halloween/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFoyqTNUymxqOVa2fmLAThPIJm7aw'> link</a>
+👉🏿HK protestors care for their freedoms❗️<a href='https://www.google.com/url?rct=j&sa=t&url=http://www.dailyexpress.com.my/read/3267/hk-protestors-care-for-their-freedoms/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHlOXPcV7yHD2h6Dfn__CBsp6oBWA'> link</a>
 
-👉This battery saving Apple Watch feature may reach future iPhones❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.gadgetsnow.com/more-gadgets/this-battery-saving-apple-watch-feature-may-reach-future-iphones/articleshow/71774356.cms&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEzfEXGndgkAtwf5tdp3nO1z_bIRw'> link</a>
+👉Death Stranding Reveals the Cameo It Nearly Had❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://comicbook.com/gaming/2019/10/27/death-stranding-ps4-playstation-4-cameo/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEa10Ir__BFTRmuiK60FTaz5DFi0Q'> link</a>
 
-👉🏽Google Stadia's Exclusives Could Take Games Where None Have Gone Before❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/kevinmurnane/2019/10/26/google-stadias-exclusives-could-take-games-where-none-have-gone-before/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNF83foqax5bxIKzWIHnVZ6Z-KHTPQ'> link</a>
+👉🏽Apple warns iPhone 5 owners to update if they want to stay online❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.engadget.com/2019/10/26/apple-warns-iphone-5-owners-to-update-ios/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFcPskj4yUK_co69koPvybGGfQhEA'> link</a>
 
-👉🏿Stereo speaker pairing comes to the original Google Home and Home Mini❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.androidpolice.com/2019/10/26/stereo-speaker-pairing-comes-to-the-original-google-home-and-home-mini/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFqtgXNaHQWkQ0P7aJOt8lJDjsUTw'> link</a>
+👉🏿More Diablo 4 information leaked via art book❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcgamer.com/more-diablo-4-information-leaked-via-art-book/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNH5oikUE6ibM0vRjqjnborEgWk6rA'> link</a>
 
