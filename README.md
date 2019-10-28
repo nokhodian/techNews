@@ -1,20 +1,20 @@
-<b>Technology NEWS on Sunday, October 27th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Monday, October 28th, 2019</b> 📡📡📡 
 
-👉Media Molecule wants Dreams to go beyond the PlayStation ecosystem❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.techradar.com/au/news/media-molecule-wants-dreams-to-go-beyond-the-playstation-ecosystem&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGHVQc2da8TLhUSgkRo-uc5YBX8gQ'> link</a>
+👉Intel Announces Core i9-9900KS With $513 RCP, Arrives October 30 with 127W TDP❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.tomshardware.com/uk/news/intel-special-edition-core-i9-9900ks-dollar513-launch-october-30-price-specifications-performance&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFXlcC9wWZQ-h5sZPaCsYoTdONGBg'> link</a>
 
-👉🏽Why The Outer Worlds needs VR support❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://venturebeat.com/2019/10/27/why-the-outer-worlds-needs-vr-support/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHiUow6xntgQxxjrzt41-sM93fR8A'> link</a>
+👉🏽Death Stranding is coming to PC during early summer 2020❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://venturebeat.com/2019/10/28/death-stranding-is-coming-to-pc-during-early-summer-2020/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFakg6GQiZka6h0_cUNFGkeHr9UBA'> link</a>
 
-👉🏿Media Molecule's Dreams, and the games made in it, could come to PC, co-founder says❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcgamer.com/media-molecules-dreams-and-the-games-made-in-it-could-come-to-pc-co-founder-says/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEmBZne2pki643oCnBuDot1Qx-JjQ'> link</a>
+👉🏿Ultra-rare Pokémon card from 1998 sold for £150000 breaking world record❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.thesun.co.uk/tech/10228223/most-expensive-pokemon-card-sold-breaks-record/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFvnWj4jGohwLoN_0BC5vUH2TgvGg'> link</a>
 
-👉Uber, Lyft working with more health-care providers to get patients to appointments❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cleveland.com/business/2019/10/catching-uber-or-lyft-to-medical-appointments-is-gaining-traction-in-ne-ohio.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNE3CMTc9QSIQTWIKoV-lKiRTTo_wQ'> link</a>
+👉Microsoft Surface Laptop 3 13.5-inch review: have a normal one❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/10/28/20932406/microsoft-surface-laptop-3-13-5-inch-review-test-price-specs-features&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNE9SwUhwoKK46yA56SgQveJG55tXQ'> link</a>
 
-👉🏽Google's experimental Morph app highlights a feature that should be baked into all smartphones❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://venturebeat.com/2019/10/27/googles-experimental-morph-app-highlights-a-feature-that-should-be-baked-into-all-smartphones/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHjPoiVJPd1xWiTKhxf_vKN2hX0MA'> link</a>
+👉🏽Microsoft's Xbox bundles are back and ready for the new Project Scarlett Xbox❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/10/28/20935894/microsoft-xbox-all-access-bundle-offer-project-scarlett-upgrade-deal&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFpI1Jy-QO1TymQTU4VlUq2N3LFYQ'> link</a>
 
-👉🏿HK protestors care for their freedoms❗️<a href='https://www.google.com/url?rct=j&sa=t&url=http://www.dailyexpress.com.my/read/3267/hk-protestors-care-for-their-freedoms/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHlOXPcV7yHD2h6Dfn__CBsp6oBWA'> link</a>
+👉🏿Hopefully Overwatch 2' PvE Is More Than The Rumors Suggest❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/paultassi/2019/10/28/hopefully-overwatch-2-pve-is-more-than-the-rumors-suggest/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEXqQPsO5ATU9rlU3J1XH0RXnah8w'> link</a>
 
-👉Death Stranding Reveals the Cameo It Nearly Had❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://comicbook.com/gaming/2019/10/27/death-stranding-ps4-playstation-4-cameo/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEa10Ir__BFTRmuiK60FTaz5DFi0Q'> link</a>
+👉ARM Will Continue to License Chip Architecture to Huawei: Report❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://gadgets.ndtv.com/mobiles/news/arm-will-continue-to-license-chip-architecture-to-huawei-report-2123724&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEV7YKSKCl4d9NXS5MV_Pe6466gAg'> link</a>
 
-👉🏽Apple warns iPhone 5 owners to update if they want to stay online❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.engadget.com/2019/10/26/apple-warns-iphone-5-owners-to-update-ios/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFcPskj4yUK_co69koPvybGGfQhEA'> link</a>
+👉🏽Class warfare has come to Fallout 76❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcgamer.com/uk/class-warfare-has-come-to-fallout-76/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFtwEJKPXSRJoevcNLKVYcMPD08hw'> link</a>
 
-👉🏿More Diablo 4 information leaked via art book❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcgamer.com/more-diablo-4-information-leaked-via-art-book/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNH5oikUE6ibM0vRjqjnborEgWk6rA'> link</a>
+👉🏿Apex Legends Shadowfall bug causes game to crash after boarding evac ship❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.vg247.com/2019/10/28/apex-legends-shadowfall-evac-ship-crash-bug-inventory/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEmxXM0a2F8wJrmHZ1N6WKHo2rHWA'> link</a>
 
