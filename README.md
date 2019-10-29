@@ -1,20 +1,20 @@
-<b>Technology NEWS on Monday, October 28th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Tuesday, October 29th, 2019</b> 📡📡📡 
 
-👉Intel Announces Core i9-9900KS With $513 RCP, Arrives October 30 with 127W TDP❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.tomshardware.com/uk/news/intel-special-edition-core-i9-9900ks-dollar513-launch-october-30-price-specifications-performance&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFXlcC9wWZQ-h5sZPaCsYoTdONGBg'> link</a>
+👉Disco Elysium has ruined The Outer Worlds for me❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcgamer.com/uk/disco-elysium-has-ruined-the-outer-worlds-for-me/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGKIXkR5dJCoZl9dy4-8n9SHscY_Q'> link</a>
 
-👉🏽Death Stranding is coming to PC during early summer 2020❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://venturebeat.com/2019/10/28/death-stranding-is-coming-to-pc-during-early-summer-2020/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFakg6GQiZka6h0_cUNFGkeHr9UBA'> link</a>
+👉🏽Zotac GeForce GTX 1660 Super Twin Fan❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcmag.com/review/371538/zotac-geforce-gtx-1660-super-twin-fan&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFssAYeybPgJeG1LsRnbbyshiDPSA'> link</a>
 
-👉🏿Ultra-rare Pokémon card from 1998 sold for £150000 breaking world record❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.thesun.co.uk/tech/10228223/most-expensive-pokemon-card-sold-breaks-record/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFvnWj4jGohwLoN_0BC5vUH2TgvGg'> link</a>
+👉🏿Fortnite's Fortnitemares Event Is Live With Map Changes And The Storm King❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/paultassi/2019/10/29/fortnites-fortnitemares-event-is-live-with-map-changes-and-the-storm-king/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNF-zRE6OwF5OiDJd8Dner3-c0X-sw'> link</a>
 
-👉Microsoft Surface Laptop 3 13.5-inch review: have a normal one❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/10/28/20932406/microsoft-surface-laptop-3-13-5-inch-review-test-price-specs-features&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNE9SwUhwoKK46yA56SgQveJG55tXQ'> link</a>
+👉Even Your Parents Could Master Photoshop's New AI-Powered Automatic Selection Tools❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://gizmodo.com/even-your-parents-could-master-photoshops-new-ai-powere-1839395951&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEHmLNU25FVa2ZbOrm2gb_XqG-uXg'> link</a>
 
-👉🏽Microsoft's Xbox bundles are back and ready for the new Project Scarlett Xbox❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/10/28/20935894/microsoft-xbox-all-access-bundle-offer-project-scarlett-upgrade-deal&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFpI1Jy-QO1TymQTU4VlUq2N3LFYQ'> link</a>
+👉🏽Apple bulks up HomeKit team in a move on smart home market❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.zdnet.com/article/apple-bulks-up-homekit-team-in-a-move-on-smart-home-market/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGvnwbrEXG9ZYWTRIZSiQiG3KgWig'> link</a>
 
-👉🏿Hopefully Overwatch 2' PvE Is More Than The Rumors Suggest❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/paultassi/2019/10/28/hopefully-overwatch-2-pve-is-more-than-the-rumors-suggest/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEXqQPsO5ATU9rlU3J1XH0RXnah8w'> link</a>
+👉🏿Google's .new shortcuts are coming to other websites, and you'll be able to register your own❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/10/29/20932848/google-new-shortcuts-domain-register-websites-spotify&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGPf0hH3XLLmaunB-ddDr_X-wKiww'> link</a>
 
-👉ARM Will Continue to License Chip Architecture to Huawei: Report❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://gadgets.ndtv.com/mobiles/news/arm-will-continue-to-license-chip-architecture-to-huawei-report-2123724&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEV7YKSKCl4d9NXS5MV_Pe6466gAg'> link</a>
+👉Amazon Echo Buds review: great sound at the right price❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/10/29/20937559/amazon-echo-buds-wireless-earbuds-review-features-bose-noise-reduction-price&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGeAVVfqQ6DUah7gASCccz0ozzDbg'> link</a>
 
-👉🏽Class warfare has come to Fallout 76❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcgamer.com/uk/class-warfare-has-come-to-fallout-76/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFtwEJKPXSRJoevcNLKVYcMPD08hw'> link</a>
+👉🏽Hellblade studio launches a new venture to explore mental health through games❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/10/29/20937907/hellblade-ninja-theory-insight-project-mental-health-tech-game-design-neuroscience&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGT8t-g7CbDw-bk8XfCsHzjc38WFg'> link</a>
 
-👉🏿Apex Legends Shadowfall bug causes game to crash after boarding evac ship❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.vg247.com/2019/10/28/apex-legends-shadowfall-evac-ship-crash-bug-inventory/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEmxXM0a2F8wJrmHZ1N6WKHo2rHWA'> link</a>
+👉🏿Edison Mail gets a Dark Mode costume for Halloween❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.androidpolice.com/2019/10/29/edison-mail-dark-mode/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHQDRulKkszdouXko4rBTW22h-hYQ'> link</a>
 
