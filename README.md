@@ -1,20 +1,20 @@
-<b>Technology NEWS on Tuesday, October 29th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Wednesday, October 30th, 2019</b> 📡📡📡 
 
-👉Disco Elysium has ruined The Outer Worlds for me❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcgamer.com/uk/disco-elysium-has-ruined-the-outer-worlds-for-me/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGKIXkR5dJCoZl9dy4-8n9SHscY_Q'> link</a>
+👉All three 2020 iPhones will have the most advanced 5G chip available — Nikkei❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://9to5mac.com/2019/10/30/most-advanced-5g-chip/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFEpBrIB6m2LbGfa8dIvgAh45ymIQ'> link</a>
 
-👉🏽Zotac GeForce GTX 1660 Super Twin Fan❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcmag.com/review/371538/zotac-geforce-gtx-1660-super-twin-fan&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFssAYeybPgJeG1LsRnbbyshiDPSA'> link</a>
+👉🏽Fraud forces Valve to kill 'CS:GO' loot box key trading❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.engadget.com/2019/10/30/csgo-fraud-loot-box-key-trades/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEa33PawEjzmKsMXrBqSnuGrWHp1Q'> link</a>
 
-👉🏿Fortnite's Fortnitemares Event Is Live With Map Changes And The Storm King❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/paultassi/2019/10/29/fortnites-fortnitemares-event-is-live-with-map-changes-and-the-storm-king/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNF-zRE6OwF5OiDJd8Dner3-c0X-sw'> link</a>
+👉🏿PlayStation 4 tops 100M mark, becomes Sony's second-best selling video game console❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.usatoday.com/story/tech/talkingtech/2019/10/30/ps-4-sales-surpass-100-million-sony-says-topping-first-playstation/4095131002/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGzvuGWpkNiu4kDCBGhOfFg0pxR1w'> link</a>
 
-👉Even Your Parents Could Master Photoshop's New AI-Powered Automatic Selection Tools❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://gizmodo.com/even-your-parents-could-master-photoshops-new-ai-powere-1839395951&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEHmLNU25FVa2ZbOrm2gb_XqG-uXg'> link</a>
+👉Redmi Y3 Starts Receiving MIUI 11 Global Stable Update in India, Users Report❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://gadgets.ndtv.com/mobiles/news/redmi-y3-android-10-miui-11-global-stable-update-rolling-out-users-report-2124695&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGsE24gW683vpbd34XXDvZpsbMsUg'> link</a>
 
-👉🏽Apple bulks up HomeKit team in a move on smart home market❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.zdnet.com/article/apple-bulks-up-homekit-team-in-a-move-on-smart-home-market/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGvnwbrEXG9ZYWTRIZSiQiG3KgWig'> link</a>
+👉🏽xHelper 'Unremovable' Malware Re-Infects Android Devices Even After Factory Reset❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.news18.com/news/tech/xhelper-unremovable-malware-re-infects-android-devices-even-after-factory-reset-2367601.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHjzpSYkm5WOwLJZOSUWvKYu2Ny9w'> link</a>
 
-👉🏿Google's .new shortcuts are coming to other websites, and you'll be able to register your own❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/10/29/20932848/google-new-shortcuts-domain-register-websites-spotify&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGPf0hH3XLLmaunB-ddDr_X-wKiww'> link</a>
+👉🏿Battlefield 6 will be on Xbox Scarlett and PS5 – but only when they're popular enough❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.techradar.com/uk/news/battlefield-6-will-be-on-xbox-scarlett-and-ps5-but-only-when-theyre-popular-enough&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGYoR-N_IldsSst9zu6uYB5LNLjRQ'> link</a>
 
-👉Amazon Echo Buds review: great sound at the right price❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/10/29/20937559/amazon-echo-buds-wireless-earbuds-review-features-bose-noise-reduction-price&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGeAVVfqQ6DUah7gASCccz0ozzDbg'> link</a>
+👉Google says goodbye to Flash, will stop indexing Flash content in search❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.zdnet.com/article/google-says-goodbye-to-flash-will-stop-indexing-flash-content-in-search/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNH_NV_mGxAhLzyNdHn7NGX_2nIEwA'> link</a>
 
-👉🏽Hellblade studio launches a new venture to explore mental health through games❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/10/29/20937907/hellblade-ninja-theory-insight-project-mental-health-tech-game-design-neuroscience&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGT8t-g7CbDw-bk8XfCsHzjc38WFg'> link</a>
+👉🏽Spotify launches a dedicated Kids app for Premium Family subscribers❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://techcrunch.com/2019/10/30/spotify-launches-a-dedicated-kids-app-for-premium-family-subscribers/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGP04wtihSo8pej9bEZlK-lYx-zgw'> link</a>
 
-👉🏿Edison Mail gets a Dark Mode costume for Halloween❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.androidpolice.com/2019/10/29/edison-mail-dark-mode/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHQDRulKkszdouXko4rBTW22h-hYQ'> link</a>
+👉🏿Blizzard's Hong Kong censorship is a symptom of gaming's deep-rooted fear of politics❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/features/blizzards-hong-kong-censorship-is-a-symptom-of-gamings-decades-long-fear-of-politics/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFljdKI8KaJcDVlptrVO-w5hCPt8g'> link</a>
 
