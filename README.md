@@ -1,20 +1,20 @@
-<b>Technology NEWS on Thursday, October 31st, 2019</b> 📡📡📡 
+<b>Technology NEWS on Friday, November 1st, 2019</b> 📡📡📡 
 
-👉2020 Toyota Supra GTS long-term review: Introduction❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.caradvice.com.au/802240/2020-toyota-supra-gts-long-term-review-introduction/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFy77yBlypP3UPGVfXZeIdaSLa1Ng'> link</a>
+👉What Appears To Be The Last Guy Running 'Anthem' Just Left BioWare❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/paultassi/2019/11/01/what-appears-to-be-the-last-guy-running-anthem-just-left-bioware/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFsnl_o02vTlvrjQQsWQ2KKHZmH7g'> link</a>
 
-👉🏽'Fortnite' Letter 'T' Location: Where To Find The Hidden 'T' In The 'Dockyard Deal' Loading Screen❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/paultassi/2019/10/31/fortnite-letter-t-location-where-to-find-the-hidden-t-in-the-dockyard-deal-loading-screen/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEkA5-r_TMzgizpggl52f3gD4PQhA'> link</a>
+👉🏽Google buys Fitbit for $2.1 billion❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/11/1/20943318/google-fitbit-acquisition-fitness-tracker-announcement&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHJ-VrwH2JdkWI3VMhLyQ1bEt47NA'> link</a>
 
-👉🏿Apex Legends Duos Mode Coming For A Limited Time❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.gamespot.com/articles/apex-legends-duos-mode-coming-for-a-limited-time/1100-6471013/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFCZwoe_7HjeYeP7GHOMbCdh0STEw'> link</a>
+👉🏿Apple AirPods Pro review: perfect fit❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/11/1/20942472/apple-airpods-pro-review-design-price-specs-features-noise-cancellation&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGigeW-AJFlYKPJ1dcXA5cOe2kelA'> link</a>
 
-👉Of course Twitter is banning political ads, it barely makes any money from them❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.telegraph.co.uk/technology/2019/10/31/course-twitter-banning-political-ads-barely-makes-money/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEFyYYkAfKzLat5ORQtdnjMYlU2qg'> link</a>
+👉4 hidden Google Maps tricks you need to know❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/how-to/4-hidden-google-maps-tricks-you-need-to-know/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHlvpE-ru61N9zFgxfhPY5FsRDMdQ'> link</a>
 
-👉🏽Halloween 2019: Google Doodle goes interactive, shows holiday-themed game of 'Seven Doors'❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.usatoday.com/story/tech/2019/10/31/halloween-2019-google-doodle-becomes-spooky-game-seven-doors/4107615002/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHb2Ufx2NfXyppLPWG706uT9TxgyQ'> link</a>
+👉🏽Amazon cuts prices on Echo Plus, Dot, Show, Show 5, and more smart home devices❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.digitaltrends.com/home/amazon-cuts-prices-on-echo-plus-dot-show-show-5-and-more-smart-home-devices/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFFNnES-noXAUkPqlCn6szJ0lAAhQ'> link</a>
 
-👉🏿The best Huawei P30 Pro deal is finally back in stock - get it before it goes again❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.techradar.com/uk/news/the-best-huawei-p30-pro-deal-is-finally-back-in-stock-get-it-before-it-goes-again&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFyhfhe3_ZayCz2iJ7nBwCSBHaBTA'> link</a>
+👉🏿Huawei's leaked 'MatePad Pro' looks like an iPad Pro with a punch-hole camera❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://9to5mac.com/2019/11/01/matepad-pro/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNH1095IIjLTukmNgk1jNQUFhDiKNw'> link</a>
 
-👉Facebook could soon offer encrypted audio and video calls❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.engadget.com/2019/10/31/facebook-audio-video-calls-secret-conversations/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEn9zu6xDgFVvHp663dBDftRR12tQ'> link</a>
+👉Why the PlayStation 4 Triumphed Over the Xbox One❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.extremetech.com/gaming/301380-why-the-playstation-4-triumphed-over-the-xbox-one&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNG6rh5kcCiHPRjaptzRHsqI2ej1ow'> link</a>
 
-👉🏽Nintendo Switch sales surpass 41 million❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://venturebeat.com/2019/10/31/nintendo-switch-sales/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFXM-62S8s4OuweVB6PDQ7fY2FU4Q'> link</a>
+👉🏽Xiaomi reveals Mi CC9 Pro's 108MP camera setup ahead of the launch❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.techradar.com/in/news/xiaomi-reveals-mi-cc9-pros-108mp-camera-setup-ahead-of-the-launch&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNG65h427-kPYEvP-5h7B4lyEPQNrA'> link</a>
 
-👉🏿Apple TV+ is here. Can it compete with Netflix and Disney?❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.latimes.com/entertainment-arts/business/story/2019-10-31/apple-tv-is-here-can-it-compete-with-netflix-and-disney&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHGQ3GH2pDLEl1xXDtj5QKjajxYQQ'> link</a>
+👉🏿How to hand off music or phone calls from your iPhone to a HomePod❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.macworld.com/article/3449244/how-to-hand-off-music-or-phone-calls-from-your-iphone-to-a-homepod.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGWCo-VxmtdG4jO3ezPQcA366Hc2Q'> link</a>
 
