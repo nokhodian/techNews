@@ -1,20 +1,20 @@
-<b>Technology NEWS on Friday, November 1st, 2019</b> 📡📡📡 
+<b>Technology NEWS on Saturday, November 2nd, 2019</b> 📡📡📡 
 
-👉What Appears To Be The Last Guy Running 'Anthem' Just Left BioWare❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/paultassi/2019/11/01/what-appears-to-be-the-last-guy-running-anthem-just-left-bioware/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFsnl_o02vTlvrjQQsWQ2KKHZmH7g'> link</a>
+👉The First Look At 'Diablo 4' Raises A Few Red Flags❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/paultassi/2019/11/02/the-first-look-at-diablo-4-raises-a-few-red-flags/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEJt7NTNL2b-PMfBi_oMOiOE8f5fA'> link</a>
 
-👉🏽Google buys Fitbit for $2.1 billion❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/11/1/20943318/google-fitbit-acquisition-fitness-tracker-announcement&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHJ-VrwH2JdkWI3VMhLyQ1bEt47NA'> link</a>
+👉🏽5 PS4 accessories we want to see discounted this Black Friday❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.techradar.com/in/black-friday/5-ps4-accessories-we-want-to-see-discounted-this-black-friday&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGld46eNx0WvWratM-fpl_WJ6eBRg'> link</a>
 
-👉🏿Apple AirPods Pro review: perfect fit❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/11/1/20942472/apple-airpods-pro-review-design-price-specs-features-noise-cancellation&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGigeW-AJFlYKPJ1dcXA5cOe2kelA'> link</a>
+👉🏿Destiny 2's 'Eververse Is Too Expensive' Debate Is Back, And Yes, It Is❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/paultassi/2019/11/02/destiny-2s-eververse-is-too-expensive-debate-is-back-and-yes-it-is/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEO3-aU41g8aHZlr-sH4E3_LdCHJg'> link</a>
 
-👉4 hidden Google Maps tricks you need to know❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/how-to/4-hidden-google-maps-tricks-you-need-to-know/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHlvpE-ru61N9zFgxfhPY5FsRDMdQ'> link</a>
+👉'A Colossal Discovery': Here Are The Full Regigigas Special Research Tasks In 'Pokémon GO'❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/davidthier/2019/11/02/a-colossal-discovery-here-are-the-full-regigigas-special-research-tasks-in-pokmon-go/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEKvnaVgMctyhH-CwLqQuvdWyEYAw'> link</a>
 
-👉🏽Amazon cuts prices on Echo Plus, Dot, Show, Show 5, and more smart home devices❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.digitaltrends.com/home/amazon-cuts-prices-on-echo-plus-dot-show-show-5-and-more-smart-home-devices/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFFNnES-noXAUkPqlCn6szJ0lAAhQ'> link</a>
+👉🏽Google pushes further into health care with Fitbit, raising new privacy concerns❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/google-pushes-further-into-health-care-with-fitbit-raising-new-privacy-concerns/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEJA-GqzL1b2w3ljOZ93qKZNmQ8Vw'> link</a>
 
-👉🏿Huawei's leaked 'MatePad Pro' looks like an iPad Pro with a punch-hole camera❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://9to5mac.com/2019/11/01/matepad-pro/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNH1095IIjLTukmNgk1jNQUFhDiKNw'> link</a>
+👉🏿2020 Shelby GT500, FCA merges with PSA and more: Roadshow's week in review❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/roadshow/news/2020-ford-mustang-shelby-gt500-fca-merger-week-in-review/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHmmwDoP0q5kiF4PNmuN_lhiu2pJw'> link</a>
 
-👉Why the PlayStation 4 Triumphed Over the Xbox One❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.extremetech.com/gaming/301380-why-the-playstation-4-triumphed-over-the-xbox-one&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNG6rh5kcCiHPRjaptzRHsqI2ej1ow'> link</a>
+👉Stable Android 10 update now rolling out for OnePlus 6/6T❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://9to5google.com/2019/11/02/android-10-oneplus-6-oneplus-6t/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGSh7oDfl2p66ApBs7kL16lKKzdeQ'> link</a>
 
-👉🏽Xiaomi reveals Mi CC9 Pro's 108MP camera setup ahead of the launch❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.techradar.com/in/news/xiaomi-reveals-mi-cc9-pros-108mp-camera-setup-ahead-of-the-launch&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNG65h427-kPYEvP-5h7B4lyEPQNrA'> link</a>
+👉🏽Samsung Galaxy S10e deal price drop: This 100GB data offer is the best around❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.techradar.com/uk/news/samsung-galaxy-s10e-deal-price-drop-this-100gb-data-offer-is-the-best-around&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHq-dekvoEBWwBV2HT-X1mVytRYMQ'> link</a>
 
-👉🏿How to hand off music or phone calls from your iPhone to a HomePod❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.macworld.com/article/3449244/how-to-hand-off-music-or-phone-calls-from-your-iphone-to-a-homepod.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGWCo-VxmtdG4jO3ezPQcA366Hc2Q'> link</a>
+👉🏿Need to Run Errands Really Quickly? Try This Lamborghini SUV❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.wired.com/story/need-errands-really-quickly-lamborghini-suv/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFznRf-xenxS_QsLA7QodPTw8YRbQ'> link</a>
 
