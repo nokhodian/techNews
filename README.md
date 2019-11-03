@@ -1,20 +1,20 @@
-<b>Technology NEWS on Saturday, November 2nd, 2019</b> 📡📡📡 
+<b>Technology NEWS on Sunday, November 3rd, 2019</b> 📡📡📡 
 
-👉The First Look At 'Diablo 4' Raises A Few Red Flags❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/paultassi/2019/11/02/the-first-look-at-diablo-4-raises-a-few-red-flags/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEJt7NTNL2b-PMfBi_oMOiOE8f5fA'> link</a>
+👉Apple's updated patent points to a wrap-around display for the iPhone❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.techradar.com/uk/news/apples-updated-patent-points-to-a-wrap-around-display-for-the-iphone&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGF1U8xY3qqxUA_7fr4LaNS6iW6Cw'> link</a>
 
-👉🏽5 PS4 accessories we want to see discounted this Black Friday❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.techradar.com/in/black-friday/5-ps4-accessories-we-want-to-see-discounted-this-black-friday&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGld46eNx0WvWratM-fpl_WJ6eBRg'> link</a>
+👉🏽AirPods Pro Review: Big Improvements at a 'Pro' Price❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.wsj.com/articles/airpods-pro-review-big-improvements-at-a-pro-price-11572789602&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFsFtl0B0kD2DniVYhqyR3xP5dBWw'> link</a>
 
-👉🏿Destiny 2's 'Eververse Is Too Expensive' Debate Is Back, And Yes, It Is❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/paultassi/2019/11/02/destiny-2s-eververse-is-too-expensive-debate-is-back-and-yes-it-is/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEO3-aU41g8aHZlr-sH4E3_LdCHJg'> link</a>
+👉🏿Comment: Are app subscriptions fair to users and developers?❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://9to5mac.com/2019/11/03/app-subscriptions/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNG4d2-JveD80E81AVHKWsxu1gb93A'> link</a>
 
-👉'A Colossal Discovery': Here Are The Full Regigigas Special Research Tasks In 'Pokémon GO'❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/davidthier/2019/11/02/a-colossal-discovery-here-are-the-full-regigigas-special-research-tasks-in-pokmon-go/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEKvnaVgMctyhH-CwLqQuvdWyEYAw'> link</a>
+👉Apple TV Plus: How to watch (free!) on iPhone, Amazon Fire, Roku❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/how-to/apple-tv-plus-how-to-watch-free-on-iphone-amazon-fire-roku/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNG0oHkf_mnSnngow1hvMoOud9Nd1w'> link</a>
 
-👉🏽Google pushes further into health care with Fitbit, raising new privacy concerns❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/google-pushes-further-into-health-care-with-fitbit-raising-new-privacy-concerns/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEJA-GqzL1b2w3ljOZ93qKZNmQ8Vw'> link</a>
+👉🏽Blizzard Explains Diablo 4's Loot System, And It Sounds Really Good❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/paultassi/2019/11/03/blizzard-explains-diablo-4s-loot-system-and-it-sounds-really-good/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEX7YPg_Vi-piyDtuIm5Dp61QSYpg'> link</a>
 
-👉🏿2020 Shelby GT500, FCA merges with PSA and more: Roadshow's week in review❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/roadshow/news/2020-ford-mustang-shelby-gt500-fca-merger-week-in-review/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHmmwDoP0q5kiF4PNmuN_lhiu2pJw'> link</a>
+👉🏿Apple TV+: What Consumers and Investors Need to Know❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.fool.com/investing/2019/11/03/apple-tv-what-consumers-and-investors-need-to-know.aspx&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHKysbDuhk9wmeKcqAQR_oNOdlKkQ'> link</a>
 
-👉Stable Android 10 update now rolling out for OnePlus 6/6T❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://9to5google.com/2019/11/02/android-10-oneplus-6-oneplus-6t/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGSh7oDfl2p66ApBs7kL16lKKzdeQ'> link</a>
+👉Breakthrough Listen and TESS team up for SETI❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://earthsky.org/space/breakthrough-listen-tess-collaboration-for-seti&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFPkgA960_oboBGQZ2jAVJRJs44oA'> link</a>
 
-👉🏽Samsung Galaxy S10e deal price drop: This 100GB data offer is the best around❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.techradar.com/uk/news/samsung-galaxy-s10e-deal-price-drop-this-100gb-data-offer-is-the-best-around&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHq-dekvoEBWwBV2HT-X1mVytRYMQ'> link</a>
+👉🏽Nintendo news: Switch games DELAY amid Zelda Breath of the Wild 2 Direct rumours❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.express.co.uk/entertainment/gaming/1199449/Nintendo-news-Switch-games-blow-Zelda-Breath-of-the-Wild-2-Direct&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGB9-qzh4DKYnicMzkPto-ghTs9ug'> link</a>
 
-👉🏿Need to Run Errands Really Quickly? Try This Lamborghini SUV❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.wired.com/story/need-errands-really-quickly-lamborghini-suv/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFznRf-xenxS_QsLA7QodPTw8YRbQ'> link</a>
+👉🏿Realme Reveals Android 10 Roadmap But Temporarily Postpones Latest ColorOS Update❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.ibtimes.com/realme-reveals-android-10-roadmap-temporarily-postpones-latest-coloros-update-2858507&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHuFXcCMdcrsRSsAEppnVhUdOaGJw'> link</a>
 
