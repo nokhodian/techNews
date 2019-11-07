@@ -1,20 +1,20 @@
-<b>Technology NEWS on Wednesday, November 6th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Thursday, November 7th, 2019</b> 📡📡📡 
 
-👉The Google Home and Amazon Echo laser hack highlights the growing pains of a new class of tech device❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.businessinsider.com/google-amazon-smart-speakers-confuse-lasers-for-sound-2019-11&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGUa_soa_A3BaurPSo18t6AUJTvHg'> link</a>
+👉AMD's debut third-gen Threadripper chips will be released on November 25th❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/circuitbreaker/2019/11/7/20953019/amd-threadripper-chips-3960x-3970x-release-date-cores-features-speed-price&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGHa9V2RYbb5V5d9IR-nn_a806T9g'> link</a>
 
-👉🏽Amazon Echo Studio review: finally, an Echo that sounds great❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/11/6/20950100/amazon-echo-studio-smart-speaker-alexa-3d-audio-test-review-price-specs-features&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHJDCVNWJWXM2XKr498KoUB6I6Zdg'> link</a>
+👉🏽'Fortnite' All EGO Outpost Locations Lowdown Week 5 Challenge Guide❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.newsweek.com/fortnite-all-ego-outpost-locations-lowdown-week-5-challenge-guide-1470176&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNE5UHl9lxrEMFO4do_3XpsQY-2Uag'> link</a>
 
-👉🏿Apple's new privacy pages are easier to read and look way better❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/11/6/20950135/apple-privacy-page-update-ios-13-macos-catalina&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGpxhrYRuEm7z184JKXQkc2xj-ACQ'> link</a>
+👉🏿'Pokémon Go' Team Rocket Update: Giovanni Special Research Task & Leaders Added❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.newsweek.com/pokemon-go-team-rocket-leaders-mystery-components-radar-giovanni-1470217&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFEzLsdm_EtCCxprQyECSOnDpWhcQ'> link</a>
 
-👉Motorola One Zoom, Moto Z4 Clear Wi-Fi Alliance Certification Running Android 10❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://gadgets.ndtv.com/mobiles/news/motorola-one-zoom-moto-z4-android-10-wi-fi-alliance-2128399&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGz4iAaOm5huUmQs7bDv2G7VkrldQ'> link</a>
+👉Where to find the hidden N in Fortnite❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcgamer.com/au/fortnite-hidden-n-search-loading-screen-the-lowdown/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEqJMJ0Hfd-fSTKyfcZv88uxznSIQ'> link</a>
 
-👉🏽Google Just Bought Fitbit. What's the Next Step?❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.fool.com/investing/2019/11/06/google-just-bought-fitbit-now-what.aspx&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNE6Z4HrlwW-MHY6R4W8oIhbrJ1IuQ'> link</a>
+👉🏽OxygenOS Open Beta 5 for OnePlus 7/7 Pro will roll out 'next week'❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://9to5google.com/2019/11/07/oxygenos-open-beta-5-oneplus-7-pro/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGUWgONjNbc6oVM85-8mNRtG3xVTw'> link</a>
 
-👉🏿Canon EOS M200 review: Solid for new starters❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.expertreviews.co.uk/canon/1410715/canon-eos-m200-review-solid-for-new-starters&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHdQ8NRyX_nJJ0AWFMiczo1egwhRQ'> link</a>
+👉🏿The Pixel 4 will come with a $300 gift card from Target on Black Friday❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.tomsguide.com/deals/the-pixel-4-will-come-with-a-dollar300-gift-card-from-target-on-black-friday&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFrr0He4DNkryiBidAfC2dUKpDwng'> link</a>
 
-👉Fitbit is doomed: Why everything Google buys turns to garbage❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.zdnet.com/article/fitbit-is-doomed-why-everything-google-buys-turns-to-garbage/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNERS4kL7Wyyy_UkI6_Y4ZtwAJMBhw'> link</a>
+👉Mi Note 10 vs Mi Note 10 Pro vs Mi CC9 Pro: Price, Specifications Compared❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://gadgets.ndtv.com/mobiles/features/mi-note-10-vs-mi-note-10-pro-vs-mi-cc9-pro-price-in-india-specifications-compared-2128960&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEWc2LON5yGzgZ3LlcDoXNrgFImzA'> link</a>
 
-👉🏽Surprise: Apple haters couldn't stop whining about the controversial iPhone 11 design, but now no one cares❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://bgr.com/2019/11/06/iphone-12-leaks-2020-no-more-complaints-about-design/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHVLVgAHDbgi5VYUQ19nt3K1IICPQ'> link</a>
+👉🏽Redmi Note 8 Pro Deep Sea Blue Colour Variant Launched: Price, Specifications❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://gadgets.ndtv.com/mobiles/news/redmi-note-8-pro-deep-sea-blue-colour-variant-launched-price-specifications-2128954&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHv-SJg4LRvQIm-KZzZGWo-Z3_bOA'> link</a>
 
-👉🏿The 2020 Dodge Challenger Drag Pak is a monster muscle car you can't drive on the street❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.foxnews.com/auto/the-2020-dodge-challenger-drag-pak-muscle-car&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHt0z50IO6waODBi51BZVOjDrz7sA'> link</a>
+👉🏿This Rolls-Royce Black Badge Cullinan Is The Luxury Marque's Edgiest SUV❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/nargessbanks/2019/11/07/rolls-royces-black-badge-cullinan/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHlibnellh_kGTuPVbCEB_q9CZq4A'> link</a>
 
