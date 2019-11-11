@@ -1,20 +1,20 @@
-<b>Technology NEWS on Sunday, November 10th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Monday, November 11th, 2019</b> 📡📡📡 
 
-👉Google's Pixel 4 XL loses its notch, gains motion sense and is a pure Android experience❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.columbian.com/news/2019/nov/10/googles-pixel-4-xl-loses-its-notch-gains-motion-sense-and-is-a-pure-android-experience/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEcuokQhBj57nEqAg0hDww55IBW2A'> link</a>
+👉PlayStation 5 game cartridge may have been leaked in new patent filed by Sony❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.mirror.co.uk/tech/playstation-5-game-cartridge-been-20860067&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHSau6eGFj5GH85aa1UmnjNaIhxqw'> link</a>
 
-👉🏽Google Confirms Play Store Security Threat: Here's The Fix—But Does It Make You Safer?❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/zakdoffman/2019/11/10/google-confirms-play-store-security-threat-heres-the-fixbut-does-it-make-you-safer/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEjhjDW7VImJ38D3jp9qLLbS9U5CA'> link</a>
+👉🏽Galaxy S10 update will add Note 10 features including enhanced gallery, more❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://9to5google.com/2019/11/11/s10-note-10-features/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEKth_g7RkahNdunsS0ufkHt4IuMA'> link</a>
 
-👉🏿A teenager's lifetime ban from 'Fortnite' sheds light on a dark reality in the esports business❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.businessinsider.com/jarvis-fortnite-ban-epic-games-esports-ninja-2019-11&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEJuTZ3kwD4bEpVzuX_bzJiPb6I_A'> link</a>
+👉🏿Google Maps adds ability to manage your public profile within the app❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://9to5google.com/2019/11/11/google-maps-public-profile/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGGKS4DOaS1UdF0PDlqUttC2LACCw'> link</a>
 
-👉Tencent Looks to Leverage Its Partnership With Nintendo in the US❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.wsj.com/articles/tencent-looks-to-leverage-its-partnership-with-nintendo-in-the-u-s-11573390800&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGgnTePMCua9iq_xuUM9j3ODWbQIA'> link</a>
+👉Google Camera 7.2 on Pixel 3/4 can scan documents, copy, and translate text❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://9to5google.com/2019/11/11/google-camera-7-2-pixel-google-lens-features/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNE2OilrTfARY7RgkUj_7r3fxK5DBA'> link</a>
 
-👉🏽Staples' Black Friday ad is out with deals on Apple iPad, AirPods, computers and more❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.usatoday.com/story/money/2019/11/10/staples-black-friday-2019-apple-ipad-airpods-laptop-deals/2533375001/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHKk3b70n8yHEItdg5fN4xBvIi6eg'> link</a>
+👉🏽YouTube can terminate channels that it deems aren't 'commercially viable'❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://9to5google.com/2019/11/11/youtube-terminate-channels-not-commercially-viable/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGNabvx5Gaz3sqREtZpnQ9gLHB2Ow'> link</a>
 
-👉🏿Apple Black Friday deals – best offers and discounts to expect in 2019❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.radiotimes.com/news/2019-11-10/apple-black-friday-deals-2019/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNE6EM9nWLqvEVUfjfnFypkdqOBJDg'> link</a>
+👉🏿There's a second, more objective reason for the lack of 4K 60fps video on the Pixel 4 (and Google could fix it)❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.androidpolice.com/2019/11/11/pixel-4-4k-60fps-recording/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFCNhNXidPHSjiFOeuogiSlAAZyaw'> link</a>
 
-👉Scump mocks Nadeshot's plan to compete in Modern Warfare❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.dexerto.com/call-of-duty/scump-mocks-nadeshots-plan-to-compete-in-modern-warfare-1233447&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGyFmHXF7q4scJYAsfgM0wHqs7Uww'> link</a>
+👉2020 BMW X6 first drive review: Few(er) compromises❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/roadshow/reviews/2020-bmw-x6-preview/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGZTH_5ZcI02tGYwUhC3MoIJBiZNQ'> link</a>
 
-👉🏽Death Stranding review: A game totally at odds with its message❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.gq-magazine.co.uk/games/article/death-stranding-review&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNF1tM73w-a5riYCWpGyJ3nkM0W-7w'> link</a>
+👉🏽Apple loses RAW video patent battle with RED; companies 'will work together'❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://9to5mac.com/2019/11/11/raw-video/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEq8z4n9jay1bPDYlKdU88dNY_Irw'> link</a>
 
-👉🏿Ninja gives epic rant on why bots should be removed from Fortnite❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.dexerto.com/fortnite/ninja-gives-epic-rant-on-why-bots-should-be-removed-from-fortnite-1233496&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHK5-6H576gV91MQcIFWB62SgwCng'> link</a>
+👉🏿Call of Duty: Mobile may be getting a 'Zombie mode' very soon❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.digit.in/news/mobile-gaming/call-of-duty-mobile-may-be-getting-a-zombie-mode-very-soon-51008.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHGuBJ37YrH0hGkNcq5ZlCW8jkgmA'> link</a>
 
