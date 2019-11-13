@@ -1,20 +1,20 @@
-<b>Technology NEWS on Tuesday, November 12th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Wednesday, November 13th, 2019</b> 📡📡📡 
 
-👉Next year's Apple Watch might be suitable for diving❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://mashable.com/article/apple-watch-series-6-water-resistance/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEM11HfxWwC0L65XfMjA3AoO2NHkw'> link</a>
+👉'Pokémon Sword' and 'Shield' offer an excellent but familiar adventure❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.engadget.com/2019/11/13/pokemon-sword-and-shield/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGcnlL1prEm2FLNwj79TessJLKJow'> link</a>
 
-👉🏽Plugable's new Thunderbolt 3 SSD leverages PCIe for speeds up to 2400 MB/s [$100 off launch pricing]❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://9to5mac.com/2019/11/12/plugable-thunderbolt-3-nvme-ssd/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHKDgCIY_eXVNhspKT293BJlXKkhw'> link</a>
+👉🏽Porsche 911 Speedster 2019 UK review❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.autocar.co.uk/car-review/porsche/911-speedster/first-drives/porsche-911-speedster-2019-uk-review&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEzeXEhbqGkFWHWGZQfcOmnQydULQ'> link</a>
 
-👉🏿How to set up fall detection on Apple Watch❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.digitaltrends.com/mobile/how-to-set-up-fall-detection-on-apple-watch/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHjwtfX8GJMYz69jprWZG2qs1L9_A'> link</a>
+👉🏿Apple's Phil Schiller on reinventing the new MacBook Pro keyboard❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/apples-phil-schiller-on-reinventing-the-new-macbook-pro-keyboard/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFtk3dkndtYG4J_gdRzu1rrcnjW6Q'> link</a>
 
-👉Pokemon Sword and Shield releases final trailer ahead of launch❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.destructoid.com/pokemon-sword-and-shield-releases-final-trailer-ahead-of-launch-572227.phtml&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGvsdXXcMC8uDW14A413R47zxawIw'> link</a>
+👉Ubisoft Will Bounce Back From Its Big Sell-Off❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.fool.com/investing/2019/11/13/ubisoft-will-bounce-back-from-its-big-sell-off.aspx&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHll9jzGAdzkJEd-IrIuJ0eN9pUcg'> link</a>
 
-👉🏽Facebook app accesses iPhone camera without user's knowledge❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://appleinsider.com/articles/19/11/12/facebook-app-accesses-iphone-camera-without-users-knowledge&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHY6mWZuqVKS_auxPOrzgGc6OFO3Q'> link</a>
+👉🏽Fortnite's Season Of Silence: Epic Quiet On Console Issues, Patch Notes, Bots, Matchmaking, Everything❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/paultassi/2019/11/13/fortnites-season-of-silence-epic-quiet-on-console-issues-patch-notes-bots-matchmaking-everything/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHRg1IqBM958V7DQ5hdZU0RDGn8XQ'> link</a>
 
-👉🏿Thanksgiving planning: Best and worst times to shop, run errands, travel❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://pix11.com/2019/11/12/thanksgiving-planning-best-and-worst-times-to-shop-run-last-minute-errands/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEPLUNzBJLLVGFlD0qB7PUEKNqTlw'> link</a>
+👉🏿Amazon Introduces Glasses With Alexa Capabilities❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.baynews9.com/fl/tampa/news/2019/11/13/amazon-introduces-glasses-with-alexa-capabilities&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNE76PfytWYYqHtmpGx6TZY6wYt2uA'> link</a>
 
-👉Master & Dynamic's MH40 Wireless look and feel like $300, but don't sound like it❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/11/12/20959842/master-dynamics-mh40-wireless-review-over-ear-headphones-bluetooth&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFfmbb00c5mKqYK1EG9SF_2q7yU4A'> link</a>
+👉Apple TV+ is now available on more Amazon Fire devices❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.engadget.com/2019/11/13/apple-tv-is-now-available-on-more-amazon-fire-devices/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEtVvollniCWd9LEoSlf87eo0GrwQ'> link</a>
 
-👉🏽Pokémon Sword and Shield's Pokédex cut could be permanent❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.techradar.com/in/news/pokemon-sword-and-shields-pokedex-cut-could-be-permanent&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNECRt1yero-CdU71uPGGmAZWrielA'> link</a>
+👉🏽These sneakers vibrate❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://techcrunch.com/2019/11/13/these-sneakers-vibrate/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEt2xa4VAnLBLBbIXlp0Z3VGK8zCg'> link</a>
 
-👉🏿Disney+ Hit by Technical Issues on Launch Day❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.hollywoodreporter.com/news/disney-hit-by-technical-issues-launch-day-1254094&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNF21gNr_MRIreOE6vulHk19SwQLTQ'> link</a>
+👉🏿Pokémon Fans Furious Over New Datamined Sword And Shield 'Reused' Character Models❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/paultassi/2019/11/13/pokmon-fans-furious-over-new-datamined-sword-and-shield-reused-character-models/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNE9dScZ87jjS2N8m0HNV6rxt51H3w'> link</a>
 
