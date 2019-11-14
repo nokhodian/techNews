@@ -1,20 +1,20 @@
-<b>Technology NEWS on Wednesday, November 13th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Thursday, November 14th, 2019</b> 📡📡📡 
 
-👉'Pokémon Sword' and 'Shield' offer an excellent but familiar adventure❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.engadget.com/2019/11/13/pokemon-sword-and-shield/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGcnlL1prEm2FLNwj79TessJLKJow'> link</a>
+👉WhatsApp dark mode is nearly here, as new finishing touches appear❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.techradar.com/nz/news/whatsapp-dark-mode-is-nearly-here-as-new-finishing-touches-appear&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNE1vqCec83qWs1C196ux1ee2rlPhQ'> link</a>
 
-👉🏽Porsche 911 Speedster 2019 UK review❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.autocar.co.uk/car-review/porsche/911-speedster/first-drives/porsche-911-speedster-2019-uk-review&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEzeXEhbqGkFWHWGZQfcOmnQydULQ'> link</a>
+👉🏽Apple Research app arrives on iPhone and Apple Watch with three opt-in health studies❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://techcrunch.com/2019/11/14/apple-research-app-arrives-on-iphone-and-apple-watch-with-three-opt-in-health-studies/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGIkbave9rQLGWFZKUmejfT8wd6GA'> link</a>
 
-👉🏿Apple's Phil Schiller on reinventing the new MacBook Pro keyboard❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.cnet.com/news/apples-phil-schiller-on-reinventing-the-new-macbook-pro-keyboard/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFtk3dkndtYG4J_gdRzu1rrcnjW6Q'> link</a>
+👉🏿Black Friday preview: iPad Pro (10.5-inch) now $400 off❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.laptopmag.com/news/black-friday-preview-ipad-pro-105-inch-now-dollar400-off&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHMRaZxpIRGneKJ6tIft--C7Pk4zQ'> link</a>
 
-👉Ubisoft Will Bounce Back From Its Big Sell-Off❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.fool.com/investing/2019/11/13/ubisoft-will-bounce-back-from-its-big-sell-off.aspx&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHll9jzGAdzkJEd-IrIuJ0eN9pUcg'> link</a>
+👉AMD Ryzen 9 3950X❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcmag.com/review/371925/amd-ryzen-9-3950x&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHoSz44Ts7lUaToZNzM7Gsxm6_ZBg'> link</a>
 
-👉🏽Fortnite's Season Of Silence: Epic Quiet On Console Issues, Patch Notes, Bots, Matchmaking, Everything❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/paultassi/2019/11/13/fortnites-season-of-silence-epic-quiet-on-console-issues-patch-notes-bots-matchmaking-everything/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHRg1IqBM958V7DQ5hdZU0RDGn8XQ'> link</a>
+👉🏽Bloomberg says an Apple Music, TV+, and News+ mega-bundle may be coming in 2020❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://bgr.com/2019/11/14/apple-music-bundle-tv-plus-news-plus-coming-2020/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFpUv-URv1Kuwro-KOQ3Dde70WKsA'> link</a>
 
-👉🏿Amazon Introduces Glasses With Alexa Capabilities❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.baynews9.com/fl/tampa/news/2019/11/13/amazon-introduces-glasses-with-alexa-capabilities&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNE76PfytWYYqHtmpGx6TZY6wYt2uA'> link</a>
+👉🏿AirFly wireless headphone dongle updated with aux input support❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/11/14/20964385/airfly-pro-wireless-headphone-dongle-3-5mm-bluetooth-in-flight-entertainment-aux-in&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNESTFpmNFI6tSDqLWKhifFvT7zeWg'> link</a>
 
-👉Apple TV+ is now available on more Amazon Fire devices❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.engadget.com/2019/11/13/apple-tv-is-now-available-on-more-amazon-fire-devices/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEtVvollniCWd9LEoSlf87eo0GrwQ'> link</a>
+👉The best cord-cutting options: Did Disney Plus and Apple TV Plus change the streaming game?❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.nj.com/entertainment/2019/11/the-best-cord-cutting-options-did-disney-plus-and-apple-tv-plus-change-the-streaming-game.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGMfg33AHMyBmmZAZifLse5EbdCpA'> link</a>
 
-👉🏽These sneakers vibrate❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://techcrunch.com/2019/11/13/these-sneakers-vibrate/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEt2xa4VAnLBLBbIXlp0Z3VGK8zCg'> link</a>
+👉🏽Google Stadia Sure Is Launching Without A Whole Lot Of Features (Or Games)❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/paultassi/2019/11/14/google-stadia-sure-is-launching-without-a-whole-lot-of-features-or-games/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFYLHy--62beMqdf2ULjUAkUH1l0A'> link</a>
 
-👉🏿Pokémon Fans Furious Over New Datamined Sword And Shield 'Reused' Character Models❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/paultassi/2019/11/13/pokmon-fans-furious-over-new-datamined-sword-and-shield-reused-character-models/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNE9dScZ87jjS2N8m0HNV6rxt51H3w'> link</a>
+👉🏿17 Gift Ideas for PlayStation Fans❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.wired.com/gallery/gift-ideas-sony-playstation-fans/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFe_I9Y6u4PgO7GPMnsQcNtDtXFeQ'> link</a>
 
