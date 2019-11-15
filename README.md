@@ -1,20 +1,20 @@
-<b>Technology NEWS on Thursday, November 14th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Friday, November 15th, 2019</b> 📡📡📡 
 
-👉WhatsApp dark mode is nearly here, as new finishing touches appear❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.techradar.com/nz/news/whatsapp-dark-mode-is-nearly-here-as-new-finishing-touches-appear&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNE1vqCec83qWs1C196ux1ee2rlPhQ'> link</a>
+👉Google Stadia release date, games, price and more you need to know for launch❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.sportingnews.com/us/other-sports/news/google-stadia-release-date-games-price-launch/1xgkm3q4u3hla19vb21niv45l5&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGIvHIPQslSJNLeJMjs9qCO2Ci-eQ'> link</a>
 
-👉🏽Apple Research app arrives on iPhone and Apple Watch with three opt-in health studies❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://techcrunch.com/2019/11/14/apple-research-app-arrives-on-iphone-and-apple-watch-with-three-opt-in-health-studies/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGIkbave9rQLGWFZKUmejfT8wd6GA'> link</a>
+👉🏽Sky is giving away half price Sky Sports for Black Friday❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.gloucestershirelive.co.uk/news/uk-world-news/sky-giving-away-half-price-3542879&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNEgS31u_SRThvkktfvtzn_7ym3UTw'> link</a>
 
-👉🏿Black Friday preview: iPad Pro (10.5-inch) now $400 off❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.laptopmag.com/news/black-friday-preview-ipad-pro-105-inch-now-dollar400-off&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHMRaZxpIRGneKJ6tIft--C7Pk4zQ'> link</a>
+👉🏿Invisibility Shield makes objects 'disappear' behind incredible light-bending material developed for army❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.thesun.co.uk/tech/10353347/invisibility-shield-makes-objects-disappear-military/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGppM4fzm95QPqTHijAjP-R2SDSSw'> link</a>
 
-👉AMD Ryzen 9 3950X❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.pcmag.com/review/371925/amd-ryzen-9-3950x&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHoSz44Ts7lUaToZNzM7Gsxm6_ZBg'> link</a>
+👉That Rumored Apple Services Bundle Could Be Just Around the Corner❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.fool.com/investing/2019/11/15/that-rumored-apple-services-bundle-could-be-just-a.aspx&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNF_7wZDs5afvKOQ7JfYAXYn8PKKpA'> link</a>
 
-👉🏽Bloomberg says an Apple Music, TV+, and News+ mega-bundle may be coming in 2020❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://bgr.com/2019/11/14/apple-music-bundle-tv-plus-news-plus-coming-2020/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFpUv-URv1Kuwro-KOQ3Dde70WKsA'> link</a>
+👉🏽Google Drive Backups Not Working for Several Android Phone Users, Simple Temporary Workaround Detailed❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://gadgets.ndtv.com/mobiles/news/google-drive-backups-android-phones-not-working-temporary-workarounds-2133211&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNF8HaPESllKnsCVEy86YAN7kzhcWQ'> link</a>
 
-👉🏿AirFly wireless headphone dongle updated with aux input support❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.theverge.com/2019/11/14/20964385/airfly-pro-wireless-headphone-dongle-3-5mm-bluetooth-in-flight-entertainment-aux-in&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNESTFpmNFI6tSDqLWKhifFvT7zeWg'> link</a>
+👉🏿Call of Duty: Modern Warfare Tips - Clayster and TeePee Share Their Advice❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://gadgets.ndtv.com/games/features/call-of-duty-modern-warfare-tips-clayster-and-teepee-share-their-advice-2133204&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNHw9WYTx6H_ulktcUC7MefS4_OMeA'> link</a>
 
-👉The best cord-cutting options: Did Disney Plus and Apple TV Plus change the streaming game?❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.nj.com/entertainment/2019/11/the-best-cord-cutting-options-did-disney-plus-and-apple-tv-plus-change-the-streaming-game.html&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGMfg33AHMyBmmZAZifLse5EbdCpA'> link</a>
+👉OxygenOS 10.0.6 rolling out for OnePlus 7T, 7T Pro gets OxygenOS 10.0.4❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://9to5google.com/2019/11/15/oxygenos-10-0-6/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGMWrLtzRMbd_1ZStoWzt8pS2POhQ'> link</a>
 
-👉🏽Google Stadia Sure Is Launching Without A Whole Lot Of Features (Or Games)❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.forbes.com/sites/paultassi/2019/11/14/google-stadia-sure-is-launching-without-a-whole-lot-of-features-or-games/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFYLHy--62beMqdf2ULjUAkUH1l0A'> link</a>
+👉🏽Redmi 4 Starts Receiving MIUI 11 Update in India, Users Report❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://gadgets.ndtv.com/mobiles/news/redmi-4-miui-11-update-rolling-out-india-download-changes-xiaomi-reports-2133202&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNGuglpCyCV2VmwE1bP84dBZNiPWaA'> link</a>
 
-👉🏿17 Gift Ideas for PlayStation Fans❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.wired.com/gallery/gift-ideas-sony-playstation-fans/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFe_I9Y6u4PgO7GPMnsQcNtDtXFeQ'> link</a>
+👉🏿'Minecraft Dungeons' will arrive in April 2020❗️<a href='https://www.google.com/url?rct=j&sa=t&url=https://www.engadget.com/2019/11/15/minecraft-dungeons-will-arrive-in-april-2020/&ct=ga&cd=CAIyGmVjZmViYzNiZjFkNzQyNDM6Y29tOmVuOlVT&usg=AFQjCNFx9rr_XiDJ3_KcArhC5J1_uaCPjA'> link</a>
 
