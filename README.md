@@ -1,20 +1,20 @@
-<b>Technology NEWS on Monday, November 18th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Tuesday, November 19th, 2019</b> 📡📡📡 
 
-👉Ubiquity6 launches Display.land app to capture, edit, and share augmented reality spaces❗️<a href='https://techblock.club/?p=1008'> link</a>
+👉Sony rumored to launch four Xperia flagships next year❗️<a href='https://techblock.club/?p=1028'> link</a>
 
-👉🏽Salesforce, Apple partnership begins to come to life❗️<a href='https://techblock.club/?p=1010'> link</a>
+👉🏽Logitech G Reveals Adaptive Gaming Kit For Xbox Adaptive Controller❗️<a href='https://techblock.club/?p=1030'> link</a>
 
-👉🏿Microsoft Surface Pro 7❗️<a href='https://techblock.club/?p=1012'> link</a>
+👉🏿Amazon's latest Fire TV accessory is an IR blaster that lets your Echo control your TV❗️<a href='https://techblock.club/?p=1032'> link</a>
 
-👉Google Black Friday deals: $299 Pixel 3a, $599 Pixel 4 and $80 off Stadia bundle❗️<a href='https://techblock.club/?p=1014'> link</a>
+👉How to use your Echo with two Amazon accounts❗️<a href='https://techblock.club/?p=1034'> link</a>
 
-👉🏽PS5 DualShock 5 Controller patent leaks, new specs for Sony's newest PlayStation pad confirmed?❗️<a href='https://techblock.club/?p=1016'> link</a>
+👉🏽Street Fighter V: Champion Edition Detailed!❗️<a href='https://techblock.club/?p=1036'> link</a>
 
-👉🏿New Black Friday 2019 deals on Sony headphones, Nintendo Switch, Echo Show 5 and much more❗️<a href='https://techblock.club/?p=1018'> link</a>
+👉🏿Blair Witch PS4 Release Date Confirmed in New Trailer❗️<a href='https://techblock.club/?p=1038'> link</a>
 
-👉Crucial Windows 10 security update is failing to install: What to do❗️<a href='https://techblock.club/?p=1020'> link</a>
+👉Lenovo launches ThinkBook 14 and 15 laptops, price starts at Rs 30990❗️<a href='https://techblock.club/?p=1040'> link</a>
 
-👉🏽Realme India CEO Madhav Sheth Spotted Tweeting From an iPhone❗️<a href='https://techblock.club/?p=1022'> link</a>
+👉🏽Microsoft says it has 20 million daily active Teams users❗️<a href='https://techblock.club/?p=1042'> link</a>
 
-👉🏿Salesforce launches new Salesforce Mobile App, Trailhead GO with Apple, exclusive iOS, iPadOS features❗️<a href='https://techblock.club/?p=1024'> link</a>
+👉🏿Flexible organic electrodes built using water-processed silver nanowires❗️<a href='https://techblock.club/?p=1044'> link</a>
 
