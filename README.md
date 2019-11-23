@@ -1,20 +1,20 @@
-<b>Technology NEWS on Friday, November 22nd, 2019</b> 📡📡📡 
+<b>Technology NEWS on Saturday, November 23rd, 2019</b> 📡📡📡 
 
-👉Google's plan for the helpful home all goes back to privacy❗️<a href='https://techblock.club/?p=1088'> link</a>
+👉Dodge Celebrates Five Decades Of Challengers With Special 50th Anniversary Edition❗️<a href='https://techblock.club/?p=1108'> link</a>
 
-👉🏽Google starts the countdown clock on Cloud Print, gives users a year to find an alternative❗️<a href='https://techblock.club/?p=1090'> link</a>
+👉🏽Deathgarden: Bloodharvest bids farewell by going free-to-play❗️<a href='https://techblock.club/?p=1110'> link</a>
 
-👉🏿HTC VIVE Pro Eye Named To TIME's List Of The 100 Best Inventions Of 2019❗️<a href='https://techblock.club/?p=1092'> link</a>
+👉🏿The best Google Stadia games to play now❗️<a href='https://techblock.club/?p=1112'> link</a>
 
-👉Boeing CST-100 Starliner takes a big step towards launch❗️<a href='https://techblock.club/?p=1094'> link</a>
+👉From Austin to Antitrust to iOS, Apple's Week Was Full of Bugs❗️<a href='https://techblock.club/?p=1114'> link</a>
 
-👉🏽Black Friday 2019 Target Ad: Xbox One And PS4 Bundle Deals Will Start This Weekend❗️<a href='https://techblock.club/?p=1096'> link</a>
+👉🏽Texas man says he was gifted an Apple Watch, now he credits it with detecting undiagnosed AFib❗️<a href='https://techblock.club/?p=1116'> link</a>
 
-👉🏿Nvidia's $160 GeForce GTX 1650 Super launches with GDDR6 and little fanfare❗️<a href='https://techblock.club/?p=1098'> link</a>
+👉🏿Top Stories: iPhone 11 Smart Battery Cases, December 2 App Event, 13-Inch MacBook Pro Rumors❗️<a href='https://techblock.club/?p=1118'> link</a>
 
-👉Russia to ban iPhones and all devices not pre-loaded with local apps❗️<a href='https://techblock.club/?p=1100'> link</a>
+👉Security News This Week: Twitter Now Has Better Two-Factor Authentication, So Use It❗️<a href='https://techblock.club/?p=1120'> link</a>
 
-👉🏽Oppo may soon launch its own smartphone chip❗️<a href='https://techblock.club/?p=1102'> link</a>
+👉🏽Latest Star Citizen Free-Fly event lets you try every ship❗️<a href='https://techblock.club/?p=1122'> link</a>
 
-👉🏿Destiny 2's Solar Subclass Buffs For Season Of The Dawn Are Fire❗️<a href='https://techblock.club/?p=1104'> link</a>
+👉🏿Fossil's Hybrid HR smartwatches have good battery life and bad software❗️<a href='https://techblock.club/?p=1124'> link</a>
 
