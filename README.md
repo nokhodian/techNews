@@ -1,20 +1,20 @@
-<b>Technology NEWS on Saturday, November 23rd, 2019</b> 📡📡📡 
+<b>Technology NEWS on Sunday, November 24th, 2019</b> 📡📡📡 
 
-👉Dodge Celebrates Five Decades Of Challengers With Special 50th Anniversary Edition❗️<a href='https://techblock.club/?p=1108'> link</a>
+👉Borderlands 3 - Official 4K Moxxi's Heist of the Handsome Jackpot Reveal Trailer❗️<a href='https://techblock.club/?p=1128'> link</a>
 
-👉🏽Deathgarden: Bloodharvest bids farewell by going free-to-play❗️<a href='https://techblock.club/?p=1110'> link</a>
+👉🏽Microsoft may or may not introduce xCloud exclusive games❗️<a href='https://techblock.club/?p=1130'> link</a>
 
-👉🏿The best Google Stadia games to play now❗️<a href='https://techblock.club/?p=1112'> link</a>
+👉🏿Microsoft pushes launch date for Surface Earbuds to Spring 2020❗️<a href='https://techblock.club/?p=1132'> link</a>
 
-👉From Austin to Antitrust to iOS, Apple's Week Was Full of Bugs❗️<a href='https://techblock.club/?p=1114'> link</a>
+👉Star Citizen shows off a new stealth mission and a new planet on stage at CitizenCon❗️<a href='https://techblock.club/?p=1134'> link</a>
 
-👉🏽Texas man says he was gifted an Apple Watch, now he credits it with detecting undiagnosed AFib❗️<a href='https://techblock.club/?p=1116'> link</a>
+👉🏽Give Your Laptop a Second Screen With This Innovative Monitor❗️<a href='https://techblock.club/?p=1136'> link</a>
 
-👉🏿Top Stories: iPhone 11 Smart Battery Cases, December 2 App Event, 13-Inch MacBook Pro Rumors❗️<a href='https://techblock.club/?p=1118'> link</a>
+👉🏿Modern Warfare Devs Knew Players Wouldn't Be Happy With Latest Changes to Footstep Audio❗️<a href='https://techblock.club/?p=1138'> link</a>
 
-👉Security News This Week: Twitter Now Has Better Two-Factor Authentication, So Use It❗️<a href='https://techblock.club/?p=1120'> link</a>
+👉Monster Hunter World: Iceborne expansion second major title update to add Stygian Zinogre, launches December 5❗️<a href='https://techblock.club/?p=1140'> link</a>
 
-👉🏽Latest Star Citizen Free-Fly event lets you try every ship❗️<a href='https://techblock.club/?p=1122'> link</a>
+👉🏽Amazon slashes $320 off Apple MacBook Air for today only for Black Friday❗️<a href='https://techblock.club/?p=1142'> link</a>
 
-👉🏿Fossil's Hybrid HR smartwatches have good battery life and bad software❗️<a href='https://techblock.club/?p=1124'> link</a>
+👉🏿Insane Android deal alert: Amazon is selling the Google Pixel 3 for less than the Pixel 3a❗️<a href='https://techblock.club/?p=1144'> link</a>
 
