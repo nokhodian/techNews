@@ -1,20 +1,20 @@
-<b>Technology NEWS on Wednesday, November 27th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Thursday, November 28th, 2019</b> 📡📡📡 
 
-👉The electric toothbrush with over 8000 reviews is 60% off today❗️<a href='https://techblock.club/?p=1189'> link</a>
+👉Intel is losing against AMD❗️<a href='https://techblock.club/?p=1209'> link</a>
 
-👉🏽Our Favorite Cheap 4K TV Looks Even Better With Quantum Dot Technology❗️<a href='https://techblock.club/?p=1191'> link</a>
+👉🏽Fitbit Black Friday blowout: Every tracker and smartwatch is on sale at Amazon for all-time-lows❗️<a href='https://techblock.club/?p=1211'> link</a>
 
-👉🏿Amazon Echo Show 8❗️<a href='https://techblock.club/?p=1193'> link</a>
+👉🏿Woman, 23, stoned by African villagers has giant facial tumour removed after eight years❗️<a href='https://techblock.club/?p=1213'> link</a>
 
-👉Lawmakers Wonder if Apple Uses Privacy for Anti-Competitive Behavior❗️<a href='https://techblock.club/?p=1195'> link</a>
+👉Soon you could be able to turn your iPhone into an iPod Classic❗️<a href='https://techblock.club/?p=1215'> link</a>
 
-👉🏽Why God Of War is my game of the generation – Reader's Feature❗️<a href='https://techblock.club/?p=1197'> link</a>
+👉🏽The Samsung Galaxy Fold is headed to Canada, with in-store pre-orders starting today❗️<a href='https://techblock.club/?p=1217'> link</a>
 
-👉🏿We found a hidden deal slashes $50 off Bose QC35 noise cancelling headphones❗️<a href='https://techblock.club/?p=1199'> link</a>
+👉🏿Facebook down: Social network stops working alongside Instagram amid major Thanksgiving outage❗️<a href='https://techblock.club/?p=1219'> link</a>
 
-👉Apple confirms HomeKit-secured CCTV and router systems❗️<a href='https://techblock.club/?p=1201'> link</a>
+👉Valve bids farewell to the Steam Controller with a 90 percent discount❗️<a href='https://techblock.club/?p=1221'> link</a>
 
-👉🏽Buy Apple's New iPad for Only $279.99 & Save 16% on iPad Pro Models❗️<a href='https://techblock.club/?p=1203'> link</a>
+👉🏽Flash Giveaway: Enter to win a free pair of Apple AirPods Pro❗️<a href='https://techblock.club/?p=1223'> link</a>
 
-👉🏿Darksiders Genesis 'Introducing Strife' trailer❗️<a href='https://techblock.club/?p=1205'> link</a>
+👉🏿Xbox Live Black Friday deals: Get Games with Gold and Game Pass with AMAZING discounts❗️<a href='https://techblock.club/?p=1225'> link</a>
 
