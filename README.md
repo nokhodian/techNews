@@ -1,20 +1,20 @@
-<b>Technology NEWS on Friday, November 29th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Saturday, November 30th, 2019</b> 📡📡📡 
 
-👉The $18 Roku SE is the best Black Friday deal no one is talking about❗️<a href='https://techblock.club/?p=1229'> link</a>
+👉This month in Tech: Resurrection of Moto Razr, dawn of Realme X2 Pro and other phones launched in November❗️<a href='https://techblock.club/?p=1249'> link</a>
 
-👉🏽Report says iPhone 12 will help Apple do something huge that it hasn't done in years❗️<a href='https://techblock.club/?p=1231'> link</a>
+👉🏽Best Cyber Monday SSD and Storage Deals 2019❗️<a href='https://techblock.club/?p=1251'> link</a>
 
-👉🏿Best Black Friday 2019 Amazon deals: $205 Fossil smartwatch, $129 AirPods and more (updated)❗️<a href='https://techblock.club/?p=1233'> link</a>
+👉🏿OnePlus 6, 6T Android 10 update, security updates, and more: Open Beta 2 released!❗️<a href='https://techblock.club/?p=1253'> link</a>
 
-👉Unlocked Motorola Moto G6 For Just $119 – Amazon Black Friday 2019 Deals❗️<a href='https://techblock.club/?p=1235'> link</a>
+👉The 10 best Cyber Monday deals you can already get on Saturday❗️<a href='https://techblock.club/?p=1255'> link</a>
 
-👉🏽Mario Kart Tour heading to London in next week's update❗️<a href='https://techblock.club/?p=1237'> link</a>
+👉🏽What to Buy Instead of a Fitbit❗️<a href='https://techblock.club/?p=1257'> link</a>
 
-👉🏿Death Stranding's December update lets you change text size❗️<a href='https://techblock.club/?p=1239'> link</a>
+👉🏿Enough of the euphemisms. Let's talk about death openly and honestly | Kathryn Mannix❗️<a href='https://techblock.club/?p=1259'> link</a>
 
-👉Black Friday 2019 deals under $250: Huge savings on iPad, Fire TV, HomePod, Beats and more❗️<a href='https://techblock.club/?p=1241'> link</a>
+👉Here are the best Black Friday deals that are still available❗️<a href='https://techblock.club/?p=1261'> link</a>
 
-👉🏽Amazon is selling $100 App Store and iTunes cards for $80 right now if you act fast❗️<a href='https://techblock.club/?p=1243'> link</a>
+👉🏽Quit losing things: Score a free Google Nest Mini on these Tile Tracker combos❗️<a href='https://techblock.club/?p=1263'> link</a>
 
-👉🏿No, Call of Duty Modern Warfare's Campaign is Not Too Short❗️<a href='https://techblock.club/?p=1245'> link</a>
+👉🏿Get over £250 off stunning Huawei P30 series this Black Friday weekend❗️<a href='https://techblock.club/?p=1265'> link</a>
 
