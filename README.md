@@ -1,20 +1,20 @@
-<b>Technology NEWS on Saturday, November 30th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Sunday, December 1st, 2019</b> 📡📡📡 
 
-👉This month in Tech: Resurrection of Moto Razr, dawn of Realme X2 Pro and other phones launched in November❗️<a href='https://techblock.club/?p=1249'> link</a>
+👉Save $250 off IK Multimedia's monster AmpliTube Max guitar plugins bundle – just $249 for Cyber Weekend❗️<a href='https://techblock.club/?p=1269'> link</a>
 
-👉🏽Best Cyber Monday SSD and Storage Deals 2019❗️<a href='https://techblock.club/?p=1251'> link</a>
+👉🏽Big discounts on MacBook Air, iPad, Apple Watch, and AirPods are still on for Cyber Monday❗️<a href='https://techblock.club/?p=1271'> link</a>
 
-👉🏿OnePlus 6, 6T Android 10 update, security updates, and more: Open Beta 2 released!❗️<a href='https://techblock.club/?p=1253'> link</a>
+👉🏿Cyber Monday 2019: The best deals so far❗️<a href='https://techblock.club/?p=1273'> link</a>
 
-👉The 10 best Cyber Monday deals you can already get on Saturday❗️<a href='https://techblock.club/?p=1255'> link</a>
+👉Data of 21 million Mixcloud users put up for sale on the dark web❗️<a href='https://techblock.club/?p=1275'> link</a>
 
-👉🏽What to Buy Instead of a Fitbit❗️<a href='https://techblock.club/?p=1257'> link</a>
+👉🏽Fairy Tail Releasing Worldwide in March 2020, Promises Faithful Recreation of the Manga World❗️<a href='https://techblock.club/?p=1277'> link</a>
 
-👉🏿Enough of the euphemisms. Let's talk about death openly and honestly | Kathryn Mannix❗️<a href='https://techblock.club/?p=1259'> link</a>
+👉🏿Cyber Monday 2019 Death Stranding Deal: Get A Free $20 PSN Card With Purchase❗️<a href='https://techblock.club/?p=1279'> link</a>
 
-👉Here are the best Black Friday deals that are still available❗️<a href='https://techblock.club/?p=1261'> link</a>
+👉Killer robot vacuum deal: Ecovacs Deebot 500 down to $135 right now❗️<a href='https://techblock.club/?p=1281'> link</a>
 
-👉🏽Quit losing things: Score a free Google Nest Mini on these Tile Tracker combos❗️<a href='https://techblock.club/?p=1263'> link</a>
+👉🏽Cyber Monday 2019 Deals: Get Call Of Duty: Modern Warfare For $40 (PS4, Xbox One)❗️<a href='https://techblock.club/?p=1283'> link</a>
 
-👉🏿Get over £250 off stunning Huawei P30 series this Black Friday weekend❗️<a href='https://techblock.club/?p=1265'> link</a>
+👉🏿Rust PS4 And Xbox One Release Frame Revealed By The Developers❗️<a href='https://techblock.club/?p=1285'> link</a>
 
