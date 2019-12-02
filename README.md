@@ -1,20 +1,20 @@
-<b>Technology NEWS on Sunday, December 1st, 2019</b> 📡📡📡 
+<b>Technology NEWS on Monday, December 2nd, 2019</b> 📡📡📡 
 
-👉Save $250 off IK Multimedia's monster AmpliTube Max guitar plugins bundle – just $249 for Cyber Weekend❗️<a href='https://techblock.club/?p=1269'> link</a>
+👉Amazon Cyber Monday 2019: The best deals right now❗️<a href='https://techblock.club/?p=1289'> link</a>
 
-👉🏽Big discounts on MacBook Air, iPad, Apple Watch, and AirPods are still on for Cyber Monday❗️<a href='https://techblock.club/?p=1271'> link</a>
+👉🏽You won't believe how good the deals are in Target's huge Cyber Monday 2019 sale❗️<a href='https://techblock.club/?p=1291'> link</a>
 
-👉🏿Cyber Monday 2019: The best deals so far❗️<a href='https://techblock.club/?p=1273'> link</a>
+👉🏿Rolls-Royce Unveils Red Phanton for Aids Research❗️<a href='https://techblock.club/?p=1293'> link</a>
 
-👉Data of 21 million Mixcloud users put up for sale on the dark web❗️<a href='https://techblock.club/?p=1275'> link</a>
+👉Cyberpunk 2077: "put your points in whatever you want"❗️<a href='https://techblock.club/?p=1295'> link</a>
 
-👉🏽Fairy Tail Releasing Worldwide in March 2020, Promises Faithful Recreation of the Manga World❗️<a href='https://techblock.club/?p=1277'> link</a>
+👉🏽Soon every enterprise will need its own App Store❗️<a href='https://techblock.club/?p=1297'> link</a>
 
-👉🏿Cyber Monday 2019 Death Stranding Deal: Get A Free $20 PSN Card With Purchase❗️<a href='https://techblock.club/?p=1279'> link</a>
+👉🏿Cyber Monday deal: Snag a rare $50 discount on the Sonos One smart speaker❗️<a href='https://techblock.club/?p=1299'> link</a>
 
-👉Killer robot vacuum deal: Ecovacs Deebot 500 down to $135 right now❗️<a href='https://techblock.club/?p=1281'> link</a>
+👉Tim Cook Marks World Aids Day and Rosa Parks❗️<a href='https://techblock.club/?p=1301'> link</a>
 
-👉🏽Cyber Monday 2019 Deals: Get Call Of Duty: Modern Warfare For $40 (PS4, Xbox One)❗️<a href='https://techblock.club/?p=1283'> link</a>
+👉🏽Microsoft: We're creating a new Rust-based programming language for secure coding❗️<a href='https://techblock.club/?p=1303'> link</a>
 
-👉🏿Rust PS4 And Xbox One Release Frame Revealed By The Developers❗️<a href='https://techblock.club/?p=1285'> link</a>
+👉🏿Cyber Monday Giveaway: Enter to win a free Apple Watch Series 5❗️<a href='https://techblock.club/?p=1305'> link</a>
 
