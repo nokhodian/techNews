@@ -1,20 +1,20 @@
-<b>Technology NEWS on Tuesday, December 3rd, 2019</b> 📡📡📡 
+<b>Technology NEWS on Wednesday, December 4th, 2019</b> 📡📡📡 
 
-👉Infinix S5 Evaluate | NDTV Devices360.com❗️<a href='https://techblock.club/?p=1309'> link</a>
+👉Four-wheel-drive Toyota Yaris GR-4 hot hatchback teased❗️<a href='https://techblock.club/?p=1330'> link</a>
 
-👉🏽Logz.io moves towards application observability in the cloud, raises questions on open source❗️<a href='https://techblock.club/?p=1311'> link</a>
+👉🏽Easum to Head Crunchyroll in Europe, Middle East, Africa❗️<a href='https://techblock.club/?p=1332'> link</a>
 
-👉🏿elementary OS 5.1 'Hera' Linux distro is here❗️<a href='https://techblock.club/?p=1313'> link</a>
+👉🏿Nintendo Switch Lite Discounted To $124 In This Incredible Cyber Week Deal❗️<a href='https://techblock.club/?p=1334'> link</a>
 
-👉Photos: The best chargers for business pros on the go❗️<a href='https://techblock.club/?p=1315'> link</a>
+👉Damon Hypersport Electric Motorcycles Comes with AI Copilot and Haptic Feedback❗️<a href='https://techblock.club/?p=1336'> link</a>
 
-👉🏽New Android bug targets banking apps on Google Play store❗️<a href='https://techblock.club/?p=1317'> link</a>
+👉🏽Amazon unwraps a battery-powered Echo smart speaker, but only for India❗️<a href='https://techblock.club/?p=1338'> link</a>
 
-👉🏿Persona 5 sales pass 3.2 million❗️<a href='https://techblock.club/?p=1319'> link</a>
+👉🏿MacBook Pro Diary: A third failure, and a potentially radical solution❗️<a href='https://techblock.club/?p=1340'> link</a>
 
-👉Arise: A Simple Story's Enchanting Launch Trailer Teases its Touching Story❗️<a href='https://techblock.club/?p=1321'> link</a>
+👉Rumor: A Plague Tale: Innocence sequel in development❗️<a href='https://techblock.club/?p=1342'> link</a>
 
-👉🏽Farming Simulator 20 crops up on Switch and mobile❗️<a href='https://techblock.club/?p=1323'> link</a>
+👉🏽5G won't change everything, or at least probably not your things❗️<a href='https://techblock.club/?p=1344'> link</a>
 
-👉🏿You Can Buy The Best Jaguar F-Type For The Price Of A V8 Mustang❗️<a href='https://techblock.club/?p=1325'> link</a>
+👉🏿Amazon Cyber Week deal gets you a RoboVac as strong as a Roomba for just $179❗️<a href='https://techblock.club/?p=1346'> link</a>
 
