@@ -1,20 +1,20 @@
-<b>Technology NEWS on Wednesday, December 4th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Thursday, December 5th, 2019</b> 📡📡📡 
 
-👉Four-wheel-drive Toyota Yaris GR-4 hot hatchback teased❗️<a href='https://techblock.club/?p=1330'> link</a>
+👉'Dead Cells' Receiving New DLC “The Bad Seed”, to be Released Q1 2020❗️<a href='https://techblock.club/?p=1350'> link</a>
 
-👉🏽Easum to Head Crunchyroll in Europe, Middle East, Africa❗️<a href='https://techblock.club/?p=1332'> link</a>
+👉🏽Layoffs as mobile developer Gameloft closes UK studio❗️<a href='https://techblock.club/?p=1352'> link</a>
 
-👉🏿Nintendo Switch Lite Discounted To $124 In This Incredible Cyber Week Deal❗️<a href='https://techblock.club/?p=1334'> link</a>
+👉🏿Security firm Cyberhaven raises $13M Series A with the backing of former Facebook execs❗️<a href='https://techblock.club/?p=1354'> link</a>
 
-👉Damon Hypersport Electric Motorcycles Comes with AI Copilot and Haptic Feedback❗️<a href='https://techblock.club/?p=1336'> link</a>
+👉Apple attending & presenting at NeurIPS Machine Learning conference❗️<a href='https://techblock.club/?p=1356'> link</a>
 
-👉🏽Amazon unwraps a battery-powered Echo smart speaker, but only for India❗️<a href='https://techblock.club/?p=1338'> link</a>
+👉🏽Best Cyber Monday 2019 deals still available: Switch Lite, Echo Show, Instant Pot and more (Thursday update)❗️<a href='https://techblock.club/?p=1358'> link</a>
 
-👉🏿MacBook Pro Diary: A third failure, and a potentially radical solution❗️<a href='https://techblock.club/?p=1340'> link</a>
+👉🏿Google will allow you to locate packages with a simple internet search❗️<a href='https://techblock.club/?p=1360'> link</a>
 
-👉Rumor: A Plague Tale: Innocence sequel in development❗️<a href='https://techblock.club/?p=1342'> link</a>
+👉Resident Evil 3 remake: Release date, leaks, cover art, trailer and news❗️<a href='https://techblock.club/?p=1362'> link</a>
 
-👉🏽5G won't change everything, or at least probably not your things❗️<a href='https://techblock.club/?p=1344'> link</a>
+👉🏽Darksiders: Genesis Launches for PC & Stadia; New Trailer Shows Strife in Action❗️<a href='https://techblock.club/?p=1364'> link</a>
 
-👉🏿Amazon Cyber Week deal gets you a RoboVac as strong as a Roomba for just $179❗️<a href='https://techblock.club/?p=1346'> link</a>
+👉🏿Bag some more experience by finding this hidden Fortnite XP drop❗️<a href='https://techblock.club/?p=1366'> link</a>
 
