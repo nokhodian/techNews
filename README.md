@@ -1,20 +1,20 @@
-<b>Technology NEWS on Thursday, December 5th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Friday, December 6th, 2019</b> 📡📡📡 
 
-👉'Dead Cells' Receiving New DLC “The Bad Seed”, to be Released Q1 2020❗️<a href='https://techblock.club/?p=1350'> link</a>
+👉The Next Few Years Are EA's To Lose After Star Wars Jedi: Fallen Order's Success❗️<a href='https://techblock.club/?p=1370'> link</a>
 
-👉🏽Layoffs as mobile developer Gameloft closes UK studio❗️<a href='https://techblock.club/?p=1352'> link</a>
+👉🏽AMD won't stop loading up Ryzen CPUs with even more cores❗️<a href='https://techblock.club/?p=1372'> link</a>
 
-👉🏿Security firm Cyberhaven raises $13M Series A with the backing of former Facebook execs❗️<a href='https://techblock.club/?p=1354'> link</a>
+👉🏿Sony Announces the launch of Alpha A9 II in India❗️<a href='https://techblock.club/?p=1374'> link</a>
 
-👉Apple attending & presenting at NeurIPS Machine Learning conference❗️<a href='https://techblock.club/?p=1356'> link</a>
+👉Samsung's Galaxy Fold 2 Might Be Much Cheaper❗️<a href='https://techblock.club/?p=1376'> link</a>
 
-👉🏽Best Cyber Monday 2019 deals still available: Switch Lite, Echo Show, Instant Pot and more (Thursday update)❗️<a href='https://techblock.club/?p=1358'> link</a>
+👉🏽Pokémon GO's Evolution Event 2019: Here Are the New Research Tasks and Raid Bosses❗️<a href='https://techblock.club/?p=1378'> link</a>
 
-👉🏿Google will allow you to locate packages with a simple internet search❗️<a href='https://techblock.club/?p=1360'> link</a>
+👉🏿The Game Awards 2019 Start Time, Live Stream, And Where To Watch❗️<a href='https://techblock.club/?p=1380'> link</a>
 
-👉Resident Evil 3 remake: Release date, leaks, cover art, trailer and news❗️<a href='https://techblock.club/?p=1362'> link</a>
+👉Microsoft Office mobile apps Fluent redesign may not be skin deep only❗️<a href='https://techblock.club/?p=1382'> link</a>
 
-👉🏽Darksiders: Genesis Launches for PC & Stadia; New Trailer Shows Strife in Action❗️<a href='https://techblock.club/?p=1364'> link</a>
+👉🏽Reports of Apple TV+ shows no longer playing in Dolby Vision on Apple TV 4K❗️<a href='https://techblock.club/?p=1384'> link</a>
 
-👉🏿Bag some more experience by finding this hidden Fortnite XP drop❗️<a href='https://techblock.club/?p=1366'> link</a>
+👉🏿Your Dead Loved One's Twitter Account May Soon Be Gone: Here's How to Keep Their Tweets❗️<a href='https://techblock.club/?p=1386'> link</a>
 
