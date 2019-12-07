@@ -1,20 +1,20 @@
-<b>Technology NEWS on Friday, December 6th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Saturday, December 7th, 2019</b> 📡📡📡 
 
-👉The Next Few Years Are EA's To Lose After Star Wars Jedi: Fallen Order's Success❗️<a href='https://techblock.club/?p=1370'> link</a>
+👉FBI Recommends Securing Your Smart TVs and IoT Devices❗️<a href='https://techblock.club/?p=1390'> link</a>
 
-👉🏽AMD won't stop loading up Ryzen CPUs with even more cores❗️<a href='https://techblock.club/?p=1372'> link</a>
+👉🏽OnePlus' 8 Lite could be its second attempt at mid-range devices❗️<a href='https://techblock.club/?p=1392'> link</a>
 
-👉🏿Sony Announces the launch of Alpha A9 II in India❗️<a href='https://techblock.club/?p=1374'> link</a>
+👉🏿Kingdom Hearts III ReMind Release Date Revealed by Now-Deleted Trailer (Potential Spoilers)❗️<a href='https://techblock.club/?p=1394'> link</a>
 
-👉Samsung's Galaxy Fold 2 Might Be Much Cheaper❗️<a href='https://techblock.club/?p=1376'> link</a>
+👉Gym giving you back or shoulder pain? Personal trainer reveals the most common technique mistakes❗️<a href='https://techblock.club/?p=1396'> link</a>
 
-👉🏽Pokémon GO's Evolution Event 2019: Here Are the New Research Tasks and Raid Bosses❗️<a href='https://techblock.club/?p=1378'> link</a>
+👉🏽Rumour: Activison could be planning an imminent new Crash Bandicoot reveal❗️<a href='https://techblock.club/?p=1398'> link</a>
 
-👉🏿The Game Awards 2019 Start Time, Live Stream, And Where To Watch❗️<a href='https://techblock.club/?p=1380'> link</a>
+👉🏿Apple could ditch the iPhone SE 2 name in favour of the iPhone 9❗️<a href='https://techblock.club/?p=1400'> link</a>
 
-👉Microsoft Office mobile apps Fluent redesign may not be skin deep only❗️<a href='https://techblock.club/?p=1382'> link</a>
+👉First Batch of Humble Choice Games Revealed❗️<a href='https://techblock.club/?p=1402'> link</a>
 
-👉🏽Reports of Apple TV+ shows no longer playing in Dolby Vision on Apple TV 4K❗️<a href='https://techblock.club/?p=1384'> link</a>
+👉🏽The best ways to hear Lewis Capaldi's music online❗️<a href='https://techblock.club/?p=1404'> link</a>
 
-👉🏿Your Dead Loved One's Twitter Account May Soon Be Gone: Here's How to Keep Their Tweets❗️<a href='https://techblock.club/?p=1386'> link</a>
+👉🏿Apple AirPods Pro vs. Master and Dynamic MW07 Plus❗️<a href='https://techblock.club/?p=1406'> link</a>
 
