@@ -1,20 +1,20 @@
-<b>Technology NEWS on Saturday, December 7th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Sunday, December 8th, 2019</b> 📡📡📡 
 
-👉FBI Recommends Securing Your Smart TVs and IoT Devices❗️<a href='https://techblock.club/?p=1390'> link</a>
+👉Beachside bungalow that has inspired artists through the decades goes up for sale for £650000❗️<a href='https://techblock.club/?p=1410'> link</a>
 
-👉🏽OnePlus' 8 Lite could be its second attempt at mid-range devices❗️<a href='https://techblock.club/?p=1392'> link</a>
+👉🏽Softbank's Son and Alibaba's Ma see people at the heart of AI age❗️<a href='https://techblock.club/?p=1412'> link</a>
 
-👉🏿Kingdom Hearts III ReMind Release Date Revealed by Now-Deleted Trailer (Potential Spoilers)❗️<a href='https://techblock.club/?p=1394'> link</a>
+👉🏿HomeKit support for IKEA's smart blinds delayed until 'early next year'❗️<a href='https://techblock.club/?p=1414'> link</a>
 
-👉Gym giving you back or shoulder pain? Personal trainer reveals the most common technique mistakes❗️<a href='https://techblock.club/?p=1396'> link</a>
+👉SanDisk SD and microSD cards are back down to Black Friday prices, today only❗️<a href='https://techblock.club/?p=1416'> link</a>
 
-👉🏽Rumour: Activison could be planning an imminent new Crash Bandicoot reveal❗️<a href='https://techblock.club/?p=1398'> link</a>
+👉🏽Is It Wrong To Try To Pick Up Girls In A Dungeon? Infinite Combate Coming to the West in 2020❗️<a href='https://techblock.club/?p=1418'> link</a>
 
-👉🏿Apple could ditch the iPhone SE 2 name in favour of the iPhone 9❗️<a href='https://techblock.club/?p=1400'> link</a>
+👉🏿Can These Noise-Canceling Headphones From SHIVR Beat The Best On The Market?❗️<a href='https://techblock.club/?p=1420'> link</a>
 
-👉First Batch of Humble Choice Games Revealed❗️<a href='https://techblock.club/?p=1402'> link</a>
+👉Crime blotter: iPad thief chased by 71-year-old English florist❗️<a href='https://techblock.club/?p=1422'> link</a>
 
-👉🏽The best ways to hear Lewis Capaldi's music online❗️<a href='https://techblock.club/?p=1404'> link</a>
+👉🏽Top Christmas gifts for Lego fans❗️<a href='https://techblock.club/?p=1424'> link</a>
 
-👉🏿Apple AirPods Pro vs. Master and Dynamic MW07 Plus❗️<a href='https://techblock.club/?p=1406'> link</a>
+👉🏿'Twitter Retweets' Will Highlight The Best Tweets A Great Move By Twitter❗️<a href='https://techblock.club/?p=1426'> link</a>
 
