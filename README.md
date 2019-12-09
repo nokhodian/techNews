@@ -1,20 +1,20 @@
-<b>Technology NEWS on Sunday, December 8th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Monday, December 9th, 2019</b> 📡📡📡 
 
-👉Beachside bungalow that has inspired artists through the decades goes up for sale for £650000❗️<a href='https://techblock.club/?p=1410'> link</a>
+👉Trials of Mana Angela and Duran Trailer Shows Off Their English Voice Actors❗️<a href='https://techblock.club/?p=1430'> link</a>
 
-👉🏽Softbank's Son and Alibaba's Ma see people at the heart of AI age❗️<a href='https://techblock.club/?p=1412'> link</a>
+👉🏽Death Come True Is A New Mystery FMV Game From The Creator Of Danganronpa❗️<a href='https://techblock.club/?p=1432'> link</a>
 
-👉🏿HomeKit support for IKEA's smart blinds delayed until 'early next year'❗️<a href='https://techblock.club/?p=1414'> link</a>
+👉🏿TransMedics' OCS Technology Sees Success in Heart Transplant❗️<a href='https://techblock.club/?p=1434'> link</a>
 
-👉SanDisk SD and microSD cards are back down to Black Friday prices, today only❗️<a href='https://techblock.club/?p=1416'> link</a>
+👉'Twin Peaks VR' trailer offers a dive into David Lynch's mind❗️<a href='https://techblock.club/?p=1436'> link</a>
 
-👉🏽Is It Wrong To Try To Pick Up Girls In A Dungeon? Infinite Combate Coming to the West in 2020❗️<a href='https://techblock.club/?p=1418'> link</a>
+👉🏽Apple's new monster $6000 Mac Pro is about to ship❗️<a href='https://techblock.club/?p=1438'> link</a>
 
-👉🏿Can These Noise-Canceling Headphones From SHIVR Beat The Best On The Market?❗️<a href='https://techblock.club/?p=1420'> link</a>
+👉🏿The New McLaren 620R Is A Limited Edition Race Car You Can Take On The Road❗️<a href='https://techblock.club/?p=1440'> link</a>
 
-👉Crime blotter: iPad thief chased by 71-year-old English florist❗️<a href='https://techblock.club/?p=1422'> link</a>
+👉Amazon Echo Glow Review: A smart lamp for smart parents❗️<a href='https://techblock.club/?p=1442'> link</a>
 
-👉🏽Top Christmas gifts for Lego fans❗️<a href='https://techblock.club/?p=1424'> link</a>
+👉🏽Ellen DeGeneres launches faux fur brand UnHide to fight animal cruelty❗️<a href='https://techblock.club/?p=1444'> link</a>
 
-👉🏿'Twitter Retweets' Will Highlight The Best Tweets A Great Move By Twitter❗️<a href='https://techblock.club/?p=1426'> link</a>
+👉🏿Amazon drops the price of wireless headphones from Bose❗️<a href='https://techblock.club/?p=1446'> link</a>
 
