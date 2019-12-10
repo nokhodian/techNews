@@ -1,20 +1,20 @@
-<b>Technology NEWS on Monday, December 9th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Tuesday, December 10th, 2019</b> 📡📡📡 
 
-👉Trials of Mana Angela and Duran Trailer Shows Off Their English Voice Actors❗️<a href='https://techblock.club/?p=1430'> link</a>
+👉Snatch ransomware reboots Windows in Safe Mode to bypass anti-virus protection❗️<a href='https://techblock.club/?p=1450'> link</a>
 
-👉🏽Death Come True Is A New Mystery FMV Game From The Creator Of Danganronpa❗️<a href='https://techblock.club/?p=1432'> link</a>
+👉🏽Paper Beast will showcase its strange style on PSVR in 2020❗️<a href='https://techblock.club/?p=1452'> link</a>
 
-👉🏿TransMedics' OCS Technology Sees Success in Heart Transplant❗️<a href='https://techblock.club/?p=1434'> link</a>
+👉🏿Resident Evil 3 Remake Announced, Out In April❗️<a href='https://techblock.club/?p=1454'> link</a>
 
-👉'Twin Peaks VR' trailer offers a dive into David Lynch's mind❗️<a href='https://techblock.club/?p=1436'> link</a>
+👉Everything Sony Announced At Today's State of Play❗️<a href='https://techblock.club/?p=1456'> link</a>
 
-👉🏽Apple's new monster $6000 Mac Pro is about to ship❗️<a href='https://techblock.club/?p=1438'> link</a>
+👉🏽MechWarrior 5: Mercenaries Review❗️<a href='https://techblock.club/?p=1458'> link</a>
 
-👉🏿The New McLaren 620R Is A Limited Edition Race Car You Can Take On The Road❗️<a href='https://techblock.club/?p=1440'> link</a>
+👉🏿Babylon's Fall Gets New Gameplay Trailer During State Of Play 2019❗️<a href='https://techblock.club/?p=1460'> link</a>
 
-👉Amazon Echo Glow Review: A smart lamp for smart parents❗️<a href='https://techblock.club/?p=1442'> link</a>
+👉Yep, Kingdom Hearts III's ReMIND DLC is set for January 23❗️<a href='https://techblock.club/?p=1462'> link</a>
 
-👉🏽Ellen DeGeneres launches faux fur brand UnHide to fight animal cruelty❗️<a href='https://techblock.club/?p=1444'> link</a>
+👉🏽The Verge's gadgets of the decade❗️<a href='https://techblock.club/?p=1464'> link</a>
 
-👉🏿Amazon drops the price of wireless headphones from Bose❗️<a href='https://techblock.club/?p=1446'> link</a>
+👉🏿Spellbreak's Fantasy Battle Royale Gameplay is Coming to PS4 in 2020❗️<a href='https://techblock.club/?p=1466'> link</a>
 
