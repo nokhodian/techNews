@@ -1,20 +1,20 @@
-<b>Technology NEWS on Tuesday, December 10th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Wednesday, December 11th, 2019</b> 📡📡📡 
 
-👉Snatch ransomware reboots Windows in Safe Mode to bypass anti-virus protection❗️<a href='https://techblock.club/?p=1450'> link</a>
+👉Twitter improving photo upload quality and investing in open standard social network experiment❗️<a href='https://techblock.club/?p=1470'> link</a>
 
-👉🏽Paper Beast will showcase its strange style on PSVR in 2020❗️<a href='https://techblock.club/?p=1452'> link</a>
+👉🏽Here are all the big new features & changes in iOS 13.3 & iPadOS 13.3❗️<a href='https://techblock.club/?p=1472'> link</a>
 
-👉🏿Resident Evil 3 Remake Announced, Out In April❗️<a href='https://techblock.club/?p=1454'> link</a>
+👉🏿Gmelius wants to fit all of your startup's software needs right into Gmail❗️<a href='https://techblock.club/?p=1474'> link</a>
 
-👉Everything Sony Announced At Today's State of Play❗️<a href='https://techblock.club/?p=1456'> link</a>
+👉PUBG Mobile 0.16.0 patch adds new EvoGround and Classic modes, plus a fresh loadout feature❗️<a href='https://techblock.club/?p=1476'> link</a>
 
-👉🏽MechWarrior 5: Mercenaries Review❗️<a href='https://techblock.club/?p=1458'> link</a>
+👉🏽Why Google Recorder is a best-in-class app. Too bad it only works on Pixel phones❗️<a href='https://techblock.club/?p=1478'> link</a>
 
-👉🏿Babylon's Fall Gets New Gameplay Trailer During State Of Play 2019❗️<a href='https://techblock.club/?p=1460'> link</a>
+👉🏿How to get 10 Nintendo Switch games for free over the next two weeks❗️<a href='https://techblock.club/?p=1480'> link</a>
 
-👉Yep, Kingdom Hearts III's ReMIND DLC is set for January 23❗️<a href='https://techblock.club/?p=1462'> link</a>
+👉DNA firm GEDmatch now operated by company with police ties, privacy worries surface❗️<a href='https://techblock.club/?p=1482'> link</a>
 
-👉🏽The Verge's gadgets of the decade❗️<a href='https://techblock.club/?p=1464'> link</a>
+👉🏽Asus Max Pro M1, Max M2, Max M1 Price in India Cut, Now Start at Rs. 5999❗️<a href='https://techblock.club/?p=1484'> link</a>
 
-👉🏿Spellbreak's Fantasy Battle Royale Gameplay is Coming to PS4 in 2020❗️<a href='https://techblock.club/?p=1466'> link</a>
+👉🏿Apple's CEO Tweets about his Visit to Singapore Today❗️<a href='https://techblock.club/?p=1486'> link</a>
 
