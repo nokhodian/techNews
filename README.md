@@ -1,20 +1,20 @@
-<b>Technology NEWS on Wednesday, December 11th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Thursday, December 12th, 2019</b> 📡📡📡 
 
-👉Twitter improving photo upload quality and investing in open standard social network experiment❗️<a href='https://techblock.club/?p=1470'> link</a>
+👉Google Assistant's language interpreter tool comes to phones❗️<a href='https://techblock.club/?p=1491'> link</a>
 
-👉🏽Here are all the big new features & changes in iOS 13.3 & iPadOS 13.3❗️<a href='https://techblock.club/?p=1472'> link</a>
+👉🏽Best Nintendo Switch deals for 2019: Woot has the Switch Lite for $180❗️<a href='https://techblock.club/?p=1493'> link</a>
 
-👉🏿Gmelius wants to fit all of your startup's software needs right into Gmail❗️<a href='https://techblock.club/?p=1474'> link</a>
+👉🏿Valve Hasn't Ruled Out the Possibility of Bringing Half-Life: Alyx to PlayStation VR❗️<a href='https://techblock.club/?p=1495'> link</a>
 
-👉PUBG Mobile 0.16.0 patch adds new EvoGround and Classic modes, plus a fresh loadout feature❗️<a href='https://techblock.club/?p=1476'> link</a>
+👉Receive Your Gifts Before Christmas Day 2019 with Amazon Prime❗️<a href='https://techblock.club/?p=1497'> link</a>
 
-👉🏽Why Google Recorder is a best-in-class app. Too bad it only works on Pixel phones❗️<a href='https://techblock.club/?p=1478'> link</a>
+👉🏽Mighty Vibe streaming music player now supports Amazon Music❗️<a href='https://techblock.club/?p=1499'> link</a>
 
-👉🏿How to get 10 Nintendo Switch games for free over the next two weeks❗️<a href='https://techblock.club/?p=1480'> link</a>
+👉🏿Overturned Lamborghini Huracan Abandoned On LA Highway❗️<a href='https://techblock.club/?p=1501'> link</a>
 
-👉DNA firm GEDmatch now operated by company with police ties, privacy worries surface❗️<a href='https://techblock.club/?p=1482'> link</a>
+👉Persona 5: Royal will support Spanish, French, Italian and German subtitles.❗️<a href='https://techblock.club/?p=1503'> link</a>
 
-👉🏽Asus Max Pro M1, Max M2, Max M1 Price in India Cut, Now Start at Rs. 5999❗️<a href='https://techblock.club/?p=1484'> link</a>
+👉🏽Apple is working on holographic imaging to lighten its AR or VR smart glasses❗️<a href='https://techblock.club/?p=1505'> link</a>
 
-👉🏿Apple's CEO Tweets about his Visit to Singapore Today❗️<a href='https://techblock.club/?p=1486'> link</a>
+👉🏿This Is Your First Chance To Hear The Koenigsegg Jesko Come To Life❗️<a href='https://techblock.club/?p=1507'> link</a>
 
