@@ -1,20 +1,20 @@
-<b>Technology NEWS on Thursday, December 12th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Friday, December 13th, 2019</b> 📡📡📡 
 
-👉Google Assistant's language interpreter tool comes to phones❗️<a href='https://techblock.club/?p=1551'> link</a>
+👉Grab The Wolf Among Us For Free And Catch Up Before The Sequel Arrives❗️<a href='https://techblock.club/?p=1571'> link</a>
 
-👉🏽Best Nintendo Switch deals for 2019: Woot has the Switch Lite for $180❗️<a href='https://techblock.club/?p=1553'> link</a>
+👉🏽Check out one of the best smartwatch deals of the year❗️<a href='https://techblock.club/?p=1573'> link</a>
 
-👉🏿Valve Hasn't Ruled Out the Possibility of Bringing Half-Life: Alyx to PlayStation VR❗️<a href='https://techblock.club/?p=1555'> link</a>
+👉🏿The Game Awards 2019's biggest reveals: Hellblade II, a new PlayerUnknown game, and more❗️<a href='https://techblock.club/?p=1575'> link</a>
 
-👉Receive Your Gifts Before Christmas Day 2019 with Amazon Prime❗️<a href='https://techblock.club/?p=1557'> link</a>
+👉Play'n GO's new slot Divine Showdown offers unique twist on familiar theme❗️<a href='https://techblock.club/?p=1577'> link</a>
 
-👉🏽Mighty Vibe streaming music player now supports Amazon Music❗️<a href='https://techblock.club/?p=1559'> link</a>
+👉🏽SWDM: The Lowest Total Cost Solution for 40G/100G in the Enterprise Data Center❗️<a href='https://techblock.club/?p=1579'> link</a>
 
-👉🏿Overturned Lamborghini Huracan Abandoned On LA Highway❗️<a href='https://techblock.club/?p=1561'> link</a>
+👉🏿Apple Arcade Launches First Sports Game Franchise With Ultimate Rivals: The Rink❗️<a href='https://techblock.club/?p=1581'> link</a>
 
-👉Persona 5: Royal will support Spanish, French, Italian and German subtitles.❗️<a href='https://techblock.club/?p=1563'> link</a>
+👉Pro Display XDR works on iMac Pro at 5K, not 6K❗️<a href='https://techblock.club/?p=1583'> link</a>
 
-👉🏽Apple is working on holographic imaging to lighten its AR or VR smart glasses❗️<a href='https://techblock.club/?p=1565'> link</a>
+👉🏽The marvelous Elgato Stream Deck is just $100 after a 33% discount❗️<a href='https://techblock.club/?p=1585'> link</a>
 
-👉🏿This Is Your First Chance To Hear The Koenigsegg Jesko Come To Life❗️<a href='https://techblock.club/?p=1567'> link</a>
+👉🏿Path of the Warrior Is a Classic Beat 'Em Up, Except in VR❗️<a href='https://techblock.club/?p=1587'> link</a>
 
