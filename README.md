@@ -1,20 +1,20 @@
-<b>Technology NEWS on Friday, December 13th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Saturday, December 14th, 2019</b> 📡📡📡 
 
-👉Grab The Wolf Among Us For Free And Catch Up Before The Sequel Arrives❗️<a href='https://techblock.club/?p=1571'> link</a>
+👉Microsoft is redesigning over 100 of their icons❗️<a href='https://techblock.club/?p=1591'> link</a>
 
-👉🏽Check out one of the best smartwatch deals of the year❗️<a href='https://techblock.club/?p=1573'> link</a>
+👉🏽Researchers Fooled Chinese language Facial Recognition Terminals With Only a Masks❗️<a href='https://techblock.club/?p=1593'> link</a>
 
-👉🏿The Game Awards 2019's biggest reveals: Hellblade II, a new PlayerUnknown game, and more❗️<a href='https://techblock.club/?p=1575'> link</a>
+👉🏿This Hennessey Venom GT Is One Of The Fastest Cars Ever Made❗️<a href='https://techblock.club/?p=1595'> link</a>
 
-👉Play'n GO's new slot Divine Showdown offers unique twist on familiar theme❗️<a href='https://techblock.club/?p=1577'> link</a>
+👉OnePlus teases 'something special' for CES 2020: Is it smartphone, smartwatch or earbuds?❗️<a href='https://techblock.club/?p=1597'> link</a>
 
-👉🏽SWDM: The Lowest Total Cost Solution for 40G/100G in the Enterprise Data Center❗️<a href='https://techblock.club/?p=1579'> link</a>
+👉🏽iOS 13.3 Bug Apple's New Parental Controls On Ios Can Be Bypassed❗️<a href='https://techblock.club/?p=1599'> link</a>
 
-👉🏿Apple Arcade Launches First Sports Game Franchise With Ultimate Rivals: The Rink❗️<a href='https://techblock.club/?p=1581'> link</a>
+👉🏿Gotta almost catch 'em all: Pokemon Sword and Shield review | Technobubble❗️<a href='https://techblock.club/?p=1601'> link</a>
 
-👉Pro Display XDR works on iMac Pro at 5K, not 6K❗️<a href='https://techblock.club/?p=1583'> link</a>
+👉Top Christmas tech gifts for kids❗️<a href='https://techblock.club/?p=1603'> link</a>
 
-👉🏽The marvelous Elgato Stream Deck is just $100 after a 33% discount❗️<a href='https://techblock.club/?p=1585'> link</a>
+👉🏽Top Stories: New Mac Pro Orders Begin, Apple Card iPhone Installments, iOS 13.3 Released❗️<a href='https://techblock.club/?p=1605'> link</a>
 
-👉🏿Path of the Warrior Is a Classic Beat 'Em Up, Except in VR❗️<a href='https://techblock.club/?p=1587'> link</a>
+👉🏿Why Google's Pixel Feature Drops Could Give You One Reason to Ditch Your iPhone❗️<a href='https://techblock.club/?p=1607'> link</a>
 
