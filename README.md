@@ -1,20 +1,20 @@
-<b>Technology NEWS on Saturday, December 14th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Sunday, December 15th, 2019</b> 📡📡📡 
 
-👉Microsoft is redesigning over 100 of their icons❗️<a href='https://techblock.club/?p=1591'> link</a>
+👉Redmi K30 Launch, Vivo V17 Comes into India, Samsung Galaxy A-Series Refresh, and much more News This Week❗️<a href='https://techblock.club/?p=1611'> link</a>
 
-👉🏽Researchers Fooled Chinese language Facial Recognition Terminals With Only a Masks❗️<a href='https://techblock.club/?p=1593'> link</a>
+👉🏽The best foldable smartphones in the world today❗️<a href='https://techblock.club/?p=1613'> link</a>
 
-👉🏿This Hennessey Venom GT Is One Of The Fastest Cars Ever Made❗️<a href='https://techblock.club/?p=1595'> link</a>
+👉🏿GTA 6 announcement date possibly teased in Diamond Heist update❗️<a href='https://techblock.club/?p=1615'> link</a>
 
-👉OnePlus teases 'something special' for CES 2020: Is it smartphone, smartwatch or earbuds?❗️<a href='https://techblock.club/?p=1597'> link</a>
+👉Danganronpa Dev's Death Come True 'Tentatively' Coming to the PS4 and Other Platforms❗️<a href='https://techblock.club/?p=1617'> link</a>
 
-👉🏽iOS 13.3 Bug Apple's New Parental Controls On Ios Can Be Bypassed❗️<a href='https://techblock.club/?p=1599'> link</a>
+👉🏽Resident Evil 2 and the Hidden Linkages to Resident Evil 3❗️<a href='https://techblock.club/?p=1619'> link</a>
 
-👉🏿Gotta almost catch 'em all: Pokemon Sword and Shield review | Technobubble❗️<a href='https://techblock.club/?p=1601'> link</a>
+👉🏿Doom Eternal will have a classic weapon view❗️<a href='https://techblock.club/?p=1621'> link</a>
 
-👉Top Christmas tech gifts for kids❗️<a href='https://techblock.club/?p=1603'> link</a>
+👉Call of Duty: Modern Warfare is charging $20 to see your kill-death ratio in match❗️<a href='https://techblock.club/?p=1623'> link</a>
 
-👉🏽Top Stories: New Mac Pro Orders Begin, Apple Card iPhone Installments, iOS 13.3 Released❗️<a href='https://techblock.club/?p=1605'> link</a>
+👉🏽The 2020 BMW 2 Series Gran Coupe Will Still Cost 3 Series Money For Some Reason❗️<a href='https://techblock.club/?p=1625'> link</a>
 
-👉🏿Why Google's Pixel Feature Drops Could Give You One Reason to Ditch Your iPhone❗️<a href='https://techblock.club/?p=1607'> link</a>
+👉🏿Realme 3 Pro, Realme U1, Realme 1 Update Brings New Dark Mode Toggle, December 2019 Android Security Patch❗️<a href='https://techblock.club/?p=1627'> link</a>
 
