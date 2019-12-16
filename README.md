@@ -1,20 +1,20 @@
-<b>Technology NEWS on Sunday, December 15th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Monday, December 16th, 2019</b> 📡📡📡 
 
-👉Redmi K30 Launch, Vivo V17 Comes into India, Samsung Galaxy A-Series Refresh, and much more News This Week❗️<a href='https://techblock.club/?p=1611'> link</a>
+👉Are Podcasts Threatening the Growth of the Music Industry?❗️<a href='https://techblock.club/?p=1631'> link</a>
 
-👉🏽The best foldable smartphones in the world today❗️<a href='https://techblock.club/?p=1613'> link</a>
+👉🏽Photoshop for iPad gains 'Select Subject' feature❗️<a href='https://techblock.club/?p=1633'> link</a>
 
-👉🏿GTA 6 announcement date possibly teased in Diamond Heist update❗️<a href='https://techblock.club/?p=1615'> link</a>
+👉🏿The new Hot Wheels coding kit requires fine motor skills❗️<a href='https://techblock.club/?p=1635'> link</a>
 
-👉Danganronpa Dev's Death Come True 'Tentatively' Coming to the PS4 and Other Platforms❗️<a href='https://techblock.club/?p=1617'> link</a>
+👉AMD and Intel Go Head to Head in the Surface Laptop 3❗️<a href='https://techblock.club/?p=1637'> link</a>
 
-👉🏽Resident Evil 2 and the Hidden Linkages to Resident Evil 3❗️<a href='https://techblock.club/?p=1619'> link</a>
+👉🏽Feast your eyes on this stunning concept video showing Samsung's Galaxy S11 series❗️<a href='https://techblock.club/?p=1639'> link</a>
 
-👉🏿Doom Eternal will have a classic weapon view❗️<a href='https://techblock.club/?p=1621'> link</a>
+👉🏿BMW Recalls 2020 Toyota GR Supra, Z4, 330i Over Failing Headlights❗️<a href='https://techblock.club/?p=1641'> link</a>
 
-👉Call of Duty: Modern Warfare is charging $20 to see your kill-death ratio in match❗️<a href='https://techblock.club/?p=1623'> link</a>
+👉What in the World Is 'Prologue'?❗️<a href='https://techblock.club/?p=1643'> link</a>
 
-👉🏽The 2020 BMW 2 Series Gran Coupe Will Still Cost 3 Series Money For Some Reason❗️<a href='https://techblock.club/?p=1625'> link</a>
+👉🏽Play the Halo: Reach campaign in third person with this mod❗️<a href='https://techblock.club/?p=1645'> link</a>
 
-👉🏿Realme 3 Pro, Realme U1, Realme 1 Update Brings New Dark Mode Toggle, December 2019 Android Security Patch❗️<a href='https://techblock.club/?p=1627'> link</a>
+👉🏿Apple's latest tech acquisition gives us a hint about its future camera plans❗️<a href='https://techblock.club/?p=1647'> link</a>
 
