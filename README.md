@@ -1,20 +1,20 @@
-<b>Technology NEWS on Monday, December 16th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Tuesday, December 17th, 2019</b> 📡📡📡 
 
-👉Are Podcasts Threatening the Growth of the Music Industry?❗️<a href='https://techblock.club/?p=1631'> link</a>
+👉Sony's DualShock 4 attachment adds customizable buttons around back❗️<a href='https://techblock.club/?p=1651'> link</a>
 
-👉🏽Photoshop for iPad gains 'Select Subject' feature❗️<a href='https://techblock.club/?p=1633'> link</a>
+👉🏽Mac Pro demonstrates 'masterclass in repairability' in teardown❗️<a href='https://techblock.club/?p=1653'> link</a>
 
-👉🏿The new Hot Wheels coding kit requires fine motor skills❗️<a href='https://techblock.club/?p=1635'> link</a>
+👉🏿Huawei P40 Lite will actually not be a P40 phone. Here's why...❗️<a href='https://techblock.club/?p=1655'> link</a>
 
-👉AMD and Intel Go Head to Head in the Surface Laptop 3❗️<a href='https://techblock.club/?p=1637'> link</a>
+👉Microsoft says its new Xbox Series X isn't actually called 'Xbox Series X'❗️<a href='https://techblock.club/?p=1657'> link</a>
 
-👉🏽Feast your eyes on this stunning concept video showing Samsung's Galaxy S11 series❗️<a href='https://techblock.club/?p=1639'> link</a>
+👉🏽Games of the Year 2019: Untitled Goose Game❗️<a href='https://techblock.club/?p=1659'> link</a>
 
-👉🏿BMW Recalls 2020 Toyota GR Supra, Z4, 330i Over Failing Headlights❗️<a href='https://techblock.club/?p=1641'> link</a>
+👉🏿Toilets that are tilted downwards by 13 degrees to stop workers spending too long on the loo❗️<a href='https://techblock.club/?p=1661'> link</a>
 
-👉What in the World Is 'Prologue'?❗️<a href='https://techblock.club/?p=1643'> link</a>
+👉Pokemon Go Gives Impossible to Get Pokemon an Impossible to Get Variant Form❗️<a href='https://techblock.club/?p=1663'> link</a>
 
-👉🏽Play the Halo: Reach campaign in third person with this mod❗️<a href='https://techblock.club/?p=1645'> link</a>
+👉🏽Point-and-click adventure game, Blade Runner, is now available on GOG❗️<a href='https://techblock.club/?p=1665'> link</a>
 
-👉🏿Apple's latest tech acquisition gives us a hint about its future camera plans❗️<a href='https://techblock.club/?p=1647'> link</a>
+👉🏿Best non-Chinese smartphones to buy under Rs 15000 in December 2019❗️<a href='https://techblock.club/?p=1667'> link</a>
 
