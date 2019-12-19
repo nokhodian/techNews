@@ -1,20 +1,20 @@
-<b>Technology NEWS on Wednesday, December 18th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Thursday, December 19th, 2019</b> 📡📡📡 
 
-👉Instagram launch anti-bullying tool❗️<a href='https://techblock.club/?p=1671'> link</a>
+👉AMD Radeon RX 5500 XT vs. Nvidia GeForce GTX 1650 Super: Which Budget Graphics Card Should You Buy?❗️<a href='https://techblock.club/?p=1691'> link</a>
 
-👉🏽Fortnite's winter event kicks off today with two weeks of in-game presents❗️<a href='https://techblock.club/?p=1673'> link</a>
+👉🏽Zero Privacy: An investigative Privacy Project shows how dozens of tech companies are spying and logging the ...❗️<a href='https://techblock.club/?p=1693'> link</a>
 
-👉🏿The resurrected Blade Runner game is a genuine classic❗️<a href='https://techblock.club/?p=1675'> link</a>
+👉🏿PS4 Firmware Update 7.02 is Already Live, Just a Week After the Last Update❗️<a href='https://techblock.club/?p=1695'> link</a>
 
-👉LG G7 One starts receiving Android 10 OS update❗️<a href='https://techblock.club/?p=1677'> link</a>
+👉JRM GT23 a limited-edition, road-legal Nissan GT-R GT3 racer❗️<a href='https://techblock.club/?p=1697'> link</a>
 
-👉🏽The best games for Nintendo Switch❗️<a href='https://techblock.club/?p=1679'> link</a>
+👉🏽OnePlus will offer up to Rs 5 lakhs to anyone who finds serious bugs in its phones or in Oxygen OS❗️<a href='https://techblock.club/?p=1699'> link</a>
 
-👉🏿The Legend of Heroes: Trails of the Beginning Marks the Next 'Ambitious Title' in the Trails Series❗️<a href='https://techblock.club/?p=1681'> link</a>
+👉🏿Instagram to TikTok to Twitter to Facebook: How social media evolved this decade❗️<a href='https://techblock.club/?p=1701'> link</a>
 
-👉Sony WH-1000XM4: what we want to see from Sony's new wireless headphones❗️<a href='https://techblock.club/?p=1683'> link</a>
+👉PR - Remothered: Broken Porcelain's Foreboding Ashmann Inn Welcomes Travelers Home For The Holidays In New ...❗️<a href='https://techblock.club/?p=1703'> link</a>
 
-👉🏽Conan Chop Chop heading to Switch on February 25, 2020❗️<a href='https://techblock.club/?p=1685'> link</a>
+👉🏽This killer Xbox Game Pass Ultimate deal gets you 6 months for the price of 3❗️<a href='https://techblock.club/?p=1705'> link</a>
 
-👉🏿Apple, Google, and Amazon are teaming up to develop an open-source smart home standard❗️<a href='https://techblock.club/?p=1687'> link</a>
+👉🏿Redmi K20, Redmi K20 Pro will now support Amazon Prime Video in HD❗️<a href='https://techblock.club/?p=1707'> link</a>
 
