@@ -1,20 +1,20 @@
-<b>Technology NEWS on Thursday, December 19th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Friday, December 20th, 2019</b> 📡📡📡 
 
-👉AMD Radeon RX 5500 XT vs. Nvidia GeForce GTX 1650 Super: Which Budget Graphics Card Should You Buy?❗️<a href='https://techblock.club/?p=1691'> link</a>
+👉Fortnite Winter Royale Prize Pool greatly increased to meet interest❗️<a href='https://techblock.club/?p=1712'> link</a>
 
-👉🏽Zero Privacy: An investigative Privacy Project shows how dozens of tech companies are spying and logging the ...❗️<a href='https://techblock.club/?p=1693'> link</a>
+👉🏽Apple suppressed competitors in its App Store--until it got caught, a lawsuit alleges❗️<a href='https://techblock.club/?p=1714'> link</a>
 
-👉🏿PS4 Firmware Update 7.02 is Already Live, Just a Week After the Last Update❗️<a href='https://techblock.club/?p=1695'> link</a>
+👉🏿Google Nest Mini Review❗️<a href='https://techblock.club/?p=1716'> link</a>
 
-👉JRM GT23 a limited-edition, road-legal Nissan GT-R GT3 racer❗️<a href='https://techblock.club/?p=1697'> link</a>
+👉Apple has a secret team working on satellites to beam data directly to your devices❗️<a href='https://techblock.club/?p=1718'> link</a>
 
-👉🏽OnePlus will offer up to Rs 5 lakhs to anyone who finds serious bugs in its phones or in Oxygen OS❗️<a href='https://techblock.club/?p=1699'> link</a>
+👉🏽5 Best Offline Messaging Apps For 2020: Send Texts Without Internet❗️<a href='https://techblock.club/?p=1720'> link</a>
 
-👉🏿Instagram to TikTok to Twitter to Facebook: How social media evolved this decade❗️<a href='https://techblock.club/?p=1701'> link</a>
+👉🏿Get a last-minute Nintendo Switch Pro controller for $15 off❗️<a href='https://techblock.club/?p=1722'> link</a>
 
-👉PR - Remothered: Broken Porcelain's Foreboding Ashmann Inn Welcomes Travelers Home For The Holidays In New ...❗️<a href='https://techblock.club/?p=1703'> link</a>
+👉Oppo A91 With Quad Rear Cameras, Oppo A8 Packing Triple Rear Cameras Launched: Price, Specifications❗️<a href='https://techblock.club/?p=1724'> link</a>
 
-👉🏽This killer Xbox Game Pass Ultimate deal gets you 6 months for the price of 3❗️<a href='https://techblock.club/?p=1705'> link</a>
+👉🏽AirPods were a $6 billion business for Apple this year and will be even bigger next year, top analyst says❗️<a href='https://techblock.club/?p=1726'> link</a>
 
-👉🏿Redmi K20, Redmi K20 Pro will now support Amazon Prime Video in HD❗️<a href='https://techblock.club/?p=1707'> link</a>
+👉🏿Games With Gold January 2020: Free Xbox One Games for Members❗️<a href='https://techblock.club/?p=1728'> link</a>
 
