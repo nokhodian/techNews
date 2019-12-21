@@ -1,20 +1,20 @@
-<b>Technology NEWS on Friday, December 20th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Saturday, December 21st, 2019</b> 📡📡📡 
 
-👉Fortnite Winter Royale Prize Pool greatly increased to meet interest❗️<a href='https://techblock.club/?p=1712'> link</a>
+👉Report: Apple Developing Satellite-Based Internet for Future Devices❗️<a href='https://techblock.club/?p=1732'> link</a>
 
-👉🏽Apple suppressed competitors in its App Store--until it got caught, a lawsuit alleges❗️<a href='https://techblock.club/?p=1714'> link</a>
+👉🏽Alexa In Talk With Siri In Talk With Assistant To Make Smart Homes Even Smarter❗️<a href='https://techblock.club/?p=1734'> link</a>
 
-👉🏿Google Nest Mini Review❗️<a href='https://techblock.club/?p=1716'> link</a>
+👉🏿First-gen Ryzen chips might be sneakily getting an upgrade to 12nm❗️<a href='https://techblock.club/?p=1736'> link</a>
 
-👉Apple has a secret team working on satellites to beam data directly to your devices❗️<a href='https://techblock.club/?p=1718'> link</a>
+👉Meet the creepy robots poised to take over the world❗️<a href='https://techblock.club/?p=1738'> link</a>
 
-👉🏽5 Best Offline Messaging Apps For 2020: Send Texts Without Internet❗️<a href='https://techblock.club/?p=1720'> link</a>
+👉🏽Capcom Inviting Fans To Test An Unannounced Game❗️<a href='https://techblock.club/?p=1740'> link</a>
 
-👉🏿Get a last-minute Nintendo Switch Pro controller for $15 off❗️<a href='https://techblock.club/?p=1722'> link</a>
+👉🏿Achievements are now on Google Stadia❗️<a href='https://techblock.club/?p=1742'> link</a>
 
-👉Oppo A91 With Quad Rear Cameras, Oppo A8 Packing Triple Rear Cameras Launched: Price, Specifications❗️<a href='https://techblock.club/?p=1724'> link</a>
+👉Best car gifts in 2019: Android Auto, Apple CarPlay, smart speakers and dashcams❗️<a href='https://techblock.club/?p=1744'> link</a>
 
-👉🏽AirPods were a $6 billion business for Apple this year and will be even bigger next year, top analyst says❗️<a href='https://techblock.club/?p=1726'> link</a>
+👉🏽The Xbox Series X is the wrong console for a climate crisis❗️<a href='https://techblock.club/?p=1746'> link</a>
 
-👉🏿Games With Gold January 2020: Free Xbox One Games for Members❗️<a href='https://techblock.club/?p=1728'> link</a>
+👉🏿Top 5 Ways to Add Google Account in Android Without Syncing❗️<a href='https://techblock.club/?p=1748'> link</a>
 
