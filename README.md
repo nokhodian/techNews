@@ -1,20 +1,20 @@
-<b>Technology NEWS on Saturday, December 21st, 2019</b> 📡📡📡 
+<b>Technology NEWS on Sunday, December 22nd, 2019</b> 📡📡📡 
 
-👉Report: Apple Developing Satellite-Based Internet for Future Devices❗️<a href='https://techblock.club/?p=1732'> link</a>
+👉Porter Space: How Nuggets rookie Michael Porter Jr.'s residing scenario assists in keeping him grounded❗️<a href='https://techblock.club/?p=1752'> link</a>
 
-👉🏽Alexa In Talk With Siri In Talk With Assistant To Make Smart Homes Even Smarter❗️<a href='https://techblock.club/?p=1734'> link</a>
+👉🏽Motorola Stalls Motorola RAZR Launch Days Ahead Of Scheduled Release❗️<a href='https://techblock.club/?p=1754'> link</a>
 
-👉🏿First-gen Ryzen chips might be sneakily getting an upgrade to 12nm❗️<a href='https://techblock.club/?p=1736'> link</a>
+👉🏿Deemo II Announced With a Melodic Teaser Trailer❗️<a href='https://techblock.club/?p=1756'> link</a>
 
-👉Meet the creepy robots poised to take over the world❗️<a href='https://techblock.club/?p=1738'> link</a>
+👉This newspaper has a bold business idea: free iPads for subscribers❗️<a href='https://techblock.club/?p=1758'> link</a>
 
-👉🏽Capcom Inviting Fans To Test An Unannounced Game❗️<a href='https://techblock.club/?p=1740'> link</a>
+👉🏽How Christina Anstead Completely Renovated Her World❗️<a href='https://techblock.club/?p=1760'> link</a>
 
-👉🏿Achievements are now on Google Stadia❗️<a href='https://techblock.club/?p=1742'> link</a>
+👉🏿Embracer Group (THQ Nordic) has bought the Little Nightmares developer❗️<a href='https://techblock.club/?p=1762'> link</a>
 
-👉Best car gifts in 2019: Android Auto, Apple CarPlay, smart speakers and dashcams❗️<a href='https://techblock.club/?p=1744'> link</a>
+👉Rayark Games Announces “Deemo II” With Teaser Trailer❗️<a href='https://techblock.club/?p=1764'> link</a>
 
-👉🏽The Xbox Series X is the wrong console for a climate crisis❗️<a href='https://techblock.club/?p=1746'> link</a>
+👉🏽$ 199 Roomba, $ 15 wifi extender, $ 5 Starbucks credit, AirPods deals, more – BGR❗️<a href='https://techblock.club/?p=1766'> link</a>
 
-👉🏿Top 5 Ways to Add Google Account in Android Without Syncing❗️<a href='https://techblock.club/?p=1748'> link</a>
+👉🏿Fortnite Polar Legends Pack Available Now: Codename ELF, Fishstick & More❗️<a href='https://techblock.club/?p=1768'> link</a>
 
