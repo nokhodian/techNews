@@ -1,20 +1,20 @@
-<b>Technology NEWS on Sunday, December 22nd, 2019</b> 📡📡📡 
+<b>Technology NEWS on Monday, December 23rd, 2019</b> 📡📡📡 
 
-👉Porter Space: How Nuggets rookie Michael Porter Jr.'s residing scenario assists in keeping him grounded❗️<a href='https://techblock.club/?p=1752'> link</a>
+👉AirPods Pro Offer 'Close to Seamless' Audio Experience Thanks to Improved Bluetooth Latency❗️<a href='https://techblock.club/?p=1772'> link</a>
 
-👉🏽Motorola Stalls Motorola RAZR Launch Days Ahead Of Scheduled Release❗️<a href='https://techblock.club/?p=1754'> link</a>
+👉🏽Stranger Things is now a pinball machine that lets you fight the Demogorgon❗️<a href='https://techblock.club/?p=1774'> link</a>
 
-👉🏿Deemo II Announced With a Melodic Teaser Trailer❗️<a href='https://techblock.club/?p=1756'> link</a>
+👉🏿Google's Holiday Doodle gives the search engine a cheerful glow❗️<a href='https://techblock.club/?p=1776'> link</a>
 
-👉This newspaper has a bold business idea: free iPads for subscribers❗️<a href='https://techblock.club/?p=1758'> link</a>
+👉Reliance Jio Happy New Year Offer: Rs 2020 prepaid recharge, JioPhone offer announced❗️<a href='https://techblock.club/?p=1778'> link</a>
 
-👉🏽How Christina Anstead Completely Renovated Her World❗️<a href='https://techblock.club/?p=1760'> link</a>
+👉🏽Facebook's tumultuous times: new OS in the works amid another breach❗️<a href='https://techblock.club/?p=1780'> link</a>
 
-👉🏿Embracer Group (THQ Nordic) has bought the Little Nightmares developer❗️<a href='https://techblock.club/?p=1762'> link</a>
+👉🏿McLaren Hyper-GT prototype 'XP2' hits 250 mph❗️<a href='https://techblock.club/?p=1782'> link</a>
 
-👉Rayark Games Announces “Deemo II” With Teaser Trailer❗️<a href='https://techblock.club/?p=1764'> link</a>
+👉825-hp Shelby Super Snake Bold Edition is a colorful tribute to the past❗️<a href='https://techblock.club/?p=1784'> link</a>
 
-👉🏽$ 199 Roomba, $ 15 wifi extender, $ 5 Starbucks credit, AirPods deals, more – BGR❗️<a href='https://techblock.club/?p=1766'> link</a>
+👉🏽Airtel launches Wi-Fi calling in more cities, here are the names❗️<a href='https://techblock.club/?p=1786'> link</a>
 
-👉🏿Fortnite Polar Legends Pack Available Now: Codename ELF, Fishstick & More❗️<a href='https://techblock.club/?p=1768'> link</a>
+👉🏿Keanu Reeves' Johnny Silverhand Will Be Immortalized in McFarlane Toys' Cyberpunk 2077 Figures❗️<a href='https://techblock.club/?p=1788'> link</a>
 
