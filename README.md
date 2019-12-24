@@ -1,20 +1,20 @@
-<b>Technology NEWS on Monday, December 23rd, 2019</b> 📡📡📡 
+<b>Technology NEWS on Tuesday, December 24th, 2019</b> 📡📡📡 
 
-👉AirPods Pro Offer 'Close to Seamless' Audio Experience Thanks to Improved Bluetooth Latency❗️<a href='https://techblock.club/?p=1772'> link</a>
+👉Creators of 3D-Printed Lamborghini Aventador Got A Real One on Christmas Morning❗️<a href='https://techblock.club/?p=1792'> link</a>
 
-👉🏽Stranger Things is now a pinball machine that lets you fight the Demogorgon❗️<a href='https://techblock.club/?p=1774'> link</a>
+👉🏽Nintendo Instagram Photo Triggers Splatoon 3 Freakout❗️<a href='https://techblock.club/?p=1794'> link</a>
 
-👉🏿Google's Holiday Doodle gives the search engine a cheerful glow❗️<a href='https://techblock.club/?p=1776'> link</a>
+👉🏿MSI Creator 17 To Make CES 2020 Debut As World's First Mini LED Laptop❗️<a href='https://techblock.club/?p=1796'> link</a>
 
-👉Reliance Jio Happy New Year Offer: Rs 2020 prepaid recharge, JioPhone offer announced❗️<a href='https://techblock.club/?p=1778'> link</a>
+👉Public investors loved SaaS stocks in 2019, and startups should be thankful❗️<a href='https://techblock.club/?p=1798'> link</a>
 
-👉🏽Facebook's tumultuous times: new OS in the works amid another breach❗️<a href='https://techblock.club/?p=1780'> link</a>
+👉🏽Dead Cells' Legacy update brings back old versions of the roguelike❗️<a href='https://techblock.club/?p=1800'> link</a>
 
-👉🏿McLaren Hyper-GT prototype 'XP2' hits 250 mph❗️<a href='https://techblock.club/?p=1782'> link</a>
+👉🏿Realme will launch its first fitness band in India in 2020, confirms India CEO❗️<a href='https://techblock.club/?p=1802'> link</a>
 
-👉825-hp Shelby Super Snake Bold Edition is a colorful tribute to the past❗️<a href='https://techblock.club/?p=1784'> link</a>
+👉Nintendo Switch Lite is a tech favorite❗️<a href='https://techblock.club/?p=1804'> link</a>
 
-👉🏽Airtel launches Wi-Fi calling in more cities, here are the names❗️<a href='https://techblock.club/?p=1786'> link</a>
+👉🏽AMD Ryzen 9 3950X vs Intel Core i9-9900K: The Battle for Mainstream Supremacy❗️<a href='https://techblock.club/?p=1806'> link</a>
 
-👉🏿Keanu Reeves' Johnny Silverhand Will Be Immortalized in McFarlane Toys' Cyberpunk 2077 Figures❗️<a href='https://techblock.club/?p=1788'> link</a>
+👉🏿The 10 Worst Tech Product Launches of the 2010s❗️<a href='https://techblock.club/?p=1808'> link</a>
 
