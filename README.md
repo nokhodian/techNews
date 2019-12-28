@@ -1,20 +1,20 @@
-<b>Technology NEWS on Friday, December 27th, 2019</b> 📡📡📡 
+<b>Technology NEWS on Saturday, December 28th, 2019</b> 📡📡📡 
 
-👉Hookah smoker, 20, contracts TUBERCULOSIS from smoking trendy devices in Sweden❗️<a href='https://techblock.club/?p=1852'> link</a>
+👉Realme X50 5G Teased to Include Side Fingerprint Sensor, Offer Two Day Battery Life❗️<a href='https://techblock.club/?p=1872'> link</a>
 
-👉🏽Anna Karina, Catherine Deneuve: movies malign women by calling them muses❗️<a href='https://techblock.club/?p=1854'> link</a>
+👉🏽A third generation Stoneybatter cottage finally sees the light❗️<a href='https://techblock.club/?p=1874'> link</a>
 
-👉🏿'Beat Saber' Ranks Among Steam's Top Sellers in 2019❗️<a href='https://techblock.club/?p=1856'> link</a>
+👉🏿Where to find a Sneaky Snowman to destroy for Fortnite Winterfest challenge❗️<a href='https://techblock.club/?p=1876'> link</a>
 
-👉Renders Depict Alleged Design of 2020 11 and 12.9-Inch iPad Pro Models With Triple-Lens Cameras❗️<a href='https://techblock.club/?p=1858'> link</a>
+👉In retrospect: Destiny 2's biggest mistakes in 2019❗️<a href='https://techblock.club/?p=1878'> link</a>
 
-👉🏽How to download apps on your iPad for free in the App Store❗️<a href='https://techblock.club/?p=1860'> link</a>
+👉🏽Game of the Year: Lloyd's Top 5 PS4 Games of 2019❗️<a href='https://techblock.club/?p=1880'> link</a>
 
-👉🏿The PS5 controller might have a few secret features that Sony isn't ready to talk about❗️<a href='https://techblock.club/?p=1862'> link</a>
+👉🏿The purchase Season 2: The Horror Drama Renewed For Another Twist, Air Date And Twist❗️<a href='https://techblock.club/?p=1882'> link</a>
 
-👉Get a Vitamix Explorian E320 pro-grade blender for $179.95❗️<a href='https://techblock.club/?p=1864'> link</a>
+👉A T-Rex will be launched at CES 2020❗️<a href='https://techblock.club/?p=1884'> link</a>
 
-👉🏽Here's the cheapest Windows PC right now - and it even has a spare M.2 slot❗️<a href='https://techblock.club/?p=1866'> link</a>
+👉🏽2019 was the year things got weird for video games❗️<a href='https://techblock.club/?p=1886'> link</a>
 
-👉🏿Realme 5G smartphone, IoT products for India to launch at MWC 2020 on February 24❗️<a href='https://techblock.club/?p=1868'> link</a>
+👉🏿Bootleg platformer named Fire Emblem: Three Houses on Microsoft Store❗️<a href='https://techblock.club/?p=1888'> link</a>
 
