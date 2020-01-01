@@ -1,20 +1,20 @@
-<b>Technology NEWS on Tuesday, December 31st, 2019</b> 📡📡📡 
+<b>Technology NEWS on Wednesday, January 1st, 2020</b> 📡📡📡 
 
-👉PocketGamer.biz's most read articles of the decade (if Supercell didn't exist)❗️<a href='https://techblock.club/?p=1932'> link</a>
+👉Free PlayStation Plus Games for January Have Leaked❗️<a href='https://techblock.club/?p=1952'> link</a>
 
-👉🏽Amazon shoppers are saving a massive 70% on the Philips Sonicare DiamondClean Electric Toothbrush today❗️<a href='https://techblock.club/?p=1934'> link</a>
+👉🏽Skincare 101: The only products you need to get good skin❗️<a href='https://techblock.club/?p=1954'> link</a>
 
-👉🏿Smoke app brings the Steam store to your Apple Watch❗️<a href='https://techblock.club/?p=1936'> link</a>
+👉🏿How is this Roomba still down to $199?!❗️<a href='https://techblock.club/?p=1956'> link</a>
 
-👉Top 5 Best Nintendo Switch Games of 2019 - 'Pokémon,' 'Fire Emblem' & More❗️<a href='https://techblock.club/?p=1938'> link</a>
+👉Girl with cerebral palsy who spent years in therapy learning to walk given puppy as motivation❗️<a href='https://techblock.club/?p=1958'> link</a>
 
-👉🏽Grab the Beats Studio3 Bluetooth headphones for a super low price of $200❗️<a href='https://techblock.club/?p=1940'> link</a>
+👉🏽That £499 Dyson V11 Absolute deal is still live in the January Sales❗️<a href='https://techblock.club/?p=1960'> link</a>
 
-👉🏿What to Expect From CES 2020❗️<a href='https://techblock.club/?p=1942'> link</a>
+👉🏿Here's What the World Will Look Like in 2030 ... Right?❗️<a href='https://techblock.club/?p=1962'> link</a>
 
-👉Where To Visit The Workshop, Crackshot's Cabin, and Mr. Polar's Artisanal Ice❗️<a href='https://techblock.club/?p=1944'> link</a>
+👉Where's the Borderlands 3 Spring 2020 DLC Roadmap?❗️<a href='https://techblock.club/?p=1964'> link</a>
 
-👉🏽The Ring Doorbell 2 was a Black Friday best-seller at $129 – hurry and you can get one now for $119❗️<a href='https://techblock.club/?p=1946'> link</a>
+👉🏽PUBG Mobile Season 11 – New Weapon Skins, Release Date | Leaks❗️<a href='https://techblock.club/?p=1966'> link</a>
 
-👉🏿17 Popular Sex Toys That Are Worth The Hype❗️<a href='https://techblock.club/?p=1948'> link</a>
+👉🏿WWE 2K20 Refuses To Run In 2020❗️<a href='https://techblock.club/?p=1968'> link</a>
 
