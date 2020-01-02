@@ -1,20 +1,20 @@
-<b>Technology NEWS on Wednesday, January 1st, 2020</b> 📡📡📡 
+<b>Technology NEWS on Thursday, January 2nd, 2020</b> 📡📡📡 
 
-👉Free PlayStation Plus Games for January Have Leaked❗️<a href='https://techblock.club/?p=1952'> link</a>
+👉A Pixel Launcher Bug Is Causing App Icons To Disappear Randomly❗️<a href='https://techblock.club/?p=1972'> link</a>
 
-👉🏽Skincare 101: The only products you need to get good skin❗️<a href='https://techblock.club/?p=1954'> link</a>
+👉🏽Lowkey.gg is an esports tournament platform for adult gamers❗️<a href='https://techblock.club/?p=1974'> link</a>
 
-👉🏿How is this Roomba still down to $199?!❗️<a href='https://techblock.club/?p=1956'> link</a>
+👉🏿An obese mother who couldn't get up the stair due to her 20 stone frame lost half her body weight❗️<a href='https://techblock.club/?p=1976'> link</a>
 
-👉Girl with cerebral palsy who spent years in therapy learning to walk given puppy as motivation❗️<a href='https://techblock.club/?p=1958'> link</a>
+👉Test tube DNA computer calculates the square root of 900❗️<a href='https://techblock.club/?p=1978'> link</a>
 
-👉🏽That £499 Dyson V11 Absolute deal is still live in the January Sales❗️<a href='https://techblock.club/?p=1960'> link</a>
+👉🏽Animal Crossing: New Horizons releases cute commercial and boxart image❗️<a href='https://techblock.club/?p=1980'> link</a>
 
-👉🏿Here's What the World Will Look Like in 2030 ... Right?❗️<a href='https://techblock.club/?p=1962'> link</a>
+👉🏿Breath of the Wild Fan Spends Two Years Building Replicas of the In-Game Weapons❗️<a href='https://techblock.club/?p=1982'> link</a>
 
-👉Where's the Borderlands 3 Spring 2020 DLC Roadmap?❗️<a href='https://techblock.club/?p=1964'> link</a>
+👉WWE 2K20 started the year even more broken than usual❗️<a href='https://techblock.club/?p=1984'> link</a>
 
-👉🏽PUBG Mobile Season 11 – New Weapon Skins, Release Date | Leaks❗️<a href='https://techblock.club/?p=1966'> link</a>
+👉🏽Where Is the Ice Throne in Fortnite?❗️<a href='https://techblock.club/?p=1986'> link</a>
 
-👉🏿WWE 2K20 Refuses To Run In 2020❗️<a href='https://techblock.club/?p=1968'> link</a>
+👉🏿Apple's change of plan: iPhones and iPads will use Imagination chip designs after all❗️<a href='https://techblock.club/?p=1988'> link</a>
 
