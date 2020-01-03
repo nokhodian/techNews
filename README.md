@@ -1,20 +1,20 @@
-<b>Technology NEWS on Thursday, January 2nd, 2020</b> 📡📡📡 
+<b>Technology NEWS on Friday, January 3rd, 2020</b> 📡📡📡 
 
-👉A Pixel Launcher Bug Is Causing App Icons To Disappear Randomly❗️<a href='https://techblock.club/?p=1972'> link</a>
+👉Gruesome footage shows giant pulsating parasite pulled from the nose of a kitten❗️<a href='https://techblock.club/?p=1992'> link</a>
 
-👉🏽Lowkey.gg is an esports tournament platform for adult gamers❗️<a href='https://techblock.club/?p=1974'> link</a>
+👉🏽5 Big Questions We Still Have About Animal Crossing: New Horizons❗️<a href='https://techblock.club/?p=1994'> link</a>
 
-👉🏿An obese mother who couldn't get up the stair due to her 20 stone frame lost half her body weight❗️<a href='https://techblock.club/?p=1976'> link</a>
+👉🏿OnePlus shows off Concept One phone's 'invisible camera' before CES 2020❗️<a href='https://techblock.club/?p=1996'> link</a>
 
-👉Test tube DNA computer calculates the square root of 900❗️<a href='https://techblock.club/?p=1978'> link</a>
+👉The ad board will now count YouTube views for album charts❗️<a href='https://techblock.club/?p=1998'> link</a>
 
-👉🏽Animal Crossing: New Horizons releases cute commercial and boxart image❗️<a href='https://techblock.club/?p=1980'> link</a>
+👉🏽Xbox Game Pass For Console Adds Grand Theft Auto 5❗️<a href='https://techblock.club/?p=2000'> link</a>
 
-👉🏿Breath of the Wild Fan Spends Two Years Building Replicas of the In-Game Weapons❗️<a href='https://techblock.club/?p=1982'> link</a>
+👉🏿D-Link introduces 5G gateways supporting 1-4Gbps home broadband❗️<a href='https://techblock.club/?p=2002'> link</a>
 
-👉WWE 2K20 started the year even more broken than usual❗️<a href='https://techblock.club/?p=1984'> link</a>
+👉AT&T Boosts 5G Network to 35 (or 19) Cities❗️<a href='https://techblock.club/?p=2004'> link</a>
 
-👉🏽Where Is the Ice Throne in Fortnite?❗️<a href='https://techblock.club/?p=1986'> link</a>
+👉🏽Oddity Springs Forth from Mother 4 Fan Game❗️<a href='https://techblock.club/?p=2006'> link</a>
 
-👉🏿Apple's change of plan: iPhones and iPads will use Imagination chip designs after all❗️<a href='https://techblock.club/?p=1988'> link</a>
+👉🏿What we think we know about iPhone 2020❗️<a href='https://techblock.club/?p=2008'> link</a>
 
