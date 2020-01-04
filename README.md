@@ -1,20 +1,20 @@
-<b>Technology NEWS on Friday, January 3rd, 2020</b> 📡📡📡 
+<b>Technology NEWS on Saturday, January 4th, 2020</b> 📡📡📡 
 
-👉Gruesome footage shows giant pulsating parasite pulled from the nose of a kitten❗️<a href='https://techblock.club/?p=1992'> link</a>
+👉Call of Duty: Modern Warfare Players Get a Double Weapon XP Weekend❗️<a href='https://techblock.club/?p=2012'> link</a>
 
-👉🏽5 Big Questions We Still Have About Animal Crossing: New Horizons❗️<a href='https://techblock.club/?p=1994'> link</a>
+👉🏽PlayStation 5 backward compatibility will reportedly work with all generations❗️<a href='https://techblock.club/?p=2014'> link</a>
 
-👉🏿OnePlus shows off Concept One phone's 'invisible camera' before CES 2020❗️<a href='https://techblock.club/?p=1996'> link</a>
+👉🏿Huge leak: We know exactly when Samsung's Galaxy S20 and Galaxy Fold 2 will launch❗️<a href='https://techblock.club/?p=2016'> link</a>
 
-👉The ad board will now count YouTube views for album charts❗️<a href='https://techblock.club/?p=1998'> link</a>
+👉Honor 9X price in India tipped under Rs 20000: Official launch set for Jan. 14❗️<a href='https://techblock.club/?p=2018'> link</a>
 
-👉🏽Xbox Game Pass For Console Adds Grand Theft Auto 5❗️<a href='https://techblock.club/?p=2000'> link</a>
+👉🏽Top Stories: Apple in 2020: New iPhone SE, Triple-Lens iPad Pro, and Maybe Even a Gaming Mac?❗️<a href='https://techblock.club/?p=2020'> link</a>
 
-👉🏿D-Link introduces 5G gateways supporting 1-4Gbps home broadband❗️<a href='https://techblock.club/?p=2002'> link</a>
+👉🏿The Army Bans TikTok❗️<a href='https://techblock.club/?p=2022'> link</a>
 
-👉AT&T Boosts 5G Network to 35 (or 19) Cities❗️<a href='https://techblock.club/?p=2004'> link</a>
+👉The Samsung Galaxy S11 is set to launch on February 11❗️<a href='https://techblock.club/?p=2024'> link</a>
 
-👉🏽Oddity Springs Forth from Mother 4 Fan Game❗️<a href='https://techblock.club/?p=2006'> link</a>
+👉🏽Chloe Goodman showcases her growing baby bump in a strapless monochrome striped dress❗️<a href='https://techblock.club/?p=2026'> link</a>
 
-👉🏿What we think we know about iPhone 2020❗️<a href='https://techblock.club/?p=2008'> link</a>
+👉🏿This Icelandic Retreat Is Reminiscent of a Bond Villain's Lair❗️<a href='https://techblock.club/?p=2028'> link</a>
 
