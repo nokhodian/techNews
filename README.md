@@ -1,20 +1,20 @@
-<b>Technology NEWS on Saturday, January 4th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Sunday, January 5th, 2020</b> 📡📡📡 
 
-👉Call of Duty: Modern Warfare Players Get a Double Weapon XP Weekend❗️<a href='https://techblock.club/?p=2012'> link</a>
+👉Apple, Amazon, and Google Want to Create a Smart Home Standard. Here's What to Expect❗️<a href='https://techblock.club/?p=2032'> link</a>
 
-👉🏽PlayStation 5 backward compatibility will reportedly work with all generations❗️<a href='https://techblock.club/?p=2014'> link</a>
+👉🏽South Jersey's Mid-Century Modern Motels, in All Their Neon Glory❗️<a href='https://techblock.club/?p=2034'> link</a>
 
-👉🏿Huge leak: We know exactly when Samsung's Galaxy S20 and Galaxy Fold 2 will launch❗️<a href='https://techblock.club/?p=2016'> link</a>
+👉🏿NASA's next generation rocket system is ready for shipping and testing❗️<a href='https://techblock.club/?p=2036'> link</a>
 
-👉Honor 9X price in India tipped under Rs 20000: Official launch set for Jan. 14❗️<a href='https://techblock.club/?p=2018'> link</a>
+👉WhatsApp messages got deleted accidentally? Don't fret, recover your chats with these easy steps❗️<a href='https://techblock.club/?p=2038'> link</a>
 
-👉🏽Top Stories: Apple in 2020: New iPhone SE, Triple-Lens iPad Pro, and Maybe Even a Gaming Mac?❗️<a href='https://techblock.club/?p=2020'> link</a>
+👉🏽Xiaomi will continue to pre-install Google's Phone and Messages apps on global devices❗️<a href='https://techblock.club/?p=2040'> link</a>
 
-👉🏿The Army Bans TikTok❗️<a href='https://techblock.club/?p=2022'> link</a>
+👉🏿Pico reveals Neo 2 Eye VR headset with eye tracking and 60GHz Wi-Fi❗️<a href='https://techblock.club/?p=2042'> link</a>
 
-👉The Samsung Galaxy S11 is set to launch on February 11❗️<a href='https://techblock.club/?p=2024'> link</a>
+👉Xbox One free game WARNING: Download bonus Games with Gold freebie for a limited time❗️<a href='https://techblock.club/?p=2044'> link</a>
 
-👉🏽Chloe Goodman showcases her growing baby bump in a strapless monochrome striped dress❗️<a href='https://techblock.club/?p=2026'> link</a>
+👉🏽Week in Review: Selling out in the Instagram age❗️<a href='https://techblock.club/?p=2046'> link</a>
 
-👉🏿This Icelandic Retreat Is Reminiscent of a Bond Villain's Lair❗️<a href='https://techblock.club/?p=2028'> link</a>
+👉🏿Silent Hill's Iconic Art Director Is Working On A New Game❗️<a href='https://techblock.club/?p=2048'> link</a>
 
