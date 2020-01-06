@@ -1,20 +1,20 @@
-<b>Technology NEWS on Sunday, January 5th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Monday, January 6th, 2020</b> 📡📡📡 
 
-👉Apple, Amazon, and Google Want to Create a Smart Home Standard. Here's What to Expect❗️<a href='https://techblock.club/?p=2032'> link</a>
+👉Samsung's next flagship Galaxy phone will reportedly have a 120Hz display❗️<a href='https://techblock.club/?p=2053'> link</a>
 
-👉🏽South Jersey's Mid-Century Modern Motels, in All Their Neon Glory❗️<a href='https://techblock.club/?p=2034'> link</a>
+👉🏽Tokyo Mirage Sessions Is Great On Switch❗️<a href='https://techblock.club/?p=2055'> link</a>
 
-👉🏿NASA's next generation rocket system is ready for shipping and testing❗️<a href='https://techblock.club/?p=2036'> link</a>
+👉🏿[CES 2020] The Roborock H6 takes aim at the handheld vacuum market❗️<a href='https://techblock.club/?p=2057'> link</a>
 
-👉WhatsApp messages got deleted accidentally? Don't fret, recover your chats with these easy steps❗️<a href='https://techblock.club/?p=2038'> link</a>
+👉IoTex's Ucam is a blockchain-based, encrypted private home camera❗️<a href='https://techblock.club/?p=2059'> link</a>
 
-👉🏽Xiaomi will continue to pre-install Google's Phone and Messages apps on global devices❗️<a href='https://techblock.club/?p=2040'> link</a>
+👉🏽Google News discontinues print-replica magazine service❗️<a href='https://techblock.club/?p=2061'> link</a>
 
-👉🏿Pico reveals Neo 2 Eye VR headset with eye tracking and 60GHz Wi-Fi❗️<a href='https://techblock.club/?p=2042'> link</a>
+👉🏿Intel's 10th Gen 45W Core-H CPUs Show Up in the Acer ConceptD 7 Ezel❗️<a href='https://techblock.club/?p=2063'> link</a>
 
-👉Xbox One free game WARNING: Download bonus Games with Gold freebie for a limited time❗️<a href='https://techblock.club/?p=2044'> link</a>
+👉Fujitsu updates iconic Happy Hacking Keyboard with USB-C and Bluetooth❗️<a href='https://techblock.club/?p=2065'> link</a>
 
-👉🏽Week in Review: Selling out in the Instagram age❗️<a href='https://techblock.club/?p=2046'> link</a>
+👉🏽This popular Nokia smartphone has got latest Android 10 update❗️<a href='https://techblock.club/?p=2067'> link</a>
 
-👉🏿Silent Hill's Iconic Art Director Is Working On A New Game❗️<a href='https://techblock.club/?p=2048'> link</a>
+👉🏿Android 10 Rolling Out To The Sony Xperia XZ2 & XZ3 Series❗️<a href='https://techblock.club/?p=2069'> link</a>
 
