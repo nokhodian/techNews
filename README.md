@@ -1,20 +1,20 @@
-<b>Technology NEWS on Monday, January 6th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Tuesday, January 7th, 2020</b> 📡📡📡 
 
-👉Samsung's next flagship Galaxy phone will reportedly have a 120Hz display❗️<a href='https://techblock.club/?p=2053'> link</a>
+👉Pokemon Nintendo Direct Stream Announced For This Week❗️<a href='https://techblock.club/?p=2073'> link</a>
 
-👉🏽Tokyo Mirage Sessions Is Great On Switch❗️<a href='https://techblock.club/?p=2055'> link</a>
+👉🏽Zombie Army 4: Dead War Horde mode hands-on preview – simply great❗️<a href='https://techblock.club/?p=2075'> link</a>
 
-👉🏿[CES 2020] The Roborock H6 takes aim at the handheld vacuum market❗️<a href='https://techblock.club/?p=2057'> link</a>
+👉🏿Satellogic is launch two new Earth observation satellites as it expands operations❗️<a href='https://techblock.club/?p=2077'> link</a>
 
-👉IoTex's Ucam is a blockchain-based, encrypted private home camera❗️<a href='https://techblock.club/?p=2059'> link</a>
+👉Xbox Series X: AMD Admits Fake Images Used During Press Conference [UPDATE]❗️<a href='https://techblock.club/?p=2079'> link</a>
 
-👉🏽Google News discontinues print-replica magazine service❗️<a href='https://techblock.club/?p=2061'> link</a>
+👉🏽Sony's CES TV Lineup Includes 8K, a Smaller 4K OLED, Audio Tricks❗️<a href='https://techblock.club/?p=2081'> link</a>
 
-👉🏿Intel's 10th Gen 45W Core-H CPUs Show Up in the Acer ConceptD 7 Ezel❗️<a href='https://techblock.club/?p=2063'> link</a>
+👉🏿PUBG Mobile Season 11 update to launch on January 10❗️<a href='https://techblock.club/?p=2083'> link</a>
 
-👉Fujitsu updates iconic Happy Hacking Keyboard with USB-C and Bluetooth❗️<a href='https://techblock.club/?p=2065'> link</a>
+👉Asus Unveils New 4K ROG Swift Gaming Displays❗️<a href='https://techblock.club/?p=2085'> link</a>
 
-👉🏽This popular Nokia smartphone has got latest Android 10 update❗️<a href='https://techblock.club/?p=2067'> link</a>
+👉🏽Top Ways to Fix Google Assistant Routines Not Working Problems❗️<a href='https://techblock.club/?p=2087'> link</a>
 
-👉🏿Android 10 Rolling Out To The Sony Xperia XZ2 & XZ3 Series❗️<a href='https://techblock.club/?p=2069'> link</a>
+👉🏿TCL Teases Its First Foldable Smartphone At CES 2020❗️<a href='https://techblock.club/?p=2089'> link</a>
 
