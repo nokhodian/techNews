@@ -1,20 +1,20 @@
-<b>Technology NEWS on Wednesday, January 8th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Thursday, January 9th, 2020</b> 📡📡📡 
 
-👉E Ink's New Electronic Paper Could Finally Bring Color to the Kindle❗️<a href='https://techblock.club/?p=2093'> link</a>
+👉Pokemon Sword and Shield Adds Galarian Slowpoke; Available Later Today❗️<a href='https://techblock.club/?p=2113'> link</a>
 
-👉🏽CES 2020: Hands on with August Wi-Fi Smart Lock with HomeKit❗️<a href='https://techblock.club/?p=2095'> link</a>
+👉🏽Apple's chance to grow as half a billion Windows 7 PCs hit EOL❗️<a href='https://techblock.club/?p=2115'> link</a>
 
-👉🏿The Very First 2020 Ford Mustang Shelby GT500 Sells for Massive Money❗️<a href='https://techblock.club/?p=2097'> link</a>
+👉🏿Stay motivated with these fitness trackers and smartwatches❗️<a href='https://techblock.club/?p=2117'> link</a>
 
-👉Stop Snoring Pillow Debuts at CES 2020❗️<a href='https://techblock.club/?p=2099'> link</a>
+👉Pokemon Sword & Shield Expansion Pass Adds New Pokemon, Areas, And More❗️<a href='https://techblock.club/?p=2119'> link</a>
 
-👉🏽Samsung unveils T7 Touch portable SSD with faster speeds and built-in fingerprint scanner❗️<a href='https://techblock.club/?p=2101'> link</a>
+👉🏽Improve Your Home WiFi With The NETGEAR Orbi Mesh WiFi System For $175❗️<a href='https://techblock.club/?p=2121'> link</a>
 
-👉🏿It's Not CES Without Yet Another Million Fossil Smartwatches❗️<a href='https://techblock.club/?p=2103'> link</a>
+👉🏿Amazon discounts the best Android phone, the Samsung Galaxy S10 Plus, by $233❗️<a href='https://techblock.club/?p=2123'> link</a>
 
-👉Samsung unveils NEON Project, new humanoid chatbots at CES 2020❗️<a href='https://techblock.club/?p=2105'> link</a>
+👉OnePlus 5 & 5T Get December Security Patch Via OxygenOS 9.0.10❗️<a href='https://techblock.club/?p=2125'> link</a>
 
-👉🏽Apple wants your best iPhone Night mode photos; will buy rights to Top 5❗️<a href='https://techblock.club/?p=2107'> link</a>
+👉🏽Hackers probe Citrix servers for weakness to remote code execution vulnerability❗️<a href='https://techblock.club/?p=2127'> link</a>
 
-👉🏿The Surge 2 DLC 'Kraken' launches January 16❗️<a href='https://techblock.club/?p=2109'> link</a>
+👉🏿Facebook won't ban political ads, prefers to keep screwing democracy❗️<a href='https://techblock.club/?p=2129'> link</a>
 
