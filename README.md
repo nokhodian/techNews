@@ -1,20 +1,20 @@
-<b>Technology NEWS on Thursday, January 9th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Friday, January 10th, 2020</b> 📡📡📡 
 
-👉Pokemon Sword and Shield Adds Galarian Slowpoke; Available Later Today❗️<a href='https://techblock.club/?p=2113'> link</a>
+👉Update Firefox now, because the Department of Homeland Security is telling you to❗️<a href='https://techblock.club/?p=2133'> link</a>
 
-👉🏽Apple's chance to grow as half a billion Windows 7 PCs hit EOL❗️<a href='https://techblock.club/?p=2115'> link</a>
+👉🏽Microsoft Skype and Cortana Transcription Programme Run With “No Security Measures”❗️<a href='https://techblock.club/?p=2135'> link</a>
 
-👉🏿Stay motivated with these fitness trackers and smartwatches❗️<a href='https://techblock.club/?p=2117'> link</a>
+👉🏿The Verge Awards at CES 2020: welcome to the land of the concept❗️<a href='https://techblock.club/?p=2137'> link</a>
 
-👉Pokemon Sword & Shield Expansion Pass Adds New Pokemon, Areas, And More❗️<a href='https://techblock.club/?p=2119'> link</a>
+👉Sony Won CES With a Car No One Will Ever Drive❗️<a href='https://techblock.club/?p=2139'> link</a>
 
-👉🏽Improve Your Home WiFi With The NETGEAR Orbi Mesh WiFi System For $175❗️<a href='https://techblock.club/?p=2121'> link</a>
+👉🏽Pokémon Go crushed Harry Potter: Wizards Unite in terms of sales in 2019❗️<a href='https://techblock.club/?p=2141'> link</a>
 
-👉🏿Amazon discounts the best Android phone, the Samsung Galaxy S10 Plus, by $233❗️<a href='https://techblock.club/?p=2123'> link</a>
+👉🏿Putting controls on your kids' gaming is a key part of being a parent❗️<a href='https://techblock.club/?p=2143'> link</a>
 
-👉OnePlus 5 & 5T Get December Security Patch Via OxygenOS 9.0.10❗️<a href='https://techblock.club/?p=2125'> link</a>
+👉Neon's 'artificial human' is a scary glimpse of the future that's (mostly) still hype❗️<a href='https://techblock.club/?p=2145'> link</a>
 
-👉🏽Hackers probe Citrix servers for weakness to remote code execution vulnerability❗️<a href='https://techblock.club/?p=2127'> link</a>
+👉🏽The 268-HP 2020 Toyota GR Yaris Is The Wildest Rally Special In Years❗️<a href='https://techblock.club/?p=2147'> link</a>
 
-👉🏿Facebook won't ban political ads, prefers to keep screwing democracy❗️<a href='https://techblock.club/?p=2129'> link</a>
+👉🏿Microsoft is planning to phase out the Windows 10 Store for Business❗️<a href='https://techblock.club/?p=2149'> link</a>
 
