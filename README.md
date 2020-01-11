@@ -1,20 +1,20 @@
-<b>Technology NEWS on Friday, January 10th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Saturday, January 11th, 2020</b> 📡📡📡 
 
-👉Update Firefox now, because the Department of Homeland Security is telling you to❗️<a href='https://techblock.club/?p=2133'> link</a>
+👉All the flexible, foldable devices we saw at CES 2020❗️<a href='https://techblock.club/?p=2153'> link</a>
 
-👉🏽Microsoft Skype and Cortana Transcription Programme Run With “No Security Measures”❗️<a href='https://techblock.club/?p=2135'> link</a>
+👉🏽New report details Apple's iPhone disassembly robot and its efforts to stop mining the earth❗️<a href='https://techblock.club/?p=2155'> link</a>
 
-👉🏿The Verge Awards at CES 2020: welcome to the land of the concept❗️<a href='https://techblock.club/?p=2137'> link</a>
+👉🏿'Clash of Clans' Town Hall Wrecking Event Explained - Rewards & What It Is❗️<a href='https://techblock.club/?p=2157'> link</a>
 
-👉Sony Won CES With a Car No One Will Ever Drive❗️<a href='https://techblock.club/?p=2139'> link</a>
+👉Modder makes GameCube Joy-Cons - and they work perfectly with a Nintendo Switch❗️<a href='https://techblock.club/?p=2159'> link</a>
 
-👉🏽Pokémon Go crushed Harry Potter: Wizards Unite in terms of sales in 2019❗️<a href='https://techblock.club/?p=2141'> link</a>
+👉🏽CES behind us, so now it's onto the next Galaxy❗️<a href='https://techblock.club/?p=2161'> link</a>
 
-👉🏿Putting controls on your kids' gaming is a key part of being a parent❗️<a href='https://techblock.club/?p=2143'> link</a>
+👉🏿Apple Talks About Privacy and App Store Sales❗️<a href='https://techblock.club/?p=2163'> link</a>
 
-👉Neon's 'artificial human' is a scary glimpse of the future that's (mostly) still hype❗️<a href='https://techblock.club/?p=2145'> link</a>
+👉Q Acoustics 3030i takes on Elac for the budget bookshelf crown❗️<a href='https://techblock.club/?p=2165'> link</a>
 
-👉🏽The 268-HP 2020 Toyota GR Yaris Is The Wildest Rally Special In Years❗️<a href='https://techblock.club/?p=2147'> link</a>
+👉🏽Apple will replace some iPhone XS and XR Smart Battery Cases❗️<a href='https://techblock.club/?p=2167'> link</a>
 
-👉🏿Microsoft is planning to phase out the Windows 10 Store for Business❗️<a href='https://techblock.club/?p=2149'> link</a>
+👉🏿Xiaomi filed a trademark application for Pocophone F1's successor❗️<a href='https://techblock.club/?p=2169'> link</a>
 
