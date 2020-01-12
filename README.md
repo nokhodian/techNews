@@ -1,20 +1,20 @@
-<b>Technology NEWS on Saturday, January 11th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Sunday, January 12th, 2020</b> 📡📡📡 
 
-👉All the flexible, foldable devices we saw at CES 2020❗️<a href='https://techblock.club/?p=2153'> link</a>
+👉Activision and Bungie Join Australian Bushfire Relief Efforts, Here's How You Can Help Them❗️<a href='https://techblock.club/?p=2173'> link</a>
 
-👉🏽New report details Apple's iPhone disassembly robot and its efforts to stop mining the earth❗️<a href='https://techblock.club/?p=2155'> link</a>
+👉🏽A mysterious new AMD Radeon GPU has beaten the RTX 2080 Ti❗️<a href='https://techblock.club/?p=2175'> link</a>
 
-👉🏿'Clash of Clans' Town Hall Wrecking Event Explained - Rewards & What It Is❗️<a href='https://techblock.club/?p=2157'> link</a>
+👉🏿CES 2020: Cyrcle Smartphone Makes Shared Music Sharing Easy❗️<a href='https://techblock.club/?p=2177'> link</a>
 
-👉Modder makes GameCube Joy-Cons - and they work perfectly with a Nintendo Switch❗️<a href='https://techblock.club/?p=2159'> link</a>
+👉Nissan Demos Dual Motor EV Leaf With GT-R Smarts❗️<a href='https://techblock.club/?p=2179'> link</a>
 
-👉🏽CES behind us, so now it's onto the next Galaxy❗️<a href='https://techblock.club/?p=2161'> link</a>
+👉🏽Genius WhatsApp tricks to try today from weird fonts to secret 'stealth mode'❗️<a href='https://techblock.club/?p=2181'> link</a>
 
-👉🏿Apple Talks About Privacy and App Store Sales❗️<a href='https://techblock.club/?p=2163'> link</a>
+👉🏿Zelda Breath of the Wild 2 release date rumours ignited by Nintendo Switch Pro reports❗️<a href='https://techblock.club/?p=2183'> link</a>
 
-👉Q Acoustics 3030i takes on Elac for the budget bookshelf crown❗️<a href='https://techblock.club/?p=2165'> link</a>
+👉If Batman on PS5 and Xbox Series X looks like this, it'll be worth the wait❗️<a href='https://techblock.club/?p=2185'> link</a>
 
-👉🏽Apple will replace some iPhone XS and XR Smart Battery Cases❗️<a href='https://techblock.club/?p=2167'> link</a>
+👉🏽Resident Evil 3 remake detailed: Some original elements will be removed❗️<a href='https://techblock.club/?p=2187'> link</a>
 
-👉🏿Xiaomi filed a trademark application for Pocophone F1's successor❗️<a href='https://techblock.club/?p=2169'> link</a>
+👉🏿Samsung's removable-battery smartphone is coming to the US for $499❗️<a href='https://techblock.club/?p=2189'> link</a>
 
