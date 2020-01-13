@@ -1,20 +1,20 @@
-<b>Technology NEWS on Sunday, January 12th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Monday, January 13th, 2020</b> 📡📡📡 
 
-👉Activision and Bungie Join Australian Bushfire Relief Efforts, Here's How You Can Help Them❗️<a href='https://techblock.club/?p=2173'> link</a>
+👉Microsoft ends Windows 7 support: What should you do?❗️<a href='https://techblock.club/?p=2193'> link</a>
 
-👉🏽A mysterious new AMD Radeon GPU has beaten the RTX 2080 Ti❗️<a href='https://techblock.club/?p=2175'> link</a>
+👉🏽Sword Art Online: Fatal Bullet Winter Update Debuting New Costumes and Weapon Skins in February❗️<a href='https://techblock.club/?p=2195'> link</a>
 
-👉🏿CES 2020: Cyrcle Smartphone Makes Shared Music Sharing Easy❗️<a href='https://techblock.club/?p=2177'> link</a>
+👉🏿Honor 9X to launch tomorrow: How to watch livestream, timing, expected price, specs❗️<a href='https://techblock.club/?p=2197'> link</a>
 
-👉Nissan Demos Dual Motor EV Leaf With GT-R Smarts❗️<a href='https://techblock.club/?p=2179'> link</a>
+👉Solid State Logic put its pro tech into tiny audio interfaces for bedroom producers❗️<a href='https://techblock.club/?p=2199'> link</a>
 
-👉🏽Genius WhatsApp tricks to try today from weird fonts to secret 'stealth mode'❗️<a href='https://techblock.club/?p=2181'> link</a>
+👉🏽PlayStation 5 reveal rumors swirl thanks to dinner photo❗️<a href='https://techblock.club/?p=2201'> link</a>
 
-👉🏿Zelda Breath of the Wild 2 release date rumours ignited by Nintendo Switch Pro reports❗️<a href='https://techblock.club/?p=2183'> link</a>
+👉🏿Sprawling Harry Potter World Created By Minecraft Modders❗️<a href='https://techblock.club/?p=2203'> link</a>
 
-👉If Batman on PS5 and Xbox Series X looks like this, it'll be worth the wait❗️<a href='https://techblock.club/?p=2185'> link</a>
+👉10 best Black Friday deals you can somehow still get right now on Amazon❗️<a href='https://techblock.club/?p=2205'> link</a>
 
-👉🏽Resident Evil 3 remake detailed: Some original elements will be removed❗️<a href='https://techblock.club/?p=2187'> link</a>
+👉🏽This robot vacuum cleaner is designed to handle pet hair❗️<a href='https://techblock.club/?p=2207'> link</a>
 
-👉🏿Samsung's removable-battery smartphone is coming to the US for $499❗️<a href='https://techblock.club/?p=2189'> link</a>
+👉🏿CES 2020: Biggest tech trends spotted for business pros❗️<a href='https://techblock.club/?p=2209'> link</a>
 
