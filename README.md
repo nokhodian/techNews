@@ -1,20 +1,20 @@
-<b>Technology NEWS on Thursday, January 16th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Friday, January 17th, 2020</b> 📡📡📡 
 
-👉Epic Games Store Not Slowing Down On Exclusives❗️<a href='https://techblock.club/?p=2254'> link</a>
+👉Marvel's Iron Man VR Delayed To May❗️<a href='https://techblock.club/?p=2274'> link</a>
 
-👉🏽New 'Pokemon' Anime 'Twilight Wings' Starts With a Heartwarming Episode❗️<a href='https://techblock.club/?p=2256'> link</a>
+👉🏽Apple's latest iOS update is truly getting on my nerves❗️<a href='https://techblock.club/?p=2276'> link</a>
 
-👉🏿Smash Bros. Ultimate Adding Cuphead Mii Fighter Costume And More❗️<a href='https://techblock.club/?p=2258'> link</a>
+👉🏿Civil liberties groups back Apple against FBI in Pensacola iPhones case❗️<a href='https://techblock.club/?p=2278'> link</a>
 
-👉Android Auto's support for Google Assistant routines has been broken since 2018❗️<a href='https://techblock.club/?p=2260'> link</a>
+👉Oculus Go VR Headset Receives Permanent Price Cut❗️<a href='https://techblock.club/?p=2280'> link</a>
 
-👉🏽Watch The Joker Use Dirty Tricks In The New MK11 DLC Trailer❗️<a href='https://techblock.club/?p=2262'> link</a>
+👉🏽Google wants to bring Steam to Chromebooks❗️<a href='https://techblock.club/?p=2282'> link</a>
 
-👉🏿Pressure, unjustly, lies on Peter DeBoer to lead Golden Knights to playoffs and beyond❗️<a href='https://techblock.club/?p=2264'> link</a>
+👉🏿This Official Pokemon ASMR Video Lets You Watch a Sleeping Charmander by a Crackling Fire❗️<a href='https://techblock.club/?p=2284'> link</a>
 
-👉Researchers propose system that taps AI to see hidden objects around corners❗️<a href='https://techblock.club/?p=2266'> link</a>
+👉Rockstar Games and Call of Duty Reign Supreme on Top 10 Best-Selling Games of the Decade List❗️<a href='https://techblock.club/?p=2286'> link</a>
 
-👉🏽You Can Get The Samsung SmartThings Hub For $59❗️<a href='https://techblock.club/?p=2268'> link</a>
+👉🏽How Much Superpower Does It Take to Bash a Bullet in Midair?❗️<a href='https://techblock.club/?p=2288'> link</a>
 
-👉🏿Fujifilm X-Pro3 review: One peculiar camera❗️<a href='https://techblock.club/?p=2270'> link</a>
+👉🏿Today's best deals: Rare 4K Roku TV blowout, $16 Wi-Fi extender, $8 wireless charger, $5 Alexa smart plugs, more❗️<a href='https://techblock.club/?p=2290'> link</a>
 
