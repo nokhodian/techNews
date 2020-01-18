@@ -1,20 +1,20 @@
-<b>Technology NEWS on Friday, January 17th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Saturday, January 18th, 2020</b> 📡📡📡 
 
-👉Marvel's Iron Man VR Delayed To May❗️<a href='https://techblock.club/?p=2274'> link</a>
+👉Ubisoft to finally diversify their games❗️<a href='https://techblock.club/?p=2294'> link</a>
 
-👉🏽Apple's latest iOS update is truly getting on my nerves❗️<a href='https://techblock.club/?p=2276'> link</a>
+👉🏽Three Issues You Will have to Know About Suitable Inks❗️<a href='https://techblock.club/?p=2296'> link</a>
 
-👉🏿Civil liberties groups back Apple against FBI in Pensacola iPhones case❗️<a href='https://techblock.club/?p=2278'> link</a>
+👉🏿Na'Vi' set for $1.5million buyout from ForZe❗️<a href='https://techblock.club/?p=2298'> link</a>
 
-👉Oculus Go VR Headset Receives Permanent Price Cut❗️<a href='https://techblock.club/?p=2280'> link</a>
+👉BMW i4 Concept Reveal is BMW's most important since the i3 Concept❗️<a href='https://techblock.club/?p=2300'> link</a>
 
-👉🏽Google wants to bring Steam to Chromebooks❗️<a href='https://techblock.club/?p=2282'> link</a>
+👉🏽Lenovo working on new standalone VR gaming headset❗️<a href='https://techblock.club/?p=2302'> link</a>
 
-👉🏿This Official Pokemon ASMR Video Lets You Watch a Sleeping Charmander by a Crackling Fire❗️<a href='https://techblock.club/?p=2284'> link</a>
+👉🏿Samsung Galaxy S20: 40-MP selfie camera, leaked photos, latest rumored specs❗️<a href='https://techblock.club/?p=2304'> link</a>
 
-👉Rockstar Games and Call of Duty Reign Supreme on Top 10 Best-Selling Games of the Decade List❗️<a href='https://techblock.club/?p=2286'> link</a>
+👉Web page now not discovered | WIRED❗️<a href='https://techblock.club/?p=2306'> link</a>
 
-👉🏽How Much Superpower Does It Take to Bash a Bullet in Midair?❗️<a href='https://techblock.club/?p=2288'> link</a>
+👉🏽CD Projekt RED Reiterates That There Are Currently No Plans for Cyberpunk 2077's Next-Gen Release❗️<a href='https://techblock.club/?p=2308'> link</a>
 
-👉🏿Today's best deals: Rare 4K Roku TV blowout, $16 Wi-Fi extender, $8 wireless charger, $5 Alexa smart plugs, more❗️<a href='https://techblock.club/?p=2290'> link</a>
+👉🏿Huawei to spend $26 million to lure developers to build apps on its new app store❗️<a href='https://techblock.club/?p=2310'> link</a>
 
