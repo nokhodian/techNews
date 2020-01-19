@@ -1,20 +1,20 @@
-<b>Technology NEWS on Saturday, January 18th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Sunday, January 19th, 2020</b> 📡📡📡 
 
-👉Ubisoft to finally diversify their games❗️<a href='https://techblock.club/?p=2294'> link</a>
+👉House Grunts 2, Draw Cold, and Chamber❗️<a href='https://techblock.club/?p=2314'> link</a>
 
-👉🏽Three Issues You Will have to Know About Suitable Inks❗️<a href='https://techblock.club/?p=2296'> link</a>
+👉🏽Apple TV+: Can it be saved before everyone's free trials run out?❗️<a href='https://techblock.club/?p=2316'> link</a>
 
-👉🏿Na'Vi' set for $1.5million buyout from ForZe❗️<a href='https://techblock.club/?p=2298'> link</a>
+👉🏿These Photos Bend Time and Space. Literally❗️<a href='https://techblock.club/?p=2318'> link</a>
 
-👉BMW i4 Concept Reveal is BMW's most important since the i3 Concept❗️<a href='https://techblock.club/?p=2300'> link</a>
+👉First Halo: Combat Evolved Anniversary Flight tests will most likely begin in January 2020❗️<a href='https://techblock.club/?p=2320'> link</a>
 
-👉🏽Lenovo working on new standalone VR gaming headset❗️<a href='https://techblock.club/?p=2302'> link</a>
+👉🏽Thoughts for all elected officials | PennLive letters❗️<a href='https://techblock.club/?p=2322'> link</a>
 
-👉🏿Samsung Galaxy S20: 40-MP selfie camera, leaked photos, latest rumored specs❗️<a href='https://techblock.club/?p=2304'> link</a>
+👉🏿Instagram drops IGTV button as the platform struggles to gain adoption❗️<a href='https://techblock.club/?p=2324'> link</a>
 
-👉Web page now not discovered | WIRED❗️<a href='https://techblock.club/?p=2306'> link</a>
+👉PSA: Some Walmart US Stores Are Selling DualShock 4 Back Button Attachment Early for $25❗️<a href='https://techblock.club/?p=2326'> link</a>
 
-👉🏽CD Projekt RED Reiterates That There Are Currently No Plans for Cyberpunk 2077's Next-Gen Release❗️<a href='https://techblock.club/?p=2308'> link</a>
+👉🏽Instagram removes IGTV icon from its app: Here's why❗️<a href='https://techblock.club/?p=2328'> link</a>
 
-👉🏿Huawei to spend $26 million to lure developers to build apps on its new app store❗️<a href='https://techblock.club/?p=2310'> link</a>
+👉🏿Shroud criticizes "lame" buffs and nerfs in Apex Legends update❗️<a href='https://techblock.club/?p=2330'> link</a>
 
