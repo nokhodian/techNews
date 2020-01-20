@@ -1,20 +1,20 @@
-<b>Technology NEWS on Sunday, January 19th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Monday, January 20th, 2020</b> 📡📡📡 
 
-👉House Grunts 2, Draw Cold, and Chamber❗️<a href='https://techblock.club/?p=2314'> link</a>
+👉515000 Telnet Credentials Leaked Online❗️<a href='https://techblock.club/?p=2334'> link</a>
 
-👉🏽Apple TV+: Can it be saved before everyone's free trials run out?❗️<a href='https://techblock.club/?p=2316'> link</a>
+👉🏽Samsung names Taemoon Roh as new smartphone chief❗️<a href='https://techblock.club/?p=2336'> link</a>
 
-👉🏿These Photos Bend Time and Space. Literally❗️<a href='https://techblock.club/?p=2318'> link</a>
+👉🏿Human skulls made into pots, drinking cups 4000 years ago linked to 'human cannibalism,' study says❗️<a href='https://techblock.club/?p=2338'> link</a>
 
-👉First Halo: Combat Evolved Anniversary Flight tests will most likely begin in January 2020❗️<a href='https://techblock.club/?p=2320'> link</a>
+👉Destiny 2 Corridors of Time Puzzle Solution Has Been Solved❗️<a href='https://techblock.club/?p=2340'> link</a>
 
-👉🏽Thoughts for all elected officials | PennLive letters❗️<a href='https://techblock.club/?p=2322'> link</a>
+👉🏽SEGA Launches Sonic 2020 Promotional Campaign❗️<a href='https://techblock.club/?p=2342'> link</a>
 
-👉🏿Instagram drops IGTV button as the platform struggles to gain adoption❗️<a href='https://techblock.club/?p=2324'> link</a>
+👉🏿The Xbox Adaptive Controller heartwarmingly allowed someone's kid to play Zelda: Breath of the Wild for the first time❗️<a href='https://techblock.club/?p=2344'> link</a>
 
-👉PSA: Some Walmart US Stores Are Selling DualShock 4 Back Button Attachment Early for $25❗️<a href='https://techblock.club/?p=2326'> link</a>
+👉SpaceX Mars city: Elon Musk reveals how you will pay for your trip❗️<a href='https://techblock.club/?p=2346'> link</a>
 
-👉🏽Instagram removes IGTV icon from its app: Here's why❗️<a href='https://techblock.club/?p=2328'> link</a>
+👉🏽Nintendo Switch stylus could come built into future Joy-Con controllers❗️<a href='https://techblock.club/?p=2348'> link</a>
 
-👉🏿Shroud criticizes "lame" buffs and nerfs in Apex Legends update❗️<a href='https://techblock.club/?p=2330'> link</a>
+👉🏿Here's why a 1974 Ford Bronco sold for $650000❗️<a href='https://techblock.club/?p=2350'> link</a>
 
