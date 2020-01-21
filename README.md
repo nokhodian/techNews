@@ -1,20 +1,20 @@
-<b>Technology NEWS on Monday, January 20th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Tuesday, January 21st, 2020</b> 📡📡📡 
 
-👉515000 Telnet Credentials Leaked Online❗️<a href='https://techblock.club/?p=2334'> link</a>
+👉Lego made an International Space Station kit, including Space Shuttle and robotic arm❗️<a href='https://techblock.club/?p=2354'> link</a>
 
-👉🏽Samsung names Taemoon Roh as new smartphone chief❗️<a href='https://techblock.club/?p=2336'> link</a>
+👉🏽TerraMaster F2-210 Review❗️<a href='https://techblock.club/?p=2356'> link</a>
 
-👉🏿Human skulls made into pots, drinking cups 4000 years ago linked to 'human cannibalism,' study says❗️<a href='https://techblock.club/?p=2338'> link</a>
+👉🏿Doom Eternal's First 3 Hours Throw More At You Than All Of Doom 2016❗️<a href='https://techblock.club/?p=2358'> link</a>
 
-👉Destiny 2 Corridors of Time Puzzle Solution Has Been Solved❗️<a href='https://techblock.club/?p=2340'> link</a>
+👉The N64 Controller Nearly Had its Personal Personal 2nd Display❗️<a href='https://techblock.club/?p=2360'> link</a>
 
-👉🏽SEGA Launches Sonic 2020 Promotional Campaign❗️<a href='https://techblock.club/?p=2342'> link</a>
+👉🏽The 7 Best possible Messenger Luggage: Top Design, Project Workshop, and Extra❗️<a href='https://techblock.club/?p=2362'> link</a>
 
-👉🏿The Xbox Adaptive Controller heartwarmingly allowed someone's kid to play Zelda: Breath of the Wild for the first time❗️<a href='https://techblock.club/?p=2344'> link</a>
+👉🏿HTC Vive Pro price cuts offer permanent savings on all Pro VR headsets and bundles❗️<a href='https://techblock.club/?p=2364'> link</a>
 
-👉SpaceX Mars city: Elon Musk reveals how you will pay for your trip❗️<a href='https://techblock.club/?p=2346'> link</a>
+👉Intel Core i9-10980HK Brings Crushing Mobile Comet Lake-H Performance In Fresh Benchmark Leaks❗️<a href='https://techblock.club/?p=2366'> link</a>
 
-👉🏽Nintendo Switch stylus could come built into future Joy-Con controllers❗️<a href='https://techblock.club/?p=2348'> link</a>
+👉🏽Amazon's Fire HD 10 hits Black Friday pricing after a huge $50 discount❗️<a href='https://techblock.club/?p=2368'> link</a>
 
-👉🏿Here's why a 1974 Ford Bronco sold for $650000❗️<a href='https://techblock.club/?p=2350'> link</a>
+👉🏿Second-Gen Google Pixel Buds Spied At Bluetooth SIG❗️<a href='https://techblock.club/?p=2370'> link</a>
 
