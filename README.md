@@ -1,20 +1,20 @@
-<b>Technology NEWS on Tuesday, January 21st, 2020</b> 📡📡📡 
+<b>Technology NEWS on Wednesday, January 22nd, 2020</b> 📡📡📡 
 
-👉Lego made an International Space Station kit, including Space Shuttle and robotic arm❗️<a href='https://techblock.club/?p=2354'> link</a>
+👉Realme X2 beta testers start receiving Android 10 and Realme UI❗️<a href='https://techblock.club/?p=2374'> link</a>
 
-👉🏽TerraMaster F2-210 Review❗️<a href='https://techblock.club/?p=2356'> link</a>
+👉🏽Ed Boon denies Injustice 3 tease in Mortal Kombat 11 Joker DLC❗️<a href='https://techblock.club/?p=2376'> link</a>
 
-👉🏿Doom Eternal's First 3 Hours Throw More At You Than All Of Doom 2016❗️<a href='https://techblock.club/?p=2358'> link</a>
+👉🏿AMD's 'Nvidia Killer' GPU may be in America for testing, launches this year❗️<a href='https://techblock.club/?p=2378'> link</a>
 
-👉The N64 Controller Nearly Had its Personal Personal 2nd Display❗️<a href='https://techblock.club/?p=2360'> link</a>
+👉Motorola's foldable Razr will finally be released on February 6th for $1499❗️<a href='https://techblock.club/?p=2380'> link</a>
 
-👉🏽The 7 Best possible Messenger Luggage: Top Design, Project Workshop, and Extra❗️<a href='https://techblock.club/?p=2362'> link</a>
+👉🏽MLB the Show 20 Gets First Gameplay Trailer; Dev Details Pre-Release Streams❗️<a href='https://techblock.club/?p=2382'> link</a>
 
-👉🏿HTC Vive Pro price cuts offer permanent savings on all Pro VR headsets and bundles❗️<a href='https://techblock.club/?p=2364'> link</a>
+👉🏿EA's Tetris mobile games will disappear from iOS and Android in April❗️<a href='https://techblock.club/?p=2384'> link</a>
 
-👉Intel Core i9-10980HK Brings Crushing Mobile Comet Lake-H Performance In Fresh Benchmark Leaks❗️<a href='https://techblock.club/?p=2366'> link</a>
+👉Fortnite just officially became a high school and college sport❗️<a href='https://techblock.club/?p=2386'> link</a>
 
-👉🏽Amazon's Fire HD 10 hits Black Friday pricing after a huge $50 discount❗️<a href='https://techblock.club/?p=2368'> link</a>
+👉🏽Charming Platformer Lost Worlds: Beyond the Page has Definite Child of Light Vibes❗️<a href='https://techblock.club/?p=2388'> link</a>
 
-👉🏿Second-Gen Google Pixel Buds Spied At Bluetooth SIG❗️<a href='https://techblock.club/?p=2370'> link</a>
+👉🏿Google Pixel 4a Launch: What To Expect❗️<a href='https://techblock.club/?p=2390'> link</a>
 
