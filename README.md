@@ -1,20 +1,20 @@
-<b>Technology NEWS on Friday, January 24th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Saturday, January 25th, 2020</b> 📡📡📡 
 
-👉Leak suggests the PS5 will be much faster than the new Xbox Series X❗️<a href='https://techblock.club/?p=2414'> link</a>
+👉Disney+ can now package with Hulu Are living TV, simply in time for the Tremendous Bowl❗️<a href='https://techblock.club/?p=2434'> link</a>
 
-👉🏽URL redirect malware infects thousands of WordPress sites❗️<a href='https://techblock.club/?p=2416'> link</a>
+👉🏽Hilarious Video Pokes Fun at Latest SUPER SMASH BROS. ULTIMATE DLC Reveal❗️<a href='https://techblock.club/?p=2436'> link</a>
 
-👉🏿Windows 7 Users Denied Critical IE Security Patch As Microsoft Sticks To Support Blackout❗️<a href='https://techblock.club/?p=2418'> link</a>
+👉🏿Switch Pro: developers tell us what they want from the rumored Switch upgrade❗️<a href='https://techblock.club/?p=2438'> link</a>
 
-👉Images from the cancelled The Last of Us animated short have been posted❗️<a href='https://techblock.club/?p=2420'> link</a>
+👉Being muted does not violate your human rights, court tells Runescape player❗️<a href='https://techblock.club/?p=2440'> link</a>
 
-👉🏽Rune Factory 4 Special just got a release date❗️<a href='https://techblock.club/?p=2422'> link</a>
+👉🏽Dragon Quest Builders 2 Free Download Latest Version❗️<a href='https://techblock.club/?p=2442'> link</a>
 
-👉🏿Square Enix Switches up the First-Person Puzzler With a Switch Version of the Turing Test❗️<a href='https://techblock.club/?p=2424'> link</a>
+👉🏿India becomes second largest smartphone market in 2019❗️<a href='https://techblock.club/?p=2444'> link</a>
 
-👉Captain Tsubasa: Rise of New Champions first gameplay videos, system details❗️<a href='https://techblock.club/?p=2426'> link</a>
+👉'Riverdale' season 4 episode 11: Will Veronica's new rum recipe become a hit with drinkers?❗️<a href='https://techblock.club/?p=2446'> link</a>
 
-👉🏽Fortnite Chapter 2 Season 2 Release Date Confirmed By Epic❗️<a href='https://techblock.club/?p=2428'> link</a>
+👉🏽Batman: Arkham Knight Getting PS4-Exclusive Earth 2 Dark Knight Skin Almost 5 Years After Release❗️<a href='https://techblock.club/?p=2448'> link</a>
 
-👉🏿Super Nintendo World Confirmed for New Universal Theme Park❗️<a href='https://techblock.club/?p=2430'> link</a>
+👉🏿Sammy Guevara Finds Regarding Factor Joey Janela Mentioned About Demise❗️<a href='https://techblock.club/?p=2450'> link</a>
 
