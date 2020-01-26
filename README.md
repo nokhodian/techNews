@@ -1,20 +1,20 @@
-<b>Technology NEWS on Saturday, January 25th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Sunday, January 26th, 2020</b> 📡📡📡 
 
-👉Disney+ can now package with Hulu Are living TV, simply in time for the Tremendous Bowl❗️<a href='https://techblock.club/?p=2434'> link</a>
+👉Turtle Beach establishes partnership with Chicago Huntsmen❗️<a href='https://techblock.club/?p=2455'> link</a>
 
-👉🏽Hilarious Video Pokes Fun at Latest SUPER SMASH BROS. ULTIMATE DLC Reveal❗️<a href='https://techblock.club/?p=2436'> link</a>
+👉🏽Students from private schools three times more likely to attend top universities❗️<a href='https://techblock.club/?p=2457'> link</a>
 
-👉🏿Switch Pro: developers tell us what they want from the rumored Switch upgrade❗️<a href='https://techblock.club/?p=2438'> link</a>
+👉🏿Motorola's upcoming flagship phone may come with its own stylus❗️<a href='https://techblock.club/?p=2459'> link</a>
 
-👉Being muted does not violate your human rights, court tells Runescape player❗️<a href='https://techblock.club/?p=2440'> link</a>
+👉TEMTEM, the POKEMON Influenced MMO, Launches on Early Access❗️<a href='https://techblock.club/?p=2461'> link</a>
 
-👉🏽Dragon Quest Builders 2 Free Download Latest Version❗️<a href='https://techblock.club/?p=2442'> link</a>
+👉🏽Apple AirPods Pro vs. Master & Dynamic MW07 Plus: Which wireless noise-cancelling earbuds win?❗️<a href='https://techblock.club/?p=2463'> link</a>
 
-👉🏿India becomes second largest smartphone market in 2019❗️<a href='https://techblock.club/?p=2444'> link</a>
+👉🏿Sprint will repair your Galaxy screen for just $49, no matter where you bought it❗️<a href='https://techblock.club/?p=2465'> link</a>
 
-👉'Riverdale' season 4 episode 11: Will Veronica's new rum recipe become a hit with drinkers?❗️<a href='https://techblock.club/?p=2446'> link</a>
+👉The Los Angeles Guerrillas Protest “Call Of Duty” League Outcome❗️<a href='https://techblock.club/?p=2467'> link</a>
 
-👉🏽Batman: Arkham Knight Getting PS4-Exclusive Earth 2 Dark Knight Skin Almost 5 Years After Release❗️<a href='https://techblock.club/?p=2448'> link</a>
+👉🏽Canadian psychedelic drug researcher featured in Netflix's 'The Goop Lab'❗️<a href='https://techblock.club/?p=2469'> link</a>
 
-👉🏿Sammy Guevara Finds Regarding Factor Joey Janela Mentioned About Demise❗️<a href='https://techblock.club/?p=2450'> link</a>
+👉🏿Samsung Galaxy Z Flip to Come With a Side-Mounted Fingerprint Scanner, Snapdragon 855+, Dual Rear Cameras ...❗️<a href='https://techblock.club/?p=2471'> link</a>
 
