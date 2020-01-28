@@ -1,20 +1,20 @@
-<b>Technology NEWS on Monday, January 27th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Tuesday, January 28th, 2020</b> 📡📡📡 
 
-👉When Will Super Nintendo World at Universal Orlando Open? Details Revealed For Epic Universe Theme Park❗️<a href='https://techblock.club/?p=2475'> link</a>
+👉Citymapper appoints advisers amid takeover interest❗️<a href='https://techblock.club/?p=2495'> link</a>
 
-👉🏽OverActive Media and Universal Music Canada Announce Multi-Year Collaboration for Toronto CDL, OWL Teams❗️<a href='https://techblock.club/?p=2477'> link</a>
+👉🏽How to reconnect Amazon Echo and Alexa to your Wi-Fi network❗️<a href='https://techblock.club/?p=2497'> link</a>
 
-👉🏿Cleaner jailed for stealing Dh2,100 from Dubai Courts office❗️<a href='https://techblock.club/?p=2479'> link</a>
+👉🏿'Ironbark' Manufacturer 42 Re-United statesNetflix Deal, Expands Group In LA & UK – Closing date❗️<a href='https://techblock.club/?p=2499'> link</a>
 
-👉SpaceX to put 60 more Starlink satellites in orbit today❗️<a href='https://techblock.club/?p=2481'> link</a>
+👉This Toyota Tacoma is Teased Ahead of the 2020 Chicago Auto Show (News)❗️<a href='https://techblock.club/?p=2501'> link</a>
 
-👉🏽Scammers Take $5000 From Suburban Mom After Fraudulent Ads Pop Up On Google❗️<a href='https://techblock.club/?p=2483'> link</a>
+👉🏽This 2600-Year-Old Mummy Died in a Violent Backstabbing❗️<a href='https://techblock.club/?p=2503'> link</a>
 
-👉🏿iOS 14 Wishlist: 10 ways Apple can take the iPhone to the next level❗️<a href='https://techblock.club/?p=2485'> link</a>
+👉🏿Pecan.ai launches with $11M Series A to automate machine learning❗️<a href='https://techblock.club/?p=2505'> link</a>
 
-👉Johnson is shirking accountability on Huawei and Stormont – however how lengthy can he accomplish that?❗️<a href='https://techblock.club/?p=2487'> link</a>
+👉Analog Devices to Showcase Their Latest Data Acquisition Solutions at embedded world 2020❗️<a href='https://techblock.club/?p=2507'> link</a>
 
-👉🏽Porsche Bares Soul - In Upcoming National Commercial for the Big Game❗️<a href='https://techblock.club/?p=2489'> link</a>
+👉🏽Arizona's first actual luxurious hotel—firstly opened in 1896—is again in trade❗️<a href='https://techblock.club/?p=2509'> link</a>
 
-👉🏿Ninja Warrior adventure park plan for former Leicester Toys R Us store❗️<a href='https://techblock.club/?p=2491'> link</a>
+👉🏿Please register to view more Fortune content❗️<a href='https://techblock.club/?p=2511'> link</a>
 
