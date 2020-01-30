@@ -1,20 +1,20 @@
-<b>Technology NEWS on Wednesday, January 29th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Thursday, January 30th, 2020</b> 📡📡📡 
 
-👉Warcraft 3: Reforged Isn't Much Of An Upgrade❗️<a href='https://techblock.club/?p=2515'> link</a>
+👉Iron Danger is an RPG that lets you rewind time to avoid death❗️<a href='https://techblock.club/?p=2535'> link</a>
 
-👉🏽Valve Index got a major sales boost from Half-Life: Alyx❗️<a href='https://techblock.club/?p=2517'> link</a>
+👉🏽Mark Zuckerberg: 'people bought nearly $5M in Oculus Store content on Christmas Day'❗️<a href='https://techblock.club/?p=2537'> link</a>
 
-👉🏿SpaceX succeeds with a key pressure test in its Starship program❗️<a href='https://techblock.club/?p=2519'> link</a>
+👉🏿Sony's First Android-Powered Walkman Is Damn Compelling❗️<a href='https://techblock.club/?p=2539'> link</a>
 
-👉How to Nail a Front Flip in a Monster Truck❗️<a href='https://techblock.club/?p=2521'> link</a>
+👉HMD Global Will Announce A Boatload Of New Nokia Phones At MWC 2020❗️<a href='https://techblock.club/?p=2541'> link</a>
 
-👉🏽Flexibits launches major Fantastical update❗️<a href='https://techblock.club/?p=2523'> link</a>
+👉🏽Unlocked iPhone 7 refurbs are down to $175 right now, or get an iPhone 8 for $260❗️<a href='https://techblock.club/?p=2543'> link</a>
 
-👉🏿Amazon's blowing out Razer PC accessories and memory cards for one day only❗️<a href='https://techblock.club/?p=2525'> link</a>
+👉🏿The Outer Worlds On Switch Releases In March, Will Require A Download❗️<a href='https://techblock.club/?p=2545'> link</a>
 
-👉Why Google Assistant supports so many more languages than Siri, Alexa, Bixby, and Cortana❗️<a href='https://techblock.club/?p=2527'> link</a>
+👉Ninja Got Between $20m And $30m To Leave Twitch For Fewer Viewers❗️<a href='https://techblock.club/?p=2547'> link</a>
 
-👉🏽Code Vein Hell Knight DLC Available Now❗️<a href='https://techblock.club/?p=2529'> link</a>
+👉🏽The iPad turned ten years old on 27th January, 2020❗️<a href='https://techblock.club/?p=2549'> link</a>
 
-👉🏿Dead Cells: The Bad Seed DLC's February Launch Date Seemingly Outed by Store Listing❗️<a href='https://techblock.club/?p=2531'> link</a>
+👉🏿Algoriddim's djay for iPad and Mac gain SoundCloud and Tidal integration❗️<a href='https://techblock.club/?p=2551'> link</a>
 
