@@ -1,20 +1,20 @@
-<b>Technology NEWS on Saturday, February 1st, 2020</b> 📡📡📡 
+<b>Technology NEWS on Sunday, February 2nd, 2020</b> 📡📡📡 
 
-👉Rainway PC game streaming app pulled from Xbox One❗️<a href='https://techblock.club/?p=2575'> link</a>
+👉Persona 5 Scramble's story can be enjoyed without having to play previous entries, says producer Daisuke Kaneda.❗️<a href='https://techblock.club/?p=2595'> link</a>
 
-👉🏽Samsung's full Galaxy S20 lineup just leaked in a real-life photo❗️<a href='https://techblock.club/?p=2577'> link</a>
+👉🏽Easy methods to Circulate Tremendous Bowl 2020 (and Pet Bowl, Kitten Bowl)❗️<a href='https://techblock.club/?p=2597'> link</a>
 
-👉🏿Bungie: a job announcement brings out some details about the new IP under development❗️<a href='https://techblock.club/?p=2579'> link</a>
+👉🏿Save as much as 30% on Botanic Fireplace shampoo conditioner bundles from $12❗️<a href='https://techblock.club/?p=2599'> link</a>
 
-👉Box Office: 'Bad Boys 3' Is About To Become The Biggest January Release Ever❗️<a href='https://techblock.club/?p=2581'> link</a>
+👉Nokia could launch world's first Android feature phone at its MWC 2020 event❗️<a href='https://techblock.club/?p=2601'> link</a>
 
-👉🏽Head-To-Head: Apple iPhone 11 Pro Vs. Samsung Galaxy Note 10❗️<a href='https://techblock.club/?p=2583'> link</a>
+👉🏽The Ultimate Super Bowl 2020 Drinking Game❗️<a href='https://techblock.club/?p=2603'> link</a>
 
-👉🏿Super Bowl 2020: Check these TV settings before the big game starts❗️<a href='https://techblock.club/?p=2585'> link</a>
+👉🏿Riverdale Season 4 Episode 12 Release date, Promo (Watch Online)❗️<a href='https://techblock.club/?p=2605'> link</a>
 
-👉Twitter rolls out threaded replies to streamline conversations on iOS❗️<a href='https://techblock.club/?p=2587'> link</a>
+👉What is in the Fortnite item shop today and what emotes and outfits are available?❗️<a href='https://techblock.club/?p=2607'> link</a>
 
-👉🏽Azure Striker Gunvolt Series Will Make Its PS4 Debut Worldwide This April❗️<a href='https://techblock.club/?p=2589'> link</a>
+👉🏽Borderlands 3's Rare Chest Riches event is now live❗️<a href='https://techblock.club/?p=2609'> link</a>
 
-👉🏿A New Silent Hill Movie Has Been Announced❗️<a href='https://techblock.club/?p=2591'> link</a>
+👉🏿This week's top stories: iOS 14 rumors, Apple's record Q1 earnings, wireless charging mat, more❗️<a href='https://techblock.club/?p=2611'> link</a>
 
