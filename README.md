@@ -1,20 +1,20 @@
-<b>Technology NEWS on Sunday, February 2nd, 2020</b> 📡📡📡 
+<b>Technology NEWS on Monday, February 3rd, 2020</b> 📡📡📡 
 
-👉Persona 5 Scramble's story can be enjoyed without having to play previous entries, says producer Daisuke Kaneda.❗️<a href='https://techblock.club/?p=2595'> link</a>
+👉“The Last Of Us Part II” Will Contain Nudity And Sexual Content❗️<a href='https://techblock.club/?p=2615'> link</a>
 
-👉🏽Easy methods to Circulate Tremendous Bowl 2020 (and Pet Bowl, Kitten Bowl)❗️<a href='https://techblock.club/?p=2597'> link</a>
+👉🏽Tablet sales are still in decline, but Apple's latest iPad is showing the way forward❗️<a href='https://techblock.club/?p=2617'> link</a>
 
-👉🏿Save as much as 30% on Botanic Fireplace shampoo conditioner bundles from $12❗️<a href='https://techblock.club/?p=2599'> link</a>
+👉🏿Back to the Mac 016: Behind the scenes of Jeff's video editing workspace❗️<a href='https://techblock.club/?p=2619'> link</a>
 
-👉Nokia could launch world's first Android feature phone at its MWC 2020 event❗️<a href='https://techblock.club/?p=2601'> link</a>
+👉French Lawyers File Suits Against EA Over FIFA Ultimate Team❗️<a href='https://techblock.club/?p=2621'> link</a>
 
-👉🏽The Ultimate Super Bowl 2020 Drinking Game❗️<a href='https://techblock.club/?p=2603'> link</a>
+👉🏽EA Made Almost $1 Billion On Microtransactions Last Quarter❗️<a href='https://techblock.club/?p=2623'> link</a>
 
-👉🏿Riverdale Season 4 Episode 12 Release date, Promo (Watch Online)❗️<a href='https://techblock.club/?p=2605'> link</a>
+👉🏿Winning Photos From 2019 International Photographer of the Year Contest❗️<a href='https://techblock.club/?p=2625'> link</a>
 
-👉What is in the Fortnite item shop today and what emotes and outfits are available?❗️<a href='https://techblock.club/?p=2607'> link</a>
+👉The Best Nintendo Switch Games for 2019❗️<a href='https://techblock.club/?p=2627'> link</a>
 
-👉🏽Borderlands 3's Rare Chest Riches event is now live❗️<a href='https://techblock.club/?p=2609'> link</a>
+👉🏽Nokia 'Captain America' Phone Leaks❗️<a href='https://techblock.club/?p=2629'> link</a>
 
-👉🏿This week's top stories: iOS 14 rumors, Apple's record Q1 earnings, wireless charging mat, more❗️<a href='https://techblock.club/?p=2611'> link</a>
+👉🏿Microsoft Teams is experiencing 'issues:' Company working on fix for outage❗️<a href='https://techblock.club/?p=2631'> link</a>
 
