@@ -1,20 +1,20 @@
-<b>Technology NEWS on Tuesday, February 4th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Wednesday, February 5th, 2020</b> 📡📡📡 
 
-👉Epic Games' New 'Fortnite' Tourney Promises A Whopping $1Million In Prizes❗️<a href='https://techblock.club/?p=2635'> link</a>
+👉Free Apex Legends Items Now Available To Celebrate One-Year Anniversary❗️<a href='https://techblock.club/?p=2655'> link</a>
 
-👉🏽Motorola One Hyper review❗️<a href='https://techblock.club/?p=2637'> link</a>
+👉🏽Fortnite 11.50 Update Patch Notes Prepares New Event, Switches Physics Systems❗️<a href='https://techblock.club/?p=2657'> link</a>
 
-👉🏿Cole: What the survey among employees of the Canadian government really tells us❗️<a href='https://techblock.club/?p=2639'> link</a>
+👉🏿Windows 10 users hit by Search bar fault❗️<a href='https://techblock.club/?p=2659'> link</a>
 
-👉Epic Games Store hasn't made Steam any less popular with players❗️<a href='https://techblock.club/?p=2641'> link</a>
+👉'There are too many Fire Emblem characters', says Smash Bros. director❗️<a href='https://techblock.club/?p=2661'> link</a>
 
-👉🏽Here's what GTA 5 looks like in full VR❗️<a href='https://techblock.club/?p=2643'> link</a>
+👉🏽New Huawei P40 and P40 Pro release date, price, spec and latest rumours❗️<a href='https://techblock.club/?p=2663'> link</a>
 
-👉🏿LG launches Apple TV app for its 2019 TVs ahead of 2018 models later this year❗️<a href='https://techblock.club/?p=2645'> link</a>
+👉🏿Fujifilm's X100V adds a tilt screen, more resolution and 4K video❗️<a href='https://techblock.club/?p=2665'> link</a>
 
-👉Moving Out launches April 28❗️<a href='https://techblock.club/?p=2647'> link</a>
+👉Realme 6 Pro aka RMX2061 Receives IMDA Certification in Singapore❗️<a href='https://techblock.club/?p=2667'> link</a>
 
-👉🏽Why All the Smart Home Platforms Suck and How They're Going to Fix Them❗️<a href='https://techblock.club/?p=2649'> link</a>
+👉🏽Nioh 2 Preview – Nioh Harder❗️<a href='https://techblock.club/?p=2669'> link</a>
 
-👉🏿Sony Raises Outlook on Strong Sensor Demand, Warns of Virus Risks on Supply Chain❗️<a href='https://techblock.club/?p=2651'> link</a>
+👉🏿New Update Makes Power Rangers More Like A Real Fighting Game❗️<a href='https://techblock.club/?p=2671'> link</a>
 
