@@ -1,20 +1,20 @@
-<b>Technology NEWS on Wednesday, February 5th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Thursday, February 6th, 2020</b> 📡📡📡 
 
-👉Free Apex Legends Items Now Available To Celebrate One-Year Anniversary❗️<a href='https://techblock.club/?p=2655'> link</a>
+👉2020 Ford GT ups horsepower to 660, offers $750000 Liquid Carbon special edition❗️<a href='https://techblock.club/?p=2675'> link</a>
 
-👉🏽Fortnite 11.50 Update Patch Notes Prepares New Event, Switches Physics Systems❗️<a href='https://techblock.club/?p=2657'> link</a>
+👉🏽Twitch streamer playing Modern Warfare Remastered demands “$10 an hour” to continue streaming❗️<a href='https://techblock.club/?p=2677'> link</a>
 
-👉🏿Windows 10 users hit by Search bar fault❗️<a href='https://techblock.club/?p=2659'> link</a>
+👉🏿Blizzard Changes Refund Policy for Warcraft 3: Reforged❗️<a href='https://techblock.club/?p=2679'> link</a>
 
-👉'There are too many Fire Emblem characters', says Smash Bros. director❗️<a href='https://techblock.club/?p=2661'> link</a>
+👉Dyson reveals plans for headphones that purify air and pump it to the mouth as you listen to music❗️<a href='https://techblock.club/?p=2681'> link</a>
 
-👉🏽New Huawei P40 and P40 Pro release date, price, spec and latest rumours❗️<a href='https://techblock.club/?p=2663'> link</a>
+👉🏽Final Fantasy XIV Patch 5.2 Gets Release Date, Trailer, Info, & Gameplay Showing New Features Aplenty❗️<a href='https://techblock.club/?p=2683'> link</a>
 
-👉🏿Fujifilm's X100V adds a tilt screen, more resolution and 4K video❗️<a href='https://techblock.club/?p=2665'> link</a>
+👉🏿GeForce Now is the cloud gaming service Stadia should be❗️<a href='https://techblock.club/?p=2685'> link</a>
 
-👉Realme 6 Pro aka RMX2061 Receives IMDA Certification in Singapore❗️<a href='https://techblock.club/?p=2667'> link</a>
+👉Coronavirus Will Impact Nintendo Switch Production And Shipment To Japan❗️<a href='https://techblock.club/?p=2687'> link</a>
 
-👉🏽Nioh 2 Preview – Nioh Harder❗️<a href='https://techblock.club/?p=2669'> link</a>
+👉🏽Edifier TWS NB Review❗️<a href='https://techblock.club/?p=2689'> link</a>
 
-👉🏿New Update Makes Power Rangers More Like A Real Fighting Game❗️<a href='https://techblock.club/?p=2671'> link</a>
+👉🏿China's smartphone giants reportedly unite to challenge Google's Play Store❗️<a href='https://techblock.club/?p=2691'> link</a>
 
