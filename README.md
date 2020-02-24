@@ -1,20 +1,20 @@
-<b>Technology NEWS on Thursday, February 20th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Monday, February 24th, 2020</b> 📡📡📡 
 
-👉Adobe Photoshop gets new features for the desktop and iPad on its 30th birthday❗️<a href='https://techblock.club/?p=2955'> link</a>
+👉Microsoft reveals more Xbox Series X specs, confirms 12 teraflops GPU❗️<a href='https://techblock.club/?p=3035'> link</a>
 
-👉🏽Microsoft is bringing its antivirus software to iOS and Android❗️<a href='https://techblock.club/?p=2957'> link</a>
+👉🏽Check out ray tracing in PS2 game Need for Speed Underground❗️<a href='https://techblock.club/?p=3037'> link</a>
 
-👉🏿Asus ExpertBook B9450 Review❗️<a href='https://techblock.club/?p=2959'> link</a>
+👉🏿Leakers disagree about whether leaked images are really the OnePlus 8 Pro❗️<a href='https://techblock.club/?p=3039'> link</a>
 
-👉App Store Confidential: Book Authored by Ex-Apple Employee That Exposes iPhone Maker's Darkest Secrets Now on ...❗️<a href='https://techblock.club/?p=2961'> link</a>
+👉Facebook may be bringing Android games streaming❗️<a href='https://techblock.club/?p=3041'> link</a>
 
-👉🏽What the $13B Etrade deal says about Robinhood's valuation❗️<a href='https://techblock.club/?p=2963'> link</a>
+👉🏽Cybersecurity attacks on mobile, IoT proliferate: Will 5G make it better?❗️<a href='https://techblock.club/?p=3043'> link</a>
 
-👉🏿Master Lock's fingerprint-secured padlock means never losing fiddly keys again❗️<a href='https://techblock.club/?p=2965'> link</a>
+👉🏿Lenovo adds nine new laptops to its ThinkPad lineup❗️<a href='https://techblock.club/?p=3045'> link</a>
 
-👉tinyBuild releases playable Hellpoint sequel ahead of game's launch❗️<a href='https://techblock.club/?p=2967'> link</a>
+👉Rainbow Six Siege sets new Steam record 4 years after launch❗️<a href='https://techblock.club/?p=3047'> link</a>
 
-👉🏽HTC Vive Cosmos Elite hands-on review: External tracking returns❗️<a href='https://techblock.club/?p=2969'> link</a>
+👉🏽Realme Announces X50 Pro 5G Phone With Snapdragon 865 Processor❗️<a href='https://techblock.club/?p=3049'> link</a>
 
-👉🏿Build Your New Kingdom, now on PS4 and Xbox One!❗️<a href='https://techblock.club/?p=2971'> link</a>
+👉🏿Berners-Lee's Solid project: Schneier joins team to give you back control over data❗️<a href='https://techblock.club/?p=3051'> link</a>
 
