@@ -1,20 +1,20 @@
-<b>Technology NEWS on Monday, February 24th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Tuesday, February 25th, 2020</b> 📡📡📡 
 
-👉Microsoft reveals more Xbox Series X specs, confirms 12 teraflops GPU❗️<a href='https://techblock.club/?p=3035'> link</a>
+👉Nest cameras were down for 17 hours because of failed server update❗️<a href='https://techblock.club/?p=3055'> link</a>
 
-👉🏽Check out ray tracing in PS2 game Need for Speed Underground❗️<a href='https://techblock.club/?p=3037'> link</a>
+👉🏽Firefox flips on default DNS over HTTPS to encrypt Internet traffic at the source❗️<a href='https://techblock.club/?p=3057'> link</a>
 
-👉🏿Leakers disagree about whether leaked images are really the OnePlus 8 Pro❗️<a href='https://techblock.club/?p=3039'> link</a>
+👉🏿Amazon cuts the price of the 7-in-1 Ninja Foodi cooker to $125❗️<a href='https://techblock.club/?p=3059'> link</a>
 
-👉Facebook may be bringing Android games streaming❗️<a href='https://techblock.club/?p=3041'> link</a>
+👉Sony FE 20mm F1.8 G Review❗️<a href='https://techblock.club/?p=3061'> link</a>
 
-👉🏽Cybersecurity attacks on mobile, IoT proliferate: Will 5G make it better?❗️<a href='https://techblock.club/?p=3043'> link</a>
+👉🏽Nvidia unboxes the RTX 2080 Ti Cyberpunk 2077 Edition❗️<a href='https://techblock.club/?p=3063'> link</a>
 
-👉🏿Lenovo adds nine new laptops to its ThinkPad lineup❗️<a href='https://techblock.club/?p=3045'> link</a>
+👉🏿This demo of 100x Space Zoom on the Galaxy S20 Ultra just blew my mind❗️<a href='https://techblock.club/?p=3065'> link</a>
 
-👉Rainbow Six Siege sets new Steam record 4 years after launch❗️<a href='https://techblock.club/?p=3047'> link</a>
+👉Oppo confirms that the flagship Find X2 will launch on March 6 w/ 120Hz '3K' display❗️<a href='https://techblock.club/?p=3067'> link</a>
 
-👉🏽Realme Announces X50 Pro 5G Phone With Snapdragon 865 Processor❗️<a href='https://techblock.club/?p=3049'> link</a>
+👉🏽Level up your battlestation in Amazon's 24-hour PC gaming gear blowout❗️<a href='https://techblock.club/?p=3069'> link</a>
 
-👉🏿Berners-Lee's Solid project: Schneier joins team to give you back control over data❗️<a href='https://techblock.club/?p=3051'> link</a>
+👉🏿NZXT launches H1 mini-ITX case that looks like an Xbox Series X❗️<a href='https://techblock.club/?p=3071'> link</a>
 
