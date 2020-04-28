@@ -1,20 +1,20 @@
 <b>Technology NEWS on Tuesday, April 28th, 2020</b> 📡📡📡 
 
-👉Microsoft Teams Vulnerability Could Have Let Attackers Compromise Accounts Using Links, GIFs❗️<a href='https://techblock.club/?p=4405'> link</a>
+👉Despite an unassuming nature, iPhone SE is the best deal in tech❗️<a href='https://techblock.club/?p=4429'> link</a>
 
-👉🏽Deadly Premonition 2 gets July 10 release date on Nintendo Switch❗️<a href='https://techblock.club/?p=4407'> link</a>
+👉🏽'Pokémon Sword and Shield' Max Raid Update Adds Rotom and More Competitive Pokémon❗️<a href='https://techblock.club/?p=4431'> link</a>
 
-👉🏿Coronavirus 'may be FAR deadlier than we fear – killing eight times more patients than official death toll shows'❗️<a href='https://techblock.club/?p=4409'> link</a>
+👉🏿Indian Smartphone Market Slowed Down by COVID Crisis in Q1 2020❗️<a href='https://techblock.club/?p=4433'> link</a>
 
-👉Nintendo 3DS and Wii U eShops will close across 42 countries❗️<a href='https://techblock.club/?p=4411'> link</a>
+👉Cyberpunk 2077: A Major Announcement, Sharing Info About Hot Shooters, Gameplay, And Other Locations!❗️<a href='https://techblock.club/?p=4435'> link</a>
 
-👉🏽MIT Conduct-A-Bot system controls a drone using muscle signals❗️<a href='https://techblock.club/?p=4413'> link</a>
+👉🏽The Invasion is on Once Destroy All Humans Returns This Summer❗️<a href='https://techblock.club/?p=4437'> link</a>
 
-👉🏿PUBG Mobile Lite 0.17.0 beta is now live, brings Payload mode, Falcon companion and more❗️<a href='https://techblock.club/?p=4415'> link</a>
+👉🏿Save $20 On The Amazon Echo Dot With Clock❗️<a href='https://techblock.club/?p=4439'> link</a>
 
-👉Mortal Kombat Movie: 40 Kool Easter Eggs To Check Out In The Klassic '90s Game Adaptation❗️<a href='https://techblock.club/?p=4417'> link</a>
+👉OK, Google: Pixel Buds 2 are the real deal❗️<a href='https://techblock.club/?p=4441'> link</a>
 
-👉🏽Hulu app crashing for iPhone, iPad, Apple TV users❗️<a href='https://techblock.club/?p=4419'> link</a>
+👉🏽Tips For Playing Gears Tactics❗️<a href='https://techblock.club/?p=4443'> link</a>
 
-👉🏿Microsoft's Remote Work Revenue Could Help Cushion Coronavirus Impacts, Analysts Say❗️<a href='https://techblock.club/?p=4421'> link</a>
+👉🏿A leap in using silicon for battery anodes❗️<a href='https://techblock.club/?p=4445'> link</a>
 
