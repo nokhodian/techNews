@@ -1,20 +1,20 @@
-<b>Technology NEWS on Wednesday, February 26th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Tuesday, April 28th, 2020</b> 📡📡📡 
 
-👉CD Projekt RED and PUBG Corp. out of PAX East over coronavirus concerns❗️<a href='https://techblock.club/?p=3076'> link</a>
+👉Microsoft Teams Vulnerability Could Have Let Attackers Compromise Accounts Using Links, GIFs❗️<a href='https://techblock.club/?p=4325'> link</a>
 
-👉🏽Samsung Galaxy S20 Ultra Review: A New Standard Is Set❗️<a href='https://techblock.club/?p=3078'> link</a>
+👉🏽Deadly Premonition 2 gets July 10 release date on Nintendo Switch❗️<a href='https://techblock.club/?p=4327'> link</a>
 
-👉🏿Kr00k Bug in Broadcom, Cypress WiFi Chips Leaks Sensitive Info❗️<a href='https://techblock.club/?p=3080'> link</a>
+👉🏿Coronavirus 'may be FAR deadlier than we fear – killing eight times more patients than official death toll shows'❗️<a href='https://techblock.club/?p=4329'> link</a>
 
-👉LG V60 hands-on: 5G dual-screen phone takes on Galaxy S20❗️<a href='https://techblock.club/?p=3082'> link</a>
+👉Nintendo 3DS and Wii U eShops will close across 42 countries❗️<a href='https://techblock.club/?p=4331'> link</a>
 
-👉🏽Bayonetta studio PlatinumGames goes it alone with new independent project❗️<a href='https://techblock.club/?p=3084'> link</a>
+👉🏽MIT Conduct-A-Bot system controls a drone using muscle signals❗️<a href='https://techblock.club/?p=4333'> link</a>
 
-👉🏿New fitness system Tempo judges your workout form to help you get better❗️<a href='https://techblock.club/?p=3086'> link</a>
+👉🏿PUBG Mobile Lite 0.17.0 beta is now live, brings Payload mode, Falcon companion and more❗️<a href='https://techblock.club/?p=4335'> link</a>
 
-👉Rumor: PC Version of Horizon Zero Dawn Appears on an Amazon Listing❗️<a href='https://techblock.club/?p=3088'> link</a>
+👉Mortal Kombat Movie: 40 Kool Easter Eggs To Check Out In The Klassic '90s Game Adaptation❗️<a href='https://techblock.club/?p=4337'> link</a>
 
-👉🏽Huawei P40 saved? Google asks US to lift ban❗️<a href='https://techblock.club/?p=3090'> link</a>
+👉🏽Hulu app crashing for iPhone, iPad, Apple TV users❗️<a href='https://techblock.club/?p=4339'> link</a>
 
-👉🏿Roku Stick+ vs. Fire TV Stick 4K deals: Both are down to the lowest prices of 2020❗️<a href='https://techblock.club/?p=3092'> link</a>
+👉🏿Microsoft's Remote Work Revenue Could Help Cushion Coronavirus Impacts, Analysts Say❗️<a href='https://techblock.club/?p=4341'> link</a>
 
