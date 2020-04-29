@@ -1,20 +1,20 @@
-<b>Technology NEWS on Tuesday, April 28th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Wednesday, April 29th, 2020</b> 📡📡📡 
 
-👉Despite an unassuming nature, iPhone SE is the best deal in tech❗️<a href='https://techblock.club/?p=4429'> link</a>
+👉English hospital COVID-19 death toll rises 445 to 19746❗️<a href='https://techblock.club/?p=4449'> link</a>
 
-👉🏽'Pokémon Sword and Shield' Max Raid Update Adds Rotom and More Competitive Pokémon❗️<a href='https://techblock.club/?p=4431'> link</a>
+👉🏽Sony Xperia Mark Two: 5G Future, Features And Highlights❗️<a href='https://techblock.club/?p=4451'> link</a>
 
-👉🏿Indian Smartphone Market Slowed Down by COVID Crisis in Q1 2020❗️<a href='https://techblock.club/?p=4433'> link</a>
+👉🏿Fortnite Update 12.50: Party Royale Event, Nerfs, and Possible Hints About Season 3❗️<a href='https://techblock.club/?p=4453'> link</a>
 
-👉Cyberpunk 2077: A Major Announcement, Sharing Info About Hot Shooters, Gameplay, And Other Locations!❗️<a href='https://techblock.club/?p=4435'> link</a>
+👉OnePlus 8 and 8 Pro are killer flagship phones. Here's how to buy them today❗️<a href='https://techblock.club/?p=4455'> link</a>
 
-👉🏽The Invasion is on Once Destroy All Humans Returns This Summer❗️<a href='https://techblock.club/?p=4437'> link</a>
+👉🏽Get two Google Nest Hubs for the price of one, again❗️<a href='https://techblock.club/?p=4457'> link</a>
 
-👉🏿Save $20 On The Amazon Echo Dot With Clock❗️<a href='https://techblock.club/?p=4439'> link</a>
+👉🏿Cliff Bleszinski Working On New IP, Not Sure If It'll Be A Game❗️<a href='https://techblock.club/?p=4459'> link</a>
 
-👉OK, Google: Pixel Buds 2 are the real deal❗️<a href='https://techblock.club/?p=4441'> link</a>
+👉Drifting simulator DRIFT21 announced, heading into Steam Early Access next week❗️<a href='https://techblock.club/?p=4461'> link</a>
 
-👉🏽Tips For Playing Gears Tactics❗️<a href='https://techblock.club/?p=4443'> link</a>
+👉🏽Lenovo M2 Electric Scooter With 30km Range, 25kmph Top Speed Launched: Price, Features❗️<a href='https://techblock.club/?p=4463'> link</a>
 
-👉🏿A leap in using silicon for battery anodes❗️<a href='https://techblock.club/?p=4445'> link</a>
+👉🏿Get 7 free days of Nintendo Switch Online, even if you've already had a trial❗️<a href='https://techblock.club/?p=4465'> link</a>
 
