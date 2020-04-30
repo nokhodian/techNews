@@ -1,20 +1,20 @@
-<b>Technology NEWS on Wednesday, April 29th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Thursday, April 30th, 2020</b> 📡📡📡 
 
-👉English hospital COVID-19 death toll rises 445 to 19746❗️<a href='https://techblock.club/?p=4449'> link</a>
+👉Google Pixel 4a: Pricing, release date, specs, images, and everything else we know❗️<a href='https://techblock.club/?p=4469'> link</a>
 
-👉🏽Sony Xperia Mark Two: 5G Future, Features And Highlights❗️<a href='https://techblock.club/?p=4451'> link</a>
+👉🏽PEGI Ratings for Grand Theft Auto and Grand Theft Auto 2 Emerge for PlayStation 3❗️<a href='https://techblock.club/?p=4471'> link</a>
 
-👉🏿Fortnite Update 12.50: Party Royale Event, Nerfs, and Possible Hints About Season 3❗️<a href='https://techblock.club/?p=4453'> link</a>
+👉🏿Apple, Google Roll Out Beta Versions of Contact-Tracing Tools for App Developers❗️<a href='https://techblock.club/?p=4473'> link</a>
 
-👉OnePlus 8 and 8 Pro are killer flagship phones. Here's how to buy them today❗️<a href='https://techblock.club/?p=4455'> link</a>
+👉Ys: Memories of Celceta PS4 Remaster Gets Western Release Date in June❗️<a href='https://techblock.club/?p=4475'> link</a>
 
-👉🏽Get two Google Nest Hubs for the price of one, again❗️<a href='https://techblock.club/?p=4457'> link</a>
+👉🏽Gears Tactics review – brains meet brawn in strategic spin-off❗️<a href='https://techblock.club/?p=4477'> link</a>
 
-👉🏿Cliff Bleszinski Working On New IP, Not Sure If It'll Be A Game❗️<a href='https://techblock.club/?p=4459'> link</a>
+👉🏿Sony Enhances Portfolio With Multiple New Camera, Monitor, HDR Additions❗️<a href='https://techblock.club/?p=4479'> link</a>
 
-👉Drifting simulator DRIFT21 announced, heading into Steam Early Access next week❗️<a href='https://techblock.club/?p=4461'> link</a>
+👉Call Of Duty: Modern Warfare File Size Keeps Growing, And Players Aren't Happy❗️<a href='https://techblock.club/?p=4481'> link</a>
 
-👉🏽Lenovo M2 Electric Scooter With 30km Range, 25kmph Top Speed Launched: Price, Features❗️<a href='https://techblock.club/?p=4463'> link</a>
+👉🏽WHO 'urgently' investigating link between coronavirus and syndrome that affects young kids❗️<a href='https://techblock.club/?p=4483'> link</a>
 
-👉🏿Get 7 free days of Nintendo Switch Online, even if you've already had a trial❗️<a href='https://techblock.club/?p=4465'> link</a>
+👉🏿Former Battlefield Devs' Intriguing Monster Game Put On Indefinite Hold❗️<a href='https://techblock.club/?p=4485'> link</a>
 
