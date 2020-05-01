@@ -1,20 +1,20 @@
-<b>Technology NEWS on Thursday, April 30th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Friday, May 1st, 2020</b> 📡📡📡 
 
-👉Google Pixel 4a: Pricing, release date, specs, images, and everything else we know❗️<a href='https://techblock.club/?p=4469'> link</a>
+👉Samsung Galaxy Z Flip cameras as good as iPhone XS Max, says DxOMark❗️<a href='https://techblock.club/?p=4489'> link</a>
 
-👉🏽PEGI Ratings for Grand Theft Auto and Grand Theft Auto 2 Emerge for PlayStation 3❗️<a href='https://techblock.club/?p=4471'> link</a>
+👉🏽Riot talks Legends of Runeterra, microtransactions and expanding the League of Legends world❗️<a href='https://techblock.club/?p=4491'> link</a>
 
-👉🏿Apple, Google Roll Out Beta Versions of Contact-Tracing Tools for App Developers❗️<a href='https://techblock.club/?p=4473'> link</a>
+👉🏿UPDATE: Media Molecule Unleashes Free Demo for Dreams on PlayStation Store❗️<a href='https://techblock.club/?p=4493'> link</a>
 
-👉Ys: Memories of Celceta PS4 Remaster Gets Western Release Date in June❗️<a href='https://techblock.club/?p=4475'> link</a>
+👉Xiaomi phones send search and browsing data to China, researcher says❗️<a href='https://techblock.club/?p=4495'> link</a>
 
-👉🏽Gears Tactics review – brains meet brawn in strategic spin-off❗️<a href='https://techblock.club/?p=4477'> link</a>
+👉🏽Deals: Verizon Offers Savings Across the AirPods Lineup, Including AirPods Pro for $225❗️<a href='https://techblock.club/?p=4497'> link</a>
 
-👉🏿Sony Enhances Portfolio With Multiple New Camera, Monitor, HDR Additions❗️<a href='https://techblock.club/?p=4479'> link</a>
+👉🏿Modern Warfare 2 Remastered is out now on Battle.net❗️<a href='https://techblock.club/?p=4499'> link</a>
 
-👉Call Of Duty: Modern Warfare File Size Keeps Growing, And Players Aren't Happy❗️<a href='https://techblock.club/?p=4481'> link</a>
+👉Assassin's Creed Valhalla Details: First Screenshots, Story, Trailer, PS5/Xbox Series X, And More❗️<a href='https://techblock.club/?p=4501'> link</a>
 
-👉🏽WHO 'urgently' investigating link between coronavirus and syndrome that affects young kids❗️<a href='https://techblock.club/?p=4483'> link</a>
+👉🏽Plex, the Build-Your-Own-Netflix Streaming Service, Is Now Streaming Crackle for Free❗️<a href='https://techblock.club/?p=4503'> link</a>
 
-👉🏿Former Battlefield Devs' Intriguing Monster Game Put On Indefinite Hold❗️<a href='https://techblock.club/?p=4485'> link</a>
+👉🏿A new Apple is emerging from the coronavirus pandemic❗️<a href='https://techblock.club/?p=4505'> link</a>
 
