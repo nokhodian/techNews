@@ -1,20 +1,20 @@
-<b>Technology NEWS on Friday, May 1st, 2020</b> 📡📡📡 
+<b>Technology NEWS on Saturday, May 2nd, 2020</b> 📡📡📡 
 
-👉Samsung Galaxy Z Flip cameras as good as iPhone XS Max, says DxOMark❗️<a href='https://techblock.club/?p=4489'> link</a>
+👉Fortnite Is Giving Players Another Chance to See the Diplo Concert❗️<a href='https://techblock.club/?p=4509'> link</a>
 
-👉🏽Riot talks Legends of Runeterra, microtransactions and expanding the League of Legends world❗️<a href='https://techblock.club/?p=4491'> link</a>
+👉🏽Microsoft may have delayed Windows 10 May 2020 Update to fix a zero-day exploit❗️<a href='https://techblock.club/?p=4511'> link</a>
 
-👉🏿UPDATE: Media Molecule Unleashes Free Demo for Dreams on PlayStation Store❗️<a href='https://techblock.club/?p=4493'> link</a>
+👉🏿Evo 2020 Canceled, Will Be Replaced With Online Event❗️<a href='https://techblock.club/?p=4513'> link</a>
 
-👉Xiaomi phones send search and browsing data to China, researcher says❗️<a href='https://techblock.club/?p=4495'> link</a>
+👉Top Stories: iPhone SE Camera Comparison, iPhone 12 Pricing Rumor, Apple Earnings, iOS 13.5 Beta, and More❗️<a href='https://techblock.club/?p=4515'> link</a>
 
-👉🏽Deals: Verizon Offers Savings Across the AirPods Lineup, Including AirPods Pro for $225❗️<a href='https://techblock.club/?p=4497'> link</a>
+👉🏽Microsoft Edge getting improved security, work at home features❗️<a href='https://techblock.club/?p=4517'> link</a>
 
-👉🏿Modern Warfare 2 Remastered is out now on Battle.net❗️<a href='https://techblock.club/?p=4499'> link</a>
+👉🏿Equity Shot: 1% is the new “growth”❗️<a href='https://techblock.club/?p=4519'> link</a>
 
-👉Assassin's Creed Valhalla Details: First Screenshots, Story, Trailer, PS5/Xbox Series X, And More❗️<a href='https://techblock.club/?p=4501'> link</a>
+👉Xiaomi Redmi K30i 5G to feature 48-megapixel rear camera❗️<a href='https://techblock.club/?p=4521'> link</a>
 
-👉🏽Plex, the Build-Your-Own-Netflix Streaming Service, Is Now Streaming Crackle for Free❗️<a href='https://techblock.club/?p=4503'> link</a>
+👉🏽Redmi K30i smartphone may launch with 48MP camera, listed on Tenna❗️<a href='https://techblock.club/?p=4523'> link</a>
 
-👉🏿A new Apple is emerging from the coronavirus pandemic❗️<a href='https://techblock.club/?p=4505'> link</a>
+👉🏿Predator: Hunting Grounds Review, Gameplay Videos and Multiplayer Impressions❗️<a href='https://techblock.club/?p=4525'> link</a>
 
