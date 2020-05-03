@@ -1,20 +1,20 @@
-<b>Technology NEWS on Saturday, May 2nd, 2020</b> 📡📡📡 
+<b>Technology NEWS on Sunday, May 3rd, 2020</b> 📡📡📡 
 
-👉Fortnite Is Giving Players Another Chance to See the Diplo Concert❗️<a href='https://techblock.club/?p=4509'> link</a>
+👉How To Use Walmart's New 2-Hour Home Express Delivery Service For Food, Electronics & More❗️<a href='https://techblock.club/?p=4529'> link</a>
 
-👉🏽Microsoft may have delayed Windows 10 May 2020 Update to fix a zero-day exploit❗️<a href='https://techblock.club/?p=4511'> link</a>
+👉🏽Google Messages Tops 1 Billion Installs on Android❗️<a href='https://techblock.club/?p=4531'> link</a>
 
-👉🏿Evo 2020 Canceled, Will Be Replaced With Online Event❗️<a href='https://techblock.club/?p=4513'> link</a>
+👉🏿Resident Evil 4 Remake – 15 Things It Needs To Do❗️<a href='https://techblock.club/?p=4533'> link</a>
 
-👉Top Stories: iPhone SE Camera Comparison, iPhone 12 Pricing Rumor, Apple Earnings, iOS 13.5 Beta, and More❗️<a href='https://techblock.club/?p=4515'> link</a>
+👉World Of Warcraft Shadowlands Expansion Still On Track For This Year❗️<a href='https://techblock.club/?p=4535'> link</a>
 
-👉🏽Microsoft Edge getting improved security, work at home features❗️<a href='https://techblock.club/?p=4517'> link</a>
+👉🏽OnePlus Z rumored to take on Google Pixel 5 w/ Snapdragon 765G processor❗️<a href='https://techblock.club/?p=4537'> link</a>
 
-👉🏿Equity Shot: 1% is the new “growth”❗️<a href='https://techblock.club/?p=4519'> link</a>
+👉🏿Translate your thoughts and ideas into readable diagrams [Deals]❗️<a href='https://techblock.club/?p=4539'> link</a>
 
-👉Xiaomi Redmi K30i 5G to feature 48-megapixel rear camera❗️<a href='https://techblock.club/?p=4521'> link</a>
+👉Assassin's Creed Valhalla Has Male And Female Protagonist Options❗️<a href='https://techblock.club/?p=4541'> link</a>
 
-👉🏽Redmi K30i smartphone may launch with 48MP camera, listed on Tenna❗️<a href='https://techblock.club/?p=4523'> link</a>
+👉🏽The Last of Us Part 2 May Have Been Leaked By Hackers – Rumour❗️<a href='https://techblock.club/?p=4543'> link</a>
 
-👉🏿Predator: Hunting Grounds Review, Gameplay Videos and Multiplayer Impressions❗️<a href='https://techblock.club/?p=4525'> link</a>
+👉🏿New Sonos Playbar Leak Hints at Redesign❗️<a href='https://techblock.club/?p=4545'> link</a>
 
