@@ -1,20 +1,20 @@
-<b>Technology NEWS on Monday, May 4th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Tuesday, May 5th, 2020</b> 📡📡📡 
 
-👉Fortnite Chapter 2 Season 3: Release Date, Map Changes, Battle Pass, Leaks & More❗️<a href='https://techblock.club/?p=4549'> link</a>
+👉TCL Roku TV deal: One of the best 65-inch TVs you can buy is now $999❗️<a href='https://techblock.club/?p=4569'> link</a>
 
-👉🏽Xiaomi EU releases MIUI 12 global beta for Mi, Redmi phones❗️<a href='https://techblock.club/?p=4551'> link</a>
+👉🏽Manhart's Audi RS Q8 makes a statement with bold look and 662kW❗️<a href='https://techblock.club/?p=4571'> link</a>
 
-👉🏿New Microsoft Teams Password Hack a Threat To 75-Million Users❗️<a href='https://techblock.club/?p=4553'> link</a>
+👉🏿Microsoft reveals Xbox Series X boot screen, confirms July event for Halo Infinite and more❗️<a href='https://techblock.club/?p=4573'> link</a>
 
-👉Just one more thing: Windows 10 May 2020 Update hits Release Preview❗️<a href='https://techblock.club/?p=4555'> link</a>
+👉Huawei and Honor AppGallery gets MapmyIndia Move app onboard for Indian users❗️<a href='https://techblock.club/?p=4575'> link</a>
 
-👉🏽Apple to reopen first retail store in Europe May 5 since pandemic shutdown❗️<a href='https://techblock.club/?p=4557'> link</a>
+👉🏽Xenoblade Chronicles: Definitive Edition Main Characters Trailer❗️<a href='https://techblock.club/?p=4577'> link</a>
 
-👉🏿Zoom vs Microsoft Teams vs Google Meet: How do they compare?❗️<a href='https://techblock.club/?p=4559'> link</a>
+👉🏿New Galaxy Fold 2 Concept Includes Rotating Cameras, Three Displays❗️<a href='https://techblock.club/?p=4579'> link</a>
 
-👉New 13-Inch MacBook Pro With Four Thunderbolt 3 Ports is Compatible With Apple's Pro Display XDR❗️<a href='https://techblock.club/?p=4561'> link</a>
+👉Should Investors Follow the Smart Money and Buy Nintendo Stock?❗️<a href='https://techblock.club/?p=4581'> link</a>
 
-👉🏽Is this the first ever foldable phone deal? Buy one Motorola Razr, get another free❗️<a href='https://techblock.club/?p=4563'> link</a>
+👉🏽Mortal Kombat 11 Story DLC Teased With The Return Of Shang Tsung❗️<a href='https://techblock.club/?p=4583'> link</a>
 
-👉🏿Understanding Intel Comet Lake-S: what does it really offer?❗️<a href='https://techblock.club/?p=4565'> link</a>
+👉🏿PS5 'instant' demos is a killer feature the Xbox Series X doesn't have (rumor)❗️<a href='https://techblock.club/?p=4585'> link</a>
 
