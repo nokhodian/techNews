@@ -1,20 +1,20 @@
-<b>Technology NEWS on Tuesday, May 5th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Wednesday, May 6th, 2020</b> 📡📡📡 
 
-👉TCL Roku TV deal: One of the best 65-inch TVs you can buy is now $999❗️<a href='https://techblock.club/?p=4569'> link</a>
+👉Google sets June 3 date for Android 11 'Beta Launch Show' with yet-to-leak surprises❗️<a href='https://techblock.club/?p=4589'> link</a>
 
-👉🏽Manhart's Audi RS Q8 makes a statement with bold look and 662kW❗️<a href='https://techblock.club/?p=4571'> link</a>
+👉🏽Apple and Lamborghini Team Up to Let iPhone Users View the New Huracán EVO RWD Spyder in Augmented Reality❗️<a href='https://techblock.club/?p=4591'> link</a>
 
-👉🏿Microsoft reveals Xbox Series X boot screen, confirms July event for Halo Infinite and more❗️<a href='https://techblock.club/?p=4573'> link</a>
+👉🏿This top VPN has a nifty new feature to circumvent censorship❗️<a href='https://techblock.club/?p=4593'> link</a>
 
-👉Huawei and Honor AppGallery gets MapmyIndia Move app onboard for Indian users❗️<a href='https://techblock.club/?p=4575'> link</a>
+👉Give Your Video Chats a Boost With This $35 Webcam App❗️<a href='https://techblock.club/?p=4595'> link</a>
 
-👉🏽Xenoblade Chronicles: Definitive Edition Main Characters Trailer❗️<a href='https://techblock.club/?p=4577'> link</a>
+👉🏽Another report says Google will switch to Android TV for its next streaming device❗️<a href='https://techblock.club/?p=4597'> link</a>
 
-👉🏿New Galaxy Fold 2 Concept Includes Rotating Cameras, Three Displays❗️<a href='https://techblock.club/?p=4579'> link</a>
+👉🏿Grab Two Ember Temperature Controlled Mugs For Just $129❗️<a href='https://techblock.club/?p=4599'> link</a>
 
-👉Should Investors Follow the Smart Money and Buy Nintendo Stock?❗️<a href='https://techblock.club/?p=4581'> link</a>
+👉Poco F2 Launch Expected on May 12 as Company Sends Out Invites: Report❗️<a href='https://techblock.club/?p=4601'> link</a>
 
-👉🏽Mortal Kombat 11 Story DLC Teased With The Return Of Shang Tsung❗️<a href='https://techblock.club/?p=4583'> link</a>
+👉🏽The Last of Us Part II revs up for long-awaited release with dramatic new trailer❗️<a href='https://techblock.club/?p=4603'> link</a>
 
-👉🏿PS5 'instant' demos is a killer feature the Xbox Series X doesn't have (rumor)❗️<a href='https://techblock.club/?p=4585'> link</a>
+👉🏿Zipp goes wider with all-new 303 S wheelset❗️<a href='https://techblock.club/?p=4605'> link</a>
 
