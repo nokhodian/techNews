@@ -1,20 +1,20 @@
-<b>Technology NEWS on Wednesday, May 6th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Thursday, May 7th, 2020</b> 📡📡📡 
 
-👉Google sets June 3 date for Android 11 'Beta Launch Show' with yet-to-leak surprises❗️<a href='https://techblock.club/?p=4589'> link</a>
+👉Wink users revolt following its sudden shift to a subscription model❗️<a href='https://techblock.club/?p=4609'> link</a>
 
-👉🏽Apple and Lamborghini Team Up to Let iPhone Users View the New Huracán EVO RWD Spyder in Augmented Reality❗️<a href='https://techblock.club/?p=4591'> link</a>
+👉🏽Google's Pixel 4 and Pixel 4XL are $350 off at Best Buy❗️<a href='https://techblock.club/?p=4611'> link</a>
 
-👉🏿This top VPN has a nifty new feature to circumvent censorship❗️<a href='https://techblock.club/?p=4593'> link</a>
+👉🏿Huge Zoom update kills 'Zoombombing' — what you need to know❗️<a href='https://techblock.club/?p=4613'> link</a>
 
-👉Give Your Video Chats a Boost With This $35 Webcam App❗️<a href='https://techblock.club/?p=4595'> link</a>
+👉Halo Co-Creator's Sci-Fi Shooter Disintegration Arrives on June 16th❗️<a href='https://techblock.club/?p=4615'> link</a>
 
-👉🏽Another report says Google will switch to Android TV for its next streaming device❗️<a href='https://techblock.club/?p=4597'> link</a>
+👉🏽HONOR 9X Pro Review – More For Less❗️<a href='https://techblock.club/?p=4617'> link</a>
 
-👉🏿Grab Two Ember Temperature Controlled Mugs For Just $129❗️<a href='https://techblock.club/?p=4599'> link</a>
+👉🏿Uber leads $170 million Lime investment, offloads Jump to Lime❗️<a href='https://techblock.club/?p=4619'> link</a>
 
-👉Poco F2 Launch Expected on May 12 as Company Sends Out Invites: Report❗️<a href='https://techblock.club/?p=4601'> link</a>
+👉Harbr emerges from stealth to help build online data marketplaces❗️<a href='https://techblock.club/?p=4621'> link</a>
 
-👉🏽The Last of Us Part II revs up for long-awaited release with dramatic new trailer❗️<a href='https://techblock.club/?p=4603'> link</a>
+👉🏽Sportradar tapped for Activision Blizzard's franchised leagues❗️<a href='https://techblock.club/?p=4623'> link</a>
 
-👉🏿Zipp goes wider with all-new 303 S wheelset❗️<a href='https://techblock.club/?p=4605'> link</a>
+👉🏿Hub Security raises $5M Series A for its cryptography platform❗️<a href='https://techblock.club/?p=4625'> link</a>
 
