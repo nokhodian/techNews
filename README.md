@@ -1,20 +1,20 @@
-<b>Technology NEWS on Thursday, May 7th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Friday, May 8th, 2020</b> 📡📡📡 
 
-👉Wink users revolt following its sudden shift to a subscription model❗️<a href='https://techblock.club/?p=4609'> link</a>
+👉'Breakthrough' COVID-19 Tests Are Currently Cheap, Fast—and Not Very Accurate❗️<a href='https://techblock.club/?p=4629'> link</a>
 
-👉🏽Google's Pixel 4 and Pixel 4XL are $350 off at Best Buy❗️<a href='https://techblock.club/?p=4611'> link</a>
+👉🏽Apple Arcade's Latest Game Combines Turn-Based RPG With Strategy Board Game❗️<a href='https://techblock.club/?p=4631'> link</a>
 
-👉🏿Huge Zoom update kills 'Zoombombing' — what you need to know❗️<a href='https://techblock.club/?p=4613'> link</a>
+👉🏿Animal Crossing's Fake Artwork Is Doing Some Spooky Stuff❗️<a href='https://techblock.club/?p=4633'> link</a>
 
-👉Halo Co-Creator's Sci-Fi Shooter Disintegration Arrives on June 16th❗️<a href='https://techblock.club/?p=4615'> link</a>
+👉Fortnite Party Royale Event Tonight: Deadmau5, Steve Aoki, And More❗️<a href='https://techblock.club/?p=4635'> link</a>
 
-👉🏽HONOR 9X Pro Review – More For Less❗️<a href='https://techblock.club/?p=4617'> link</a>
+👉🏽Sony Xperia 10 & Xperia 10 Plus Gets Android 10 Update❗️<a href='https://techblock.club/?p=4637'> link</a>
 
-👉🏿Uber leads $170 million Lime investment, offloads Jump to Lime❗️<a href='https://techblock.club/?p=4619'> link</a>
+👉🏿Apple Watch Series 5 gets $100 price cut at Amazon, matching record low prices❗️<a href='https://techblock.club/?p=4639'> link</a>
 
-👉Harbr emerges from stealth to help build online data marketplaces❗️<a href='https://techblock.club/?p=4621'> link</a>
+👉How to block someone on WhatsApp❗️<a href='https://techblock.club/?p=4641'> link</a>
 
-👉🏽Sportradar tapped for Activision Blizzard's franchised leagues❗️<a href='https://techblock.club/?p=4623'> link</a>
+👉🏽Google Lens Can Quickly Copy-Paste Handwritten Notes Between Devices❗️<a href='https://techblock.club/?p=4643'> link</a>
 
-👉🏿Hub Security raises $5M Series A for its cryptography platform❗️<a href='https://techblock.club/?p=4625'> link</a>
+👉🏿Tokyo Game Show 2020 cancels physical event amid coronavirus pandemic❗️<a href='https://techblock.club/?p=4645'> link</a>
 
