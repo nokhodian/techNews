@@ -1,20 +1,20 @@
-<b>Technology NEWS on Friday, May 8th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Saturday, May 9th, 2020</b> 📡📡📡 
 
-👉'Breakthrough' COVID-19 Tests Are Currently Cheap, Fast—and Not Very Accurate❗️<a href='https://techblock.club/?p=4629'> link</a>
+👉Indians don't care about megapixels while buying phones: Survey❗️<a href='https://techblock.club/?p=4649'> link</a>
 
-👉🏽Apple Arcade's Latest Game Combines Turn-Based RPG With Strategy Board Game❗️<a href='https://techblock.club/?p=4631'> link</a>
+👉🏽Galaxy A51 review: Samsung beats the iPhone SE in these important ways❗️<a href='https://techblock.club/?p=4651'> link</a>
 
-👉🏿Animal Crossing's Fake Artwork Is Doing Some Spooky Stuff❗️<a href='https://techblock.club/?p=4633'> link</a>
+👉🏿Top Stories: New 13" MacBook Pro, WWDC Starts June 22, AirPods Pro Firmware Update, and More❗️<a href='https://techblock.club/?p=4653'> link</a>
 
-👉Fortnite Party Royale Event Tonight: Deadmau5, Steve Aoki, And More❗️<a href='https://techblock.club/?p=4635'> link</a>
+👉Google Pixel Buds wireless earbuds will get feature drops❗️<a href='https://techblock.club/?p=4655'> link</a>
 
-👉🏽Sony Xperia 10 & Xperia 10 Plus Gets Android 10 Update❗️<a href='https://techblock.club/?p=4637'> link</a>
+👉🏽Realme X3 SuperZoom Might Launch In Indian Market Soon❗️<a href='https://techblock.club/?p=4657'> link</a>
 
-👉🏿Apple Watch Series 5 gets $100 price cut at Amazon, matching record low prices❗️<a href='https://techblock.club/?p=4639'> link</a>
+👉🏿Facebook dark mode now available on desktop — how to get it now❗️<a href='https://techblock.club/?p=4659'> link</a>
 
-👉How to block someone on WhatsApp❗️<a href='https://techblock.club/?p=4641'> link</a>
+👉Driven by India, Zoom is the most downloaded app in the world: Sensor Tower❗️<a href='https://techblock.club/?p=4661'> link</a>
 
-👉🏽Google Lens Can Quickly Copy-Paste Handwritten Notes Between Devices❗️<a href='https://techblock.club/?p=4643'> link</a>
+👉🏽WhatsApp Web to get Facebook Messenger Rooms shortcuts; Here is the first look at the feature❗️<a href='https://techblock.club/?p=4663'> link</a>
 
-👉🏿Tokyo Game Show 2020 cancels physical event amid coronavirus pandemic❗️<a href='https://techblock.club/?p=4645'> link</a>
+👉🏿Samsung extends pre-book offers till May 17 as orders surge❗️<a href='https://techblock.club/?p=4665'> link</a>
 
