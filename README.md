@@ -1,20 +1,20 @@
-<b>Technology NEWS on Saturday, May 9th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Sunday, May 10th, 2020</b> 📡📡📡 
 
-👉Indians don't care about megapixels while buying phones: Survey❗️<a href='https://techblock.club/?p=4649'> link</a>
+👉Diablo II Remaster Reportedly in Development at Crash Bandicoot N. Sane Trilogy Studio, Vicarious Visions❗️<a href='https://techblock.club/?p=4669'> link</a>
 
-👉🏽Galaxy A51 review: Samsung beats the iPhone SE in these important ways❗️<a href='https://techblock.club/?p=4651'> link</a>
+👉🏽The Last Of Us 2's Dog Violence Feature Written By GameStop, Not Devs❗️<a href='https://techblock.club/?p=4671'> link</a>
 
-👉🏿Top Stories: New 13" MacBook Pro, WWDC Starts June 22, AirPods Pro Firmware Update, and More❗️<a href='https://techblock.club/?p=4653'> link</a>
+👉🏿5G 'iPhone 12 Pro' could have 120Hz ProMotion display❗️<a href='https://techblock.club/?p=4673'> link</a>
 
-👉Google Pixel Buds wireless earbuds will get feature drops❗️<a href='https://techblock.club/?p=4655'> link</a>
+👉Air Force's mysterious X-37B space plane heads back to orbit May 16th❗️<a href='https://techblock.club/?p=4675'> link</a>
 
-👉🏽Realme X3 SuperZoom Might Launch In Indian Market Soon❗️<a href='https://techblock.club/?p=4657'> link</a>
+👉🏽Vivo V19 smartphone India launch announced to take place on May 12❗️<a href='https://techblock.club/?p=4677'> link</a>
 
-👉🏿Facebook dark mode now available on desktop — how to get it now❗️<a href='https://techblock.club/?p=4659'> link</a>
+👉🏿Get An $80 Gaming Mouse For Free With Purchase Of A Fantastic Gaming Keyboard❗️<a href='https://techblock.club/?p=4679'> link</a>
 
-👉Driven by India, Zoom is the most downloaded app in the world: Sensor Tower❗️<a href='https://techblock.club/?p=4661'> link</a>
+👉Microsoft now blocks reply-all email storms to end our inbox nightmares❗️<a href='https://techblock.club/?p=4681'> link</a>
 
-👉🏽WhatsApp Web to get Facebook Messenger Rooms shortcuts; Here is the first look at the feature❗️<a href='https://techblock.club/?p=4663'> link</a>
+👉🏽Microsoft Surface Laptop 4: Rumors, release date, price and what we want❗️<a href='https://techblock.club/?p=4683'> link</a>
 
-👉🏿Samsung extends pre-book offers till May 17 as orders surge❗️<a href='https://techblock.club/?p=4665'> link</a>
+👉🏿One month with Apple's new MacBook Air. Three annoying problems❗️<a href='https://techblock.club/?p=4685'> link</a>
 
