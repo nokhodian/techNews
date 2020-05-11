@@ -1,20 +1,20 @@
-<b>Technology NEWS on Sunday, May 10th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Monday, May 11th, 2020</b> 📡📡📡 
 
-👉Diablo II Remaster Reportedly in Development at Crash Bandicoot N. Sane Trilogy Studio, Vicarious Visions❗️<a href='https://techblock.club/?p=4669'> link</a>
+👉Sweat could power future wearable devices, say researchers❗️<a href='https://techblock.club/?p=4689'> link</a>
 
-👉🏽The Last Of Us 2's Dog Violence Feature Written By GameStop, Not Devs❗️<a href='https://techblock.club/?p=4671'> link</a>
+👉🏽A Single Game Could Make Or Break PS5's Fall Release Against Xbox Series X❗️<a href='https://techblock.club/?p=4691'> link</a>
 
-👉🏿5G 'iPhone 12 Pro' could have 120Hz ProMotion display❗️<a href='https://techblock.club/?p=4673'> link</a>
+👉🏿Rumor: Diablo II Remaster in Development, “Diablo II Resurrected”❗️<a href='https://techblock.club/?p=4693'> link</a>
 
-👉Air Force's mysterious X-37B space plane heads back to orbit May 16th❗️<a href='https://techblock.club/?p=4675'> link</a>
+👉Realme Narzo 10 vs Xiaomi Redmi Note 9 Pro vs Realme 6: Specifications, features and prices compared❗️<a href='https://techblock.club/?p=4695'> link</a>
 
-👉🏽Vivo V19 smartphone India launch announced to take place on May 12❗️<a href='https://techblock.club/?p=4677'> link</a>
+👉🏽Huawei P40 series gets camera improvements and the new voice assistant❗️<a href='https://techblock.club/?p=4697'> link</a>
 
-👉🏿Get An $80 Gaming Mouse For Free With Purchase Of A Fantastic Gaming Keyboard❗️<a href='https://techblock.club/?p=4679'> link</a>
+👉🏿14-Inch MacBook Pro Now Rumored to Launch in 2021❗️<a href='https://techblock.club/?p=4699'> link</a>
 
-👉Microsoft now blocks reply-all email storms to end our inbox nightmares❗️<a href='https://techblock.club/?p=4681'> link</a>
+👉Platinum Games apologies for faulty Wonderful 101: Remastered Switch codes❗️<a href='https://techblock.club/?p=4701'> link</a>
 
-👉🏽Microsoft Surface Laptop 4: Rumors, release date, price and what we want❗️<a href='https://techblock.club/?p=4683'> link</a>
+👉🏽It looks like Apple is developing new iCloud products and services❗️<a href='https://techblock.club/?p=4703'> link</a>
 
-👉🏿One month with Apple's new MacBook Air. Three annoying problems❗️<a href='https://techblock.club/?p=4685'> link</a>
+👉🏿Lenovo's IdeaPad Duet Chromebook is a mini Pixel Slate for $280❗️<a href='https://techblock.club/?p=4705'> link</a>
 
