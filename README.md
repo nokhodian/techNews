@@ -1,20 +1,20 @@
-<b>Technology NEWS on Tuesday, May 12th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Wednesday, May 13th, 2020</b> 📡📡📡 
 
-👉Hands on: 'USI' brings a stylus standard that works great on Chrome OS and beyond❗️<a href='https://techblock.club/?p=4709'> link</a>
+👉Kangaroo's $20 Doorbell Camera lets you keep an eye on your doorstep❗️<a href='https://techblock.club/?p=4729'> link</a>
 
-👉🏽Apple Targets Ableton Live With Logic Pro X 10.5❗️<a href='https://techblock.club/?p=4711'> link</a>
+👉🏽Pokemon-like Nexomon: Extinction Announced❗️<a href='https://techblock.club/?p=4731'> link</a>
 
-👉🏿Here's What PC Gamers Have to Say About VPNs❗️<a href='https://techblock.club/?p=4713'> link</a>
+👉🏿Sony says 'wait for PS5 sales' before comparing it to Microsoft's Xbox marketing❗️<a href='https://techblock.club/?p=4733'> link</a>
 
-👉Chinese smartphone sales up 17%, but govt stops (indirectly) revealing iPhone numbers❗️<a href='https://techblock.club/?p=4715'> link</a>
+👉New Mortal Kombat 11: Aftermath Gameplay Trailer Released❗️<a href='https://techblock.club/?p=4735'> link</a>
 
-👉🏽Ubuntu's Server Installer Was Mistakenly Leaking Encrypted Storage Passphrase To Its Log❗️<a href='https://techblock.club/?p=4717'> link</a>
+👉🏽Xenoblade Chronicles: Definitive Edition Makes An Excellent Third Impression❗️<a href='https://techblock.club/?p=4737'> link</a>
 
-👉🏿Sony's 3.1-channel HT-G700 soundbar boasts Dolby Atmos and DTS:X support❗️<a href='https://techblock.club/?p=4719'> link</a>
+👉🏿High strength steel at unprecedented levels of fracture resistance❗️<a href='https://techblock.club/?p=4739'> link</a>
 
-👉New official Scrabble app slammed for being 'tacky' and ads-heavy❗️<a href='https://techblock.club/?p=4721'> link</a>
+👉'Assassin's Creed Valhalla' Creative Director Shares Sneak Peek Of In-Game Viking Settlement❗️<a href='https://techblock.club/?p=4741'> link</a>
 
-👉🏽Tata Sky Binge+ Android TV set-top-box price slashed by Rs 2000: Check offer❗️<a href='https://techblock.club/?p=4723'> link</a>
+👉🏽Xiaomi CEO Caught Using Apple's iPhone on Social Media❗️<a href='https://techblock.club/?p=4743'> link</a>
 
-👉🏿Snapdragon 865 dominate AnTuTu's global list of best-performing smartphones for April 2020❗️<a href='https://techblock.club/?p=4725'> link</a>
+👉🏿Amazon upgrades its Fire HD 8 tablet with USB-C, more RAM, faster processor and wireless charging❗️<a href='https://techblock.club/?p=4745'> link</a>
 
