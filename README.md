@@ -1,20 +1,20 @@
-<b>Technology NEWS on Wednesday, May 13th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Thursday, May 14th, 2020</b> 📡📡📡 
 
-👉Kangaroo's $20 Doorbell Camera lets you keep an eye on your doorstep❗️<a href='https://techblock.club/?p=4729'> link</a>
+👉These incredible prices on Anker wireless speakers expire at midnight❗️<a href='https://techblock.club/?p=4749'> link</a>
 
-👉🏽Pokemon-like Nexomon: Extinction Announced❗️<a href='https://techblock.club/?p=4731'> link</a>
+👉🏽Prison Architect launches Island Bound expansion on June 11❗️<a href='https://techblock.club/?p=4751'> link</a>
 
-👉🏿Sony says 'wait for PS5 sales' before comparing it to Microsoft's Xbox marketing❗️<a href='https://techblock.club/?p=4733'> link</a>
+👉🏿Spotify Offers 3 Months of Premium for Free❗️<a href='https://techblock.club/?p=4753'> link</a>
 
-👉New Mortal Kombat 11: Aftermath Gameplay Trailer Released❗️<a href='https://techblock.club/?p=4735'> link</a>
+👉It Looks Like Grand Theft Auto 5 Will Be Free To Claim At Epic Today❗️<a href='https://techblock.club/?p=4755'> link</a>
 
-👉🏽Xenoblade Chronicles: Definitive Edition Makes An Excellent Third Impression❗️<a href='https://techblock.club/?p=4737'> link</a>
+👉🏽Realme crosses 2.1 crore users milestone in India, 3.5 crore users worldwide❗️<a href='https://techblock.club/?p=4757'> link</a>
 
-👉🏿High strength steel at unprecedented levels of fracture resistance❗️<a href='https://techblock.club/?p=4739'> link</a>
+👉🏿Nintendo Reveals Paper Mario: The Origami King, Coming To Switch In July❗️<a href='https://techblock.club/?p=4759'> link</a>
 
-👉'Assassin's Creed Valhalla' Creative Director Shares Sneak Peek Of In-Game Viking Settlement❗️<a href='https://techblock.club/?p=4741'> link</a>
+👉Xiaomi Increases Its Presence In Overseas Smartphone Markets❗️<a href='https://techblock.club/?p=4761'> link</a>
 
-👉🏽Xiaomi CEO Caught Using Apple's iPhone on Social Media❗️<a href='https://techblock.club/?p=4743'> link</a>
+👉🏽The Unreal Engine 5 demo looks amazing, but shows nothing that will move games forward❗️<a href='https://techblock.club/?p=4763'> link</a>
 
-👉🏿Amazon upgrades its Fire HD 8 tablet with USB-C, more RAM, faster processor and wireless charging❗️<a href='https://techblock.club/?p=4745'> link</a>
+👉🏿Chinese-Inspired Roguelite Zengeon Available Now on Windows PC, Mac, and 2020 on PS4, Switch, and Xbox One❗️<a href='https://techblock.club/?p=4765'> link</a>
 
