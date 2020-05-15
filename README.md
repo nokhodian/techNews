@@ -1,20 +1,20 @@
-<b>Technology NEWS on Thursday, May 14th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Friday, May 15th, 2020</b> 📡📡📡 
 
-👉These incredible prices on Anker wireless speakers expire at midnight❗️<a href='https://techblock.club/?p=4749'> link</a>
+👉What's up with tiny checks at giant valuations?❗️<a href='https://techblock.club/?p=4769'> link</a>
 
-👉🏽Prison Architect launches Island Bound expansion on June 11❗️<a href='https://techblock.club/?p=4751'> link</a>
+👉🏽Animal Crossing: New Horizons Musicians Virtually Perform the Theme Song Together❗️<a href='https://techblock.club/?p=4771'> link</a>
 
-👉🏿Spotify Offers 3 Months of Premium for Free❗️<a href='https://techblock.club/?p=4753'> link</a>
+👉🏿Borderlands 3 Patch Notes For New Hotfix Update❗️<a href='https://techblock.club/?p=4773'> link</a>
 
-👉It Looks Like Grand Theft Auto 5 Will Be Free To Claim At Epic Today❗️<a href='https://techblock.club/?p=4755'> link</a>
+👉WhatsApp launches new campaign to fight scourge of fake Covid-19 news❗️<a href='https://techblock.club/?p=4775'> link</a>
 
-👉🏽Realme crosses 2.1 crore users milestone in India, 3.5 crore users worldwide❗️<a href='https://techblock.club/?p=4757'> link</a>
+👉🏽Smash Being Removed From Evo Is for the Best❗️<a href='https://techblock.club/?p=4777'> link</a>
 
-👉🏿Nintendo Reveals Paper Mario: The Origami King, Coming To Switch In July❗️<a href='https://techblock.club/?p=4759'> link</a>
+👉🏿Ghost Of Tsushima Combat Gameplay Shows Two Distinct Styles❗️<a href='https://techblock.club/?p=4779'> link</a>
 
-👉Xiaomi Increases Its Presence In Overseas Smartphone Markets❗️<a href='https://techblock.club/?p=4761'> link</a>
+👉Firefly Studios Adds New Units To Stronghold: Warlords❗️<a href='https://techblock.club/?p=4781'> link</a>
 
-👉🏽The Unreal Engine 5 demo looks amazing, but shows nothing that will move games forward❗️<a href='https://techblock.club/?p=4763'> link</a>
+👉🏽VPN Tunnels explained: what are they and how can they keep your internet data secure❗️<a href='https://techblock.club/?p=4783'> link</a>
 
-👉🏿Chinese-Inspired Roguelite Zengeon Available Now on Windows PC, Mac, and 2020 on PS4, Switch, and Xbox One❗️<a href='https://techblock.club/?p=4765'> link</a>
+👉🏿NPD: US games spending hits new record in Q1❗️<a href='https://techblock.club/?p=4785'> link</a>
 
