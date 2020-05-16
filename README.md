@@ -1,20 +1,20 @@
-<b>Technology NEWS on Friday, May 15th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Saturday, May 16th, 2020</b> 📡📡📡 
 
-👉What's up with tiny checks at giant valuations?❗️<a href='https://techblock.club/?p=4769'> link</a>
+👉There's a 227-Mile Toyota 4Runner Hiding Under This Extreme Armor Plating❗️<a href='https://techblock.club/?p=4789'> link</a>
 
-👉🏽Animal Crossing: New Horizons Musicians Virtually Perform the Theme Song Together❗️<a href='https://techblock.club/?p=4771'> link</a>
+👉🏽Facebook Avatar: What are Avatar and the steps to create❗️<a href='https://techblock.club/?p=4791'> link</a>
 
-👉🏿Borderlands 3 Patch Notes For New Hotfix Update❗️<a href='https://techblock.club/?p=4773'> link</a>
+👉🏿Online learning: The medium of tomorrow❗️<a href='https://techblock.club/?p=4793'> link</a>
 
-👉WhatsApp launches new campaign to fight scourge of fake Covid-19 news❗️<a href='https://techblock.club/?p=4775'> link</a>
+👉This 'cockpit' like video-gaming chair costs $14000 —take a look❗️<a href='https://techblock.club/?p=4795'> link</a>
 
-👉🏽Smash Being Removed From Evo Is for the Best❗️<a href='https://techblock.club/?p=4777'> link</a>
+👉🏽Ubisoft sues Apple over Alibaba 'Rainbow Six' game clone in App Store❗️<a href='https://techblock.club/?p=4797'> link</a>
 
-👉🏿Ghost Of Tsushima Combat Gameplay Shows Two Distinct Styles❗️<a href='https://techblock.club/?p=4779'> link</a>
+👉🏿GeekDad Review: Dali IO-6 Wireless Headphones With ANC❗️<a href='https://techblock.club/?p=4799'> link</a>
 
-👉Firefly Studios Adds New Units To Stronghold: Warlords❗️<a href='https://techblock.club/?p=4781'> link</a>
+👉More Classic NES, SNES Games Hitting Nintendo Switch in May❗️<a href='https://techblock.club/?p=4801'> link</a>
 
-👉🏽VPN Tunnels explained: what are they and how can they keep your internet data secure❗️<a href='https://techblock.club/?p=4783'> link</a>
+👉🏽'Destiny 2' Xur Inventory & Location May 15: Claws of Ahamkara & Sixth Coyote❗️<a href='https://techblock.club/?p=4803'> link</a>
 
-👉🏿NPD: US games spending hits new record in Q1❗️<a href='https://techblock.club/?p=4785'> link</a>
+👉🏿Xbox Series X Supports The Unreal Engine 5 Demo Tech❗️<a href='https://techblock.club/?p=4805'> link</a>
 
