@@ -1,20 +1,20 @@
-<b>Technology NEWS on Saturday, May 16th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Sunday, May 17th, 2020</b> 📡📡📡 
 
-👉There's a 227-Mile Toyota 4Runner Hiding Under This Extreme Armor Plating❗️<a href='https://techblock.club/?p=4789'> link</a>
+👉Windows 10 KB4556799 Update Causing Audio Issues❗️<a href='https://techblock.club/?p=4809'> link</a>
 
-👉🏽Facebook Avatar: What are Avatar and the steps to create❗️<a href='https://techblock.club/?p=4791'> link</a>
+👉🏽How to View Everyone At Once in Google Meet❗️<a href='https://techblock.club/?p=4811'> link</a>
 
-👉🏿Online learning: The medium of tomorrow❗️<a href='https://techblock.club/?p=4793'> link</a>
+👉🏿How Final Fantasy VII Remake Is Not Quite What Fans Were Expecting❗️<a href='https://techblock.club/?p=4813'> link</a>
 
-👉This 'cockpit' like video-gaming chair costs $14000 —take a look❗️<a href='https://techblock.club/?p=4795'> link</a>
+👉Animal Crossing: New Horizons - How To Catch Frogs❗️<a href='https://techblock.club/?p=4815'> link</a>
 
-👉🏽Ubisoft sues Apple over Alibaba 'Rainbow Six' game clone in App Store❗️<a href='https://techblock.club/?p=4797'> link</a>
+👉🏽Chrome is getting its biggest upgrade in years — and you can try it now❗️<a href='https://techblock.club/?p=4817'> link</a>
 
-👉🏿GeekDad Review: Dali IO-6 Wireless Headphones With ANC❗️<a href='https://techblock.club/?p=4799'> link</a>
+👉🏿Final Fantasy 7 Remake Part 2 release date: Good and bad Square Enix news❗️<a href='https://techblock.club/?p=4819'> link</a>
 
-👉More Classic NES, SNES Games Hitting Nintendo Switch in May❗️<a href='https://techblock.club/?p=4801'> link</a>
+👉PlayStation Studios: New Sony branding hints at a Marvel-inspired expansion❗️<a href='https://techblock.club/?p=4821'> link</a>
 
-👉🏽'Destiny 2' Xur Inventory & Location May 15: Claws of Ahamkara & Sixth Coyote❗️<a href='https://techblock.club/?p=4803'> link</a>
+👉🏽Terraria's Journey Comes to an End With Final Update 9 Years After Launch❗️<a href='https://techblock.club/?p=4823'> link</a>
 
-👉🏿Xbox Series X Supports The Unreal Engine 5 Demo Tech❗️<a href='https://techblock.club/?p=4805'> link</a>
+👉🏿Sound style for your PC❗️<a href='https://techblock.club/?p=4825'> link</a>
 
