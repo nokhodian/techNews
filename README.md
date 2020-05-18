@@ -1,20 +1,20 @@
-<b>Technology NEWS on Sunday, May 17th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Monday, May 18th, 2020</b> 📡📡📡 
 
-👉Windows 10 KB4556799 Update Causing Audio Issues❗️<a href='https://techblock.club/?p=4809'> link</a>
+👉Facebook launched its Bitmoji-like Avatars. Here's how to make yours and how to use it.❗️<a href='https://techblock.club/?p=4829'> link</a>
 
-👉🏽How to View Everyone At Once in Google Meet❗️<a href='https://techblock.club/?p=4811'> link</a>
+👉🏽Assassin's Creed Valhalla Might Have a Bigger Game World Than Odyssey❗️<a href='https://techblock.club/?p=4831'> link</a>
 
-👉🏿How Final Fantasy VII Remake Is Not Quite What Fans Were Expecting❗️<a href='https://techblock.club/?p=4813'> link</a>
+👉🏿CD Projekt Red teases new The Witcher game starring Ciri❗️<a href='https://techblock.club/?p=4833'> link</a>
 
-👉Animal Crossing: New Horizons - How To Catch Frogs❗️<a href='https://techblock.club/?p=4815'> link</a>
+👉Apple Watch Pride Edition bands pair straps with custom faces for an all-over rainbow❗️<a href='https://techblock.club/?p=4835'> link</a>
 
-👉🏽Chrome is getting its biggest upgrade in years — and you can try it now❗️<a href='https://techblock.club/?p=4817'> link</a>
+👉🏽Devcom and Gamescom detail online-only gaming events in August❗️<a href='https://techblock.club/?p=4837'> link</a>
 
-👉🏿Final Fantasy 7 Remake Part 2 release date: Good and bad Square Enix news❗️<a href='https://techblock.club/?p=4819'> link</a>
+👉🏿I played the new Chex Quest remake, and we need more revivals like it❗️<a href='https://techblock.club/?p=4839'> link</a>
 
-👉PlayStation Studios: New Sony branding hints at a Marvel-inspired expansion❗️<a href='https://techblock.club/?p=4821'> link</a>
+👉Twitter Calls for Action Against Twitch Moderator❗️<a href='https://techblock.club/?p=4841'> link</a>
 
-👉🏽Terraria's Journey Comes to an End With Final Update 9 Years After Launch❗️<a href='https://techblock.club/?p=4823'> link</a>
+👉🏽League of Legends mobile version to launch soon❗️<a href='https://techblock.club/?p=4843'> link</a>
 
-👉🏿Sound style for your PC❗️<a href='https://techblock.club/?p=4825'> link</a>
+👉🏿Save Big On Select Garmin Fitness Watches In This One Day Sale❗️<a href='https://techblock.club/?p=4845'> link</a>
 
