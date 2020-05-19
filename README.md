@@ -1,20 +1,20 @@
-<b>Technology NEWS on Monday, May 18th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Tuesday, May 19th, 2020</b> 📡📡📡 
 
-👉Facebook launched its Bitmoji-like Avatars. Here's how to make yours and how to use it.❗️<a href='https://techblock.club/?p=4829'> link</a>
+👉Consumer Cellular, Xfinity Mobile, T-Mobile top consumer mobile satisfaction survey❗️<a href='https://techblock.club/?p=4849'> link</a>
 
-👉🏽Assassin's Creed Valhalla Might Have a Bigger Game World Than Odyssey❗️<a href='https://techblock.club/?p=4831'> link</a>
+👉🏽Samsung Galaxy Note 20 Plus camera leak just put iPhone 12 on notice❗️<a href='https://techblock.club/?p=4851'> link</a>
 
-👉🏿CD Projekt Red teases new The Witcher game starring Ciri❗️<a href='https://techblock.club/?p=4833'> link</a>
+👉🏿Berlin's IFA tech conference will go ahead in-person this September — with caveats❗️<a href='https://techblock.club/?p=4853'> link</a>
 
-👉Apple Watch Pride Edition bands pair straps with custom faces for an all-over rainbow❗️<a href='https://techblock.club/?p=4835'> link</a>
+👉Xiaomi unveils MIUI 12 with focus on privacy, multi-tasking❗️<a href='https://techblock.club/?p=4855'> link</a>
 
-👉🏽Devcom and Gamescom detail online-only gaming events in August❗️<a href='https://techblock.club/?p=4837'> link</a>
+👉🏽Confluera raises $21 million for automated cyberattack detection, tracking, and response❗️<a href='https://techblock.club/?p=4857'> link</a>
 
-👉🏿I played the new Chex Quest remake, and we need more revivals like it❗️<a href='https://techblock.club/?p=4839'> link</a>
+👉🏿Gamescom: Opening Night Live Premieres August 27, Gamescom 2020 Digitally Running from August 27 to 30❗️<a href='https://techblock.club/?p=4859'> link</a>
 
-👉Twitter Calls for Action Against Twitch Moderator❗️<a href='https://techblock.club/?p=4841'> link</a>
+👉Ghost of Tsushima's Deep Dive is Already the Most Watched State of Play❗️<a href='https://techblock.club/?p=4861'> link</a>
 
-👉🏽League of Legends mobile version to launch soon❗️<a href='https://techblock.club/?p=4843'> link</a>
+👉🏽The Wonderful 101 will be no less divisive in remastered form❗️<a href='https://techblock.club/?p=4863'> link</a>
 
-👉🏿Save Big On Select Garmin Fitness Watches In This One Day Sale❗️<a href='https://techblock.club/?p=4845'> link</a>
+👉🏿The Last of Us Part II PS4 Pro Special Edition Unveiled❗️<a href='https://techblock.club/?p=4865'> link</a>
 
