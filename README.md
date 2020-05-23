@@ -1,20 +1,20 @@
-<b>Technology NEWS on Friday, May 22nd, 2020</b> 📡📡📡 
+<b>Technology NEWS on Saturday, May 23rd, 2020</b> 📡📡📡 
 
-👉This 8TB SSD is the biggest you can fit in a (normal) laptop❗️<a href='https://techblock.club/?p=4909'> link</a>
+👉Sheeva is coming well-armed in Mortal Kombat: Aftermath❗️<a href='https://techblock.club/?p=4929'> link</a>
 
-👉🏽Ninja criticises Fortnite's new map, misses the old one❗️<a href='https://techblock.club/?p=4911'> link</a>
+👉🏽Animal Crossing 1.2.1 Update Out Now, And It Doesn't Do Too Much❗️<a href='https://techblock.club/?p=4931'> link</a>
 
-👉🏿Vivo X50, X50 Pro Quad Rear Cameras and Colour Options Teased, 90Hz Refresh Rate Display Tipped❗️<a href='https://techblock.club/?p=4913'> link</a>
+👉🏿Maneater Prosperity Sands Collectible Locations❗️<a href='https://techblock.club/?p=4933'> link</a>
 
-👉April 2020 NPD: US game spending breaks records❗️<a href='https://techblock.club/?p=4915'> link</a>
+👉Samsung Galaxy A50 review:❗️<a href='https://techblock.club/?p=4935'> link</a>
 
-👉🏽Nexon CEO Owen Mahoney sees online games making permanent gains❗️<a href='https://techblock.club/?p=4917'> link</a>
+👉🏽'Destiny 2' Xur Inventory & Location May 22: Cerberus+1 & Karnstein Armlets❗️<a href='https://techblock.club/?p=4937'> link</a>
 
-👉🏿Add A Notification LED To Your OnePlus 8 With This App❗️<a href='https://techblock.club/?p=4919'> link</a>
+👉🏿God of War 5: Release Date, Gameplay, Camera Angle, Storyline And How Will The Story Progress In The Fifth Part?❗️<a href='https://techblock.club/?p=4939'> link</a>
 
-👉Katy Hubert: Apple to Control All Details of 'Apple Car' Project❗️<a href='https://techblock.club/?p=4921'> link</a>
+👉AMD's killer 'Big Navi' GPUs could come in four versions – but will they be enough to take on Nvidia RTX 3000?❗️<a href='https://techblock.club/?p=4941'> link</a>
 
-👉🏽'Five Nights At Freddy's Help Wanted': Latest Horror Installment Pops Up On Nintendo Switch❗️<a href='https://techblock.club/?p=4923'> link</a>
+👉🏽Top Stories: Apple Glass and iPhone 12 Rumors, iOS 13.5 Update, and More!❗️<a href='https://techblock.club/?p=4943'> link</a>
 
-👉🏿Maneater: The Kotaku Review❗️<a href='https://techblock.club/?p=4925'> link</a>
+👉🏿Apple's AirPods, Google's Pixel 3A, PS4 Pro, and more are heavily discounted for Memorial Day❗️<a href='https://techblock.club/?p=4945'> link</a>
 
