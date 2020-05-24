@@ -1,20 +1,20 @@
-<b>Technology NEWS on Saturday, May 23rd, 2020</b> 📡📡📡 
+<b>Technology NEWS on Sunday, May 24th, 2020</b> 📡📡📡 
 
-👉Sheeva is coming well-armed in Mortal Kombat: Aftermath❗️<a href='https://techblock.club/?p=4929'> link</a>
+👉Best GTA 5 mods: transform Grand Theft Auto V❗️<a href='https://techblock.club/?p=4949'> link</a>
 
-👉🏽Animal Crossing 1.2.1 Update Out Now, And It Doesn't Do Too Much❗️<a href='https://techblock.club/?p=4931'> link</a>
+👉🏽Kirin 1020 remains unaffected by US ban, on schedule to power Mate 40 smartphones❗️<a href='https://techblock.club/?p=4951'> link</a>
 
-👉🏿Maneater Prosperity Sands Collectible Locations❗️<a href='https://techblock.club/?p=4933'> link</a>
+👉🏿LG Poland apologizes after misconceived V60 ThinQ TikTok ad goes viral❗️<a href='https://techblock.club/?p=4953'> link</a>
 
-👉Samsung Galaxy A50 review:❗️<a href='https://techblock.club/?p=4935'> link</a>
+👉Project Reunion: Microsoft's unified app strategy is still missing one piece❗️<a href='https://techblock.club/?p=4955'> link</a>
 
-👉🏽'Destiny 2' Xur Inventory & Location May 22: Cerberus+1 & Karnstein Armlets❗️<a href='https://techblock.club/?p=4937'> link</a>
+👉🏽Mortal Kombat 11: Aftermath Introduces You To Sheeva❗️<a href='https://techblock.club/?p=4957'> link</a>
 
-👉🏿God of War 5: Release Date, Gameplay, Camera Angle, Storyline And How Will The Story Progress In The Fifth Part?❗️<a href='https://techblock.club/?p=4939'> link</a>
+👉🏿Enhance your MacBook with 4 awesome accessories on sale this Memorial Day weekend [Deals]❗️<a href='https://techblock.club/?p=4959'> link</a>
 
-👉AMD's killer 'Big Navi' GPUs could come in four versions – but will they be enough to take on Nvidia RTX 3000?❗️<a href='https://techblock.club/?p=4941'> link</a>
+👉Rumored Pokémon Diamond and Pearl remake titles may have already been leaked❗️<a href='https://techblock.club/?p=4961'> link</a>
 
-👉🏽Top Stories: Apple Glass and iPhone 12 Rumors, iOS 13.5 Update, and More!❗️<a href='https://techblock.club/?p=4943'> link</a>
+👉🏽Apple Watch 3 vs. Fitbit Versa: Time to buy a new smartwatch❗️<a href='https://techblock.club/?p=4963'> link</a>
 
-👉🏿Apple's AirPods, Google's Pixel 3A, PS4 Pro, and more are heavily discounted for Memorial Day❗️<a href='https://techblock.club/?p=4945'> link</a>
+👉🏿Xiaomi launches Mi TV E43K Smart TV❗️<a href='https://techblock.club/?p=4965'> link</a>
 
