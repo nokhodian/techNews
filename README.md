@@ -1,20 +1,20 @@
-<b>Technology NEWS on Sunday, May 24th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Monday, May 25th, 2020</b> 📡📡📡 
 
-👉Best GTA 5 mods: transform Grand Theft Auto V❗️<a href='https://techblock.club/?p=4949'> link</a>
+👉Future AirPods could sport light sensors for health tracking❗️<a href='https://techblock.club/?p=4969'> link</a>
 
-👉🏽Kirin 1020 remains unaffected by US ban, on schedule to power Mate 40 smartphones❗️<a href='https://techblock.club/?p=4951'> link</a>
+👉🏽Fortnite Countdown Timer Explained – What is the Doomsday Event?❗️<a href='https://techblock.club/?p=4971'> link</a>
 
-👉🏿LG Poland apologizes after misconceived V60 ThinQ TikTok ad goes viral❗️<a href='https://techblock.club/?p=4953'> link</a>
+👉🏿'GTA 6' Location Reportedly Hinted Online❗️<a href='https://techblock.club/?p=4973'> link</a>
 
-👉Project Reunion: Microsoft's unified app strategy is still missing one piece❗️<a href='https://techblock.club/?p=4955'> link</a>
+👉Live music is merging with video games – and giving us a glimpse of the future❗️<a href='https://techblock.club/?p=4975'> link</a>
 
-👉🏽Mortal Kombat 11: Aftermath Introduces You To Sheeva❗️<a href='https://techblock.club/?p=4957'> link</a>
+👉🏽Best weapons so far in 'Apex Legends' Season 5❗️<a href='https://techblock.club/?p=4977'> link</a>
 
-👉🏿Enhance your MacBook with 4 awesome accessories on sale this Memorial Day weekend [Deals]❗️<a href='https://techblock.club/?p=4959'> link</a>
+👉🏿How to jailbreak iOS 13.5 using Unc0ver on macOS [Video]❗️<a href='https://techblock.club/?p=4979'> link</a>
 
-👉Rumored Pokémon Diamond and Pearl remake titles may have already been leaked❗️<a href='https://techblock.club/?p=4961'> link</a>
+👉The Last of Us Part 2 Wiki – Everything You Need To Know About The Game❗️<a href='https://techblock.club/?p=4981'> link</a>
 
-👉🏽Apple Watch 3 vs. Fitbit Versa: Time to buy a new smartwatch❗️<a href='https://techblock.club/?p=4963'> link</a>
+👉🏽Look! 1979 Toyota Land Cruiser FJ40 restomod is a real stunner!❗️<a href='https://techblock.club/?p=4983'> link</a>
 
-👉🏿Xiaomi launches Mi TV E43K Smart TV❗️<a href='https://techblock.club/?p=4965'> link</a>
+👉🏿Here's how to create a Facebook Messenger Room - the new video chat feature from Facebook❗️<a href='https://techblock.club/?p=4985'> link</a>
 
