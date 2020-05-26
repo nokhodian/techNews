@@ -1,20 +1,20 @@
-<b>Technology NEWS on Monday, May 25th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Tuesday, May 26th, 2020</b> 📡📡📡 
 
-👉Future AirPods could sport light sensors for health tracking❗️<a href='https://techblock.club/?p=4969'> link</a>
+👉Captain Tsubasa: Rise Of New Champions Scores August Release Date On Switch❗️<a href='https://techblock.club/?p=4989'> link</a>
 
-👉🏽Fortnite Countdown Timer Explained – What is the Doomsday Event?❗️<a href='https://techblock.club/?p=4971'> link</a>
+👉🏽[Update: Bulk timeline delete on Android] Google Maps Incognito mode comes to iOS❗️<a href='https://techblock.club/?p=4991'> link</a>
 
-👉🏿'GTA 6' Location Reportedly Hinted Online❗️<a href='https://techblock.club/?p=4973'> link</a>
+👉🏿T-Mobile Users Can Now Use RCS Messaging With Anyone On Any Other Network❗️<a href='https://techblock.club/?p=4993'> link</a>
 
-👉Live music is merging with video games – and giving us a glimpse of the future❗️<a href='https://techblock.club/?p=4975'> link</a>
+👉Realme Watch vs Xiaomi Mi Watch: Price, Specifications Compared❗️<a href='https://techblock.club/?p=4995'> link</a>
 
-👉🏽Best weapons so far in 'Apex Legends' Season 5❗️<a href='https://techblock.club/?p=4977'> link</a>
+👉🏽The Sony ZV-1 is a tiny vlogging powerhouse❗️<a href='https://techblock.club/?p=4997'> link</a>
 
-👉🏿How to jailbreak iOS 13.5 using Unc0ver on macOS [Video]❗️<a href='https://techblock.club/?p=4979'> link</a>
+👉🏿Charge your devices fast, cheap, and anywhere with Anker's 24-hour sale❗️<a href='https://techblock.club/?p=4999'> link</a>
 
-👉The Last of Us Part 2 Wiki – Everything You Need To Know About The Game❗️<a href='https://techblock.club/?p=4981'> link</a>
+👉No Man's Sky is coming to Xbox Game Pass for PC in June❗️<a href='https://techblock.club/?p=5001'> link</a>
 
-👉🏽Look! 1979 Toyota Land Cruiser FJ40 restomod is a real stunner!❗️<a href='https://techblock.club/?p=4983'> link</a>
+👉🏽Nearly all Google Chrome security bugs involve memory flaws❗️<a href='https://techblock.club/?p=5003'> link</a>
 
-👉🏿Here's how to create a Facebook Messenger Room - the new video chat feature from Facebook❗️<a href='https://techblock.club/?p=4985'> link</a>
+👉🏿Coronavirus: First Google/Apple-based contact-tracing app launched❗️<a href='https://techblock.club/?p=5005'> link</a>
 
