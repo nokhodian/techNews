@@ -1,20 +1,20 @@
-<b>Technology NEWS on Tuesday, May 26th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Wednesday, May 27th, 2020</b> 📡📡📡 
 
-👉Captain Tsubasa: Rise Of New Champions Scores August Release Date On Switch❗️<a href='https://techblock.club/?p=4989'> link</a>
+👉Facebook launches Collab, a mix-and-match app for making collaborative music videos❗️<a href='https://techblock.club/?p=5009'> link</a>
 
-👉🏽[Update: Bulk timeline delete on Android] Google Maps Incognito mode comes to iOS❗️<a href='https://techblock.club/?p=4991'> link</a>
+👉🏽Amazon's indoor Cloud Cam usually sells for $120. This deal get you one for just $30❗️<a href='https://techblock.club/?p=5011'> link</a>
 
-👉🏿T-Mobile Users Can Now Use RCS Messaging With Anyone On Any Other Network❗️<a href='https://techblock.club/?p=4993'> link</a>
+👉🏿Sony tried to build the perfect camera for YouTubers❗️<a href='https://techblock.club/?p=5013'> link</a>
 
-👉Realme Watch vs Xiaomi Mi Watch: Price, Specifications Compared❗️<a href='https://techblock.club/?p=4995'> link</a>
+👉Build-to-order Macs finally available in India ahead of Apple Store launches❗️<a href='https://techblock.club/?p=5015'> link</a>
 
-👉🏽The Sony ZV-1 is a tiny vlogging powerhouse❗️<a href='https://techblock.club/?p=4997'> link</a>
+👉🏽Fast & Furious Crossroads Gets Gameplay First Look; August Release Date Revealed❗️<a href='https://techblock.club/?p=5017'> link</a>
 
-👉🏿Charge your devices fast, cheap, and anywhere with Anker's 24-hour sale❗️<a href='https://techblock.club/?p=4999'> link</a>
+👉🏿Trend Micro Home Network Security Review❗️<a href='https://techblock.club/?p=5019'> link</a>
 
-👉No Man's Sky is coming to Xbox Game Pass for PC in June❗️<a href='https://techblock.club/?p=5001'> link</a>
+👉Samyang/Rokinon Announces Updates to Two of Its Most Popular Lenses❗️<a href='https://techblock.club/?p=5021'> link</a>
 
-👉🏽Nearly all Google Chrome security bugs involve memory flaws❗️<a href='https://techblock.club/?p=5003'> link</a>
+👉🏽Fortnite Safe Houses Locations: Where To Eliminate Henchmen For Storm The Agency Challenges❗️<a href='https://techblock.club/?p=5023'> link</a>
 
-👉🏿Coronavirus: First Google/Apple-based contact-tracing app launched❗️<a href='https://techblock.club/?p=5005'> link</a>
+👉🏿Realme 6s with MediaTek Helio G90T SoC, 30W Fast Charging Support Launched: Price, Specifications❗️<a href='https://techblock.club/?p=5025'> link</a>
 
