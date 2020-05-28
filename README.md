@@ -1,20 +1,20 @@
-<b>Technology NEWS on Wednesday, May 27th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Thursday, May 28th, 2020</b> 📡📡📡 
 
-👉Facebook launches Collab, a mix-and-match app for making collaborative music videos❗️<a href='https://techblock.club/?p=5009'> link</a>
+👉Pro Putt by Topgolf review: more realistic than real Topgolf❗️<a href='https://techblock.club/?p=5029'> link</a>
 
-👉🏽Amazon's indoor Cloud Cam usually sells for $120. This deal get you one for just $30❗️<a href='https://techblock.club/?p=5011'> link</a>
+👉🏽The Guide to Search Engine Optimization for Law Firms❗️<a href='https://techblock.club/?p=5031'> link</a>
 
-👉🏿Sony tried to build the perfect camera for YouTubers❗️<a href='https://techblock.club/?p=5013'> link</a>
+👉🏿Google offers a free Nest Mini to YouTube Premium subscribers❗️<a href='https://techblock.club/?p=5033'> link</a>
 
-👉Build-to-order Macs finally available in India ahead of Apple Store launches❗️<a href='https://techblock.club/?p=5015'> link</a>
+👉Google adds anxiety self-assessment to Search❗️<a href='https://techblock.club/?p=5035'> link</a>
 
-👉🏽Fast & Furious Crossroads Gets Gameplay First Look; August Release Date Revealed❗️<a href='https://techblock.club/?p=5017'> link</a>
+👉🏽How to get Summer Shells in Animal Crossing: New Horizons❗️<a href='https://techblock.club/?p=5037'> link</a>
 
-👉🏿Trend Micro Home Network Security Review❗️<a href='https://techblock.club/?p=5019'> link</a>
+👉🏿PC players get a Destroy All Humans! demo❗️<a href='https://techblock.club/?p=5039'> link</a>
 
-👉Samyang/Rokinon Announces Updates to Two of Its Most Popular Lenses❗️<a href='https://techblock.club/?p=5021'> link</a>
+👉What we thought of VALORANT's beta❗️<a href='https://techblock.club/?p=5041'> link</a>
 
-👉🏽Fortnite Safe Houses Locations: Where To Eliminate Henchmen For Storm The Agency Challenges❗️<a href='https://techblock.club/?p=5023'> link</a>
+👉🏽AMD Radeon GPU driver supports Windows 10 May 2020 Update, but may annoy overclockers❗️<a href='https://techblock.club/?p=5043'> link</a>
 
-👉🏿Realme 6s with MediaTek Helio G90T SoC, 30W Fast Charging Support Launched: Price, Specifications❗️<a href='https://techblock.club/?p=5025'> link</a>
+👉🏿Facebook has no plans on fact-checking Trump because they are cowards❗️<a href='https://techblock.club/?p=5045'> link</a>
 
