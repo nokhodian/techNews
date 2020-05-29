@@ -1,20 +1,20 @@
-<b>Technology NEWS on Thursday, May 28th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Friday, May 29th, 2020</b> 📡📡📡 
 
-👉Pro Putt by Topgolf review: more realistic than real Topgolf❗️<a href='https://techblock.club/?p=5029'> link</a>
+👉Sony Will Mandate PS5 Support For PS4 Games Released After July❗️<a href='https://techblock.club/?p=5049'> link</a>
 
-👉🏽The Guide to Search Engine Optimization for Law Firms❗️<a href='https://techblock.club/?p=5031'> link</a>
+👉🏽Verizon 5G Rollout Is Ahead Of Schedule, Good Luck Finding It Though❗️<a href='https://techblock.club/?p=5051'> link</a>
 
-👉🏿Google offers a free Nest Mini to YouTube Premium subscribers❗️<a href='https://techblock.club/?p=5033'> link</a>
+👉🏿Red Dead Redemption 2: How to Dual Wield Weapons❗️<a href='https://techblock.club/?p=5053'> link</a>
 
-👉Google adds anxiety self-assessment to Search❗️<a href='https://techblock.club/?p=5035'> link</a>
+👉Sony launches ZV-1 compact digital camera with a flip-out, tiltable LCD screen for vloggers❗️<a href='https://techblock.club/?p=5055'> link</a>
 
-👉🏽How to get Summer Shells in Animal Crossing: New Horizons❗️<a href='https://techblock.club/?p=5037'> link</a>
+👉🏽Lamborghini is putting race cars in your living room. Hop in and drive one❗️<a href='https://techblock.club/?p=5057'> link</a>
 
-👉🏿PC players get a Destroy All Humans! demo❗️<a href='https://techblock.club/?p=5039'> link</a>
+👉🏿Fortnite Season 3 Start Date: Delayed Yet Again❗️<a href='https://techblock.club/?p=5059'> link</a>
 
-👉What we thought of VALORANT's beta❗️<a href='https://techblock.club/?p=5041'> link</a>
+👉Uber now lets US riders book trips for $50 an hour❗️<a href='https://techblock.club/?p=5061'> link</a>
 
-👉🏽AMD Radeon GPU driver supports Windows 10 May 2020 Update, but may annoy overclockers❗️<a href='https://techblock.club/?p=5043'> link</a>
+👉🏽New Super Lucky's Tale is coming to PS4 and Xbox One this summer❗️<a href='https://techblock.club/?p=5063'> link</a>
 
-👉🏿Facebook has no plans on fact-checking Trump because they are cowards❗️<a href='https://techblock.club/?p=5045'> link</a>
+👉🏿Animal Crossing: New Horizons – Fish and Bugs Leaving in June❗️<a href='https://techblock.club/?p=5065'> link</a>
 
