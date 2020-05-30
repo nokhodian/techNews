@@ -1,20 +1,20 @@
-<b>Technology NEWS on Friday, May 29th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Saturday, May 30th, 2020</b> 📡📡📡 
 
-👉Sony Will Mandate PS5 Support For PS4 Games Released After July❗️<a href='https://techblock.club/?p=5049'> link</a>
+👉Call Of Duty: Warzone Brings Duos Back In Playlist Update❗️<a href='https://techblock.club/?p=5069'> link</a>
 
-👉🏽Verizon 5G Rollout Is Ahead Of Schedule, Good Luck Finding It Though❗️<a href='https://techblock.club/?p=5051'> link</a>
+👉🏽Best camera smartphones of 2020: Samsung Galaxy S20, Vivo V19 and more❗️<a href='https://techblock.club/?p=5071'> link</a>
 
-👉🏿Red Dead Redemption 2: How to Dual Wield Weapons❗️<a href='https://techblock.club/?p=5053'> link</a>
+👉🏿Buy a Huawei P40 Pro, get free wireless earphones❗️<a href='https://techblock.club/?p=5073'> link</a>
 
-👉Sony launches ZV-1 compact digital camera with a flip-out, tiltable LCD screen for vloggers❗️<a href='https://techblock.club/?p=5055'> link</a>
+👉Google launches anxiety assessment tool in Search results❗️<a href='https://techblock.club/?p=5075'> link</a>
 
-👉🏽Lamborghini is putting race cars in your living room. Hop in and drive one❗️<a href='https://techblock.club/?p=5057'> link</a>
+👉🏽Fortnite Season 3 release date, leaks, map and battle pass❗️<a href='https://techblock.club/?p=5077'> link</a>
 
-👉🏿Fortnite Season 3 Start Date: Delayed Yet Again❗️<a href='https://techblock.club/?p=5059'> link</a>
+👉🏿The Morning After: Why would anyone buy a $350 'anti-5G' USB stick?❗️<a href='https://techblock.club/?p=5079'> link</a>
 
-👉Uber now lets US riders book trips for $50 an hour❗️<a href='https://techblock.club/?p=5061'> link</a>
+👉Not Just a Pretty Face: The Fascinating History of Smart Watches❗️<a href='https://techblock.club/?p=5081'> link</a>
 
-👉🏽New Super Lucky's Tale is coming to PS4 and Xbox One this summer❗️<a href='https://techblock.club/?p=5063'> link</a>
+👉🏽Lamborghini Sian just got 8 times smaller.❗️<a href='https://techblock.club/?p=5083'> link</a>
 
-👉🏿Animal Crossing: New Horizons – Fish and Bugs Leaving in June❗️<a href='https://techblock.club/?p=5065'> link</a>
+👉🏿Animal Crossing: New Horizons – How to Catch Great White Sharks❗️<a href='https://techblock.club/?p=5085'> link</a>
 
