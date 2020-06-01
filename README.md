@@ -1,20 +1,20 @@
-<b>Technology NEWS on Sunday, May 31st, 2020</b> 📡📡📡 
+<b>Technology NEWS on Monday, June 1st, 2020</b> 📡📡📡 
 
-👉Weight loss can be fun! We tried Ring Fit Adventure on Nintendo Switch and it is a REAL workout❗️<a href='https://techblock.club/?p=5089'> link</a>
+👉New stretchable, self-healing and illuminating electronic material for wearables and soft robots❗️<a href='https://techblock.club/?p=5109'> link</a>
 
-👉🏽Half-Life: Alyx update adds unassuming but impressive liquid effect to bottles❗️<a href='https://techblock.club/?p=5091'> link</a>
+👉🏽Take-Two CEO: Google overpromised with Stadia❗️<a href='https://techblock.club/?p=5111'> link</a>
 
-👉🏿Sony Says PS4 Games Need To Be PS5 Compatible Starting In July❗️<a href='https://techblock.club/?p=5093'> link</a>
+👉🏿Get Borderlands: The Handsome Collection For Free This Week (PC)❗️<a href='https://techblock.club/?p=5113'> link</a>
 
-👉May 2020 in review: 'iPhone 12' leaked, MacBook Pro 13-inch gets the new keyboard❗️<a href='https://techblock.club/?p=5095'> link</a>
+👉Xiaomi Redmi Note 9s Review – Not The "Budget" Phone You Were Expecting❗️<a href='https://techblock.club/?p=5115'> link</a>
 
-👉🏽Phishing firms in India posing as WHO, banks to defraud people, says Google❗️<a href='https://techblock.club/?p=5097'> link</a>
+👉🏽Fire Emblem: Three Houses is $15 off at Best Buy❗️<a href='https://techblock.club/?p=5117'> link</a>
 
-👉🏿Sign in with Apple flaw allowed unauthorized access to linked services, now fixed❗️<a href='https://techblock.club/?p=5099'> link</a>
+👉🏿PS5 Price Prediction: Here's How Much We Think PlayStation 5 Will Cost❗️<a href='https://techblock.club/?p=5119'> link</a>
 
-👉Google offers self-assessment test to fight anxiety❗️<a href='https://techblock.club/?p=5101'> link</a>
+👉[Last Chance] Pokemon Sword / Shield's Gigantamax Meowth Raid Event Ending Soon❗️<a href='https://techblock.club/?p=5121'> link</a>
 
-👉🏽Deals: Amazon Prime Members Can Get the AirPods Pro for $219.99 Today on Woot❗️<a href='https://techblock.club/?p=5103'> link</a>
+👉🏽Microsoft sacks journalists, decides to replace them with robots amid COVID-19 crisis❗️<a href='https://techblock.club/?p=5123'> link</a>
 
-👉🏿Samsung's next Galaxy Watch gets spoiled by the FCC❗️<a href='https://techblock.club/?p=5105'> link</a>
+👉🏿Codemasters get exclusive WRC licence, will keep making DiRT❗️<a href='https://techblock.club/?p=5125'> link</a>
 
