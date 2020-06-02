@@ -1,20 +1,20 @@
-<b>Technology NEWS on Monday, June 1st, 2020</b> 📡📡📡 
+<b>Technology NEWS on Tuesday, June 2nd, 2020</b> 📡📡📡 
 
-👉New stretchable, self-healing and illuminating electronic material for wearables and soft robots❗️<a href='https://techblock.club/?p=5109'> link</a>
+👉Pocket provides fascinating reads from trusted sources in the UK with newest Firefox❗️<a href='https://techblock.club/?p=5129'> link</a>
 
-👉🏽Take-Two CEO: Google overpromised with Stadia❗️<a href='https://techblock.club/?p=5111'> link</a>
+👉🏽HP's latest gaming accessories focus on simplicity and value❗️<a href='https://techblock.club/?p=5131'> link</a>
 
-👉🏿Get Borderlands: The Handsome Collection For Free This Week (PC)❗️<a href='https://techblock.club/?p=5113'> link</a>
+👉🏿OnePlus Domin8 pairs pro cricketers, pro gamers with OnePlus 8 Series to push esports in India❗️<a href='https://techblock.club/?p=5133'> link</a>
 
-👉Xiaomi Redmi Note 9s Review – Not The "Budget" Phone You Were Expecting❗️<a href='https://techblock.club/?p=5115'> link</a>
+👉Reliance Jio 4X Benefit offer announced on recharges of Rs 249 and above; check details❗️<a href='https://techblock.club/?p=5135'> link</a>
 
-👉🏽Fire Emblem: Three Houses is $15 off at Best Buy❗️<a href='https://techblock.club/?p=5117'> link</a>
+👉🏽(Update) Bungie intends to share their next big plans for Destiny 2 very soon❗️<a href='https://techblock.club/?p=5137'> link</a>
 
-👉🏿PS5 Price Prediction: Here's How Much We Think PlayStation 5 Will Cost❗️<a href='https://techblock.club/?p=5119'> link</a>
+👉🏿Asus launches TUF series laptops and ROG desktops in India at a starting price of Rs 60990❗️<a href='https://techblock.club/?p=5139'> link</a>
 
-👉[Last Chance] Pokemon Sword / Shield's Gigantamax Meowth Raid Event Ending Soon❗️<a href='https://techblock.club/?p=5121'> link</a>
+👉Windows 10 update causes Blue Screen of Death: How to avoid it❗️<a href='https://techblock.club/?p=5141'> link</a>
 
-👉🏽Microsoft sacks journalists, decides to replace them with robots amid COVID-19 crisis❗️<a href='https://techblock.club/?p=5123'> link</a>
+👉🏽The Epic Games Store Will Be Coming To Smartphones❗️<a href='https://techblock.club/?p=5143'> link</a>
 
-👉🏿Codemasters get exclusive WRC licence, will keep making DiRT❗️<a href='https://techblock.club/?p=5125'> link</a>
+👉🏿A new free-to-play game from Tencent is poised to be the next billion-dollar franchise❗️<a href='https://techblock.club/?p=5145'> link</a>
 
