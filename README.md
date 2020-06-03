@@ -1,20 +1,20 @@
-<b>Technology NEWS on Tuesday, June 2nd, 2020</b> 📡📡📡 
+<b>Technology NEWS on Wednesday, June 3rd, 2020</b> 📡📡📡 
 
-👉Pocket provides fascinating reads from trusted sources in the UK with newest Firefox❗️<a href='https://techblock.club/?p=5129'> link</a>
+👉Deals: Get the Limited Edition Mac Bundle With 11 MacOS Apps Including Parallels Desktop for $54❗️<a href='https://techblock.club/?p=5149'> link</a>
 
-👉🏽HP's latest gaming accessories focus on simplicity and value❗️<a href='https://techblock.club/?p=5131'> link</a>
+👉🏽What Time Fortnite's One-Time-Only Doomsday Event Happens❗️<a href='https://techblock.club/?p=5151'> link</a>
 
-👉🏿OnePlus Domin8 pairs pro cricketers, pro gamers with OnePlus 8 Series to push esports in India❗️<a href='https://techblock.club/?p=5133'> link</a>
+👉🏿Best iPhones in 2020: iPhone 11 Pro Max, iPhone SE, iPhone XR, and more❗️<a href='https://techblock.club/?p=5153'> link</a>
 
-👉Reliance Jio 4X Benefit offer announced on recharges of Rs 249 and above; check details❗️<a href='https://techblock.club/?p=5135'> link</a>
+👉iPad Pro With A14X Chip, 5G, and Mini-LED Display Expected in First Half of 2021❗️<a href='https://techblock.club/?p=5155'> link</a>
 
-👉🏽(Update) Bungie intends to share their next big plans for Destiny 2 very soon❗️<a href='https://techblock.club/?p=5137'> link</a>
+👉🏽Get A Year Of PlayStation Plus For Just $42❗️<a href='https://techblock.club/?p=5157'> link</a>
 
-👉🏿Asus launches TUF series laptops and ROG desktops in India at a starting price of Rs 60990❗️<a href='https://techblock.club/?p=5139'> link</a>
+👉🏿PUBG Mobile developer Tencent Games has shared Season 12 stats❗️<a href='https://techblock.club/?p=5159'> link</a>
 
-👉Windows 10 update causes Blue Screen of Death: How to avoid it❗️<a href='https://techblock.club/?p=5141'> link</a>
+👉GR Live! Minecraft Dungeons is Diablo but with llamas❗️<a href='https://techblock.club/?p=5161'> link</a>
 
-👉🏽The Epic Games Store Will Be Coming To Smartphones❗️<a href='https://techblock.club/?p=5143'> link</a>
+👉🏽Redmi 9 could launch this month with a different MediaTek chipset, other specs remain unchanged❗️<a href='https://techblock.club/?p=5163'> link</a>
 
-👉🏿A new free-to-play game from Tencent is poised to be the next billion-dollar franchise❗️<a href='https://techblock.club/?p=5145'> link</a>
+👉🏿Resident Evil 3 Gets New Patch For Bug Fixes; Capcom Confirms No DLC Planned❗️<a href='https://techblock.club/?p=5165'> link</a>
 
