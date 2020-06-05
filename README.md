@@ -1,20 +1,20 @@
-<b>Technology NEWS on Thursday, June 4th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Friday, June 5th, 2020</b> 📡📡📡 
 
-👉SpongeBob SquarePants: Battle for Bikini Bottom - Rehydrated Trailer Shows New Multiplayer Mode❗️<a href='https://techblock.club/?p=5169'> link</a>
+👉Facebook's photo transfer tool really surprised me – Here's how to use it❗️<a href='https://techblock.club/?p=5189'> link</a>
 
-👉🏽Denon Begins Shipping First 8K-Ready AV Receivers This Month❗️<a href='https://techblock.club/?p=5171'> link</a>
+👉🏽Chrome's most frustrating issue just got fixed — thanks to Microsoft❗️<a href='https://techblock.club/?p=5191'> link</a>
 
-👉🏿Apple Watch Series 3 is on sale for $179❗️<a href='https://techblock.club/?p=5173'> link</a>
+👉🏿BMW M4 Coupe Leaks Taking Divisive 4-Series Grille To The Extreme With 500+ Horsepower❗️<a href='https://techblock.club/?p=5193'> link</a>
 
-👉Southern California theme parks will count on locals and passholders once they reopen❗️<a href='https://techblock.club/?p=5175'> link</a>
+👉German tuner pushes Audi's RS Q8 above the 1000-horsepower mark❗️<a href='https://techblock.club/?p=5195'> link</a>
 
-👉🏽Gameplay preview, free up date, information, and extra❗️<a href='https://techblock.club/?p=5177'> link</a>
+👉🏽Sony Fined $2.4 Million By Australian Court For Misleading PlayStation Players❗️<a href='https://techblock.club/?p=5197'> link</a>
 
-👉🏿Best Android phones in 2020: Samsung Galaxy S20 Ultra, LG V60 ThinQ 5G, OnePlus 8 Pro, and more❗️<a href='https://techblock.club/?p=5179'> link</a>
+👉🏿Google's Mueller Explains how to Assess a News Page's Quality❗️<a href='https://techblock.club/?p=5199'> link</a>
 
-👉Apple Suppliers Reportedly Developing OLED Displays With Low-Power LTPO Technology for 2021 iPhones❗️<a href='https://techblock.club/?p=5181'> link</a>
+👉Cyberpunk 2077 Xbox One X Console Up For Purchase But Selling Out Fast❗️<a href='https://techblock.club/?p=5201'> link</a>
 
-👉🏽Windows 10: This change stops you accidentally deleting files you want to keep, says Microsoft❗️<a href='https://techblock.club/?p=5183'> link</a>
+👉🏽Intel may not launch new high-end desktop processors in 2020 – or even Rocket Lake CPUs❗️<a href='https://techblock.club/?p=5203'> link</a>
 
-👉🏿Warhammer 40000 spin-off Necromunda coming to PC and consoles this summer❗️<a href='https://techblock.club/?p=5185'> link</a>
+👉🏿Epic Games Store may be ready on smartphones soon❗️<a href='https://techblock.club/?p=5205'> link</a>
 
