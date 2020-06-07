@@ -1,20 +1,20 @@
-<b>Technology NEWS on Saturday, June 6th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Sunday, June 7th, 2020</b> 📡📡📡 
 
-👉Google Pixel 4a could be the Android phone to beat — and a nightmare for iPhone 12❗️<a href='https://techblock.club/?p=5209'> link</a>
+👉Galaxy Tab S6 Lite to launch in India on June 8❗️<a href='https://techblock.club/?p=5229'> link</a>
 
-👉🏽Xbox (Beta) Store on PC Has Added Mod Support for Games❗️<a href='https://techblock.club/?p=5211'> link</a>
+👉🏽Respawn adds Black Lives Matter message in Apex Legends launch screen❗️<a href='https://techblock.club/?p=5231'> link</a>
 
-👉🏿Over 740 Games Included In Itch.io Bundle, All Proceeds Go Toward Racial Justice❗️<a href='https://techblock.club/?p=5213'> link</a>
+👉🏿Rock of Ages 3 will smash into open beta this month❗️<a href='https://techblock.club/?p=5233'> link</a>
 
-👉Frankly Darling likely for Ribblesdale next at Ascot | Racing News❗️<a href='https://techblock.club/?p=5215'> link</a>
+👉Skater XL launch pushed back to July 28❗️<a href='https://techblock.club/?p=5235'> link</a>
 
-👉🏽Pokemon Go to Let Players Invite Friends to Remotely Raid With Them❗️<a href='https://techblock.club/?p=5217'> link</a>
+👉🏽Make killer presentations with this template package deal❗️<a href='https://techblock.club/?p=5237'> link</a>
 
-👉🏿Azure Striker Gunvolt 2 Coming to PC via Steam Later This Month❗️<a href='https://techblock.club/?p=5219'> link</a>
+👉🏿This home workout app is like having a personal trainer in your pocket❗️<a href='https://techblock.club/?p=5239'> link</a>
 
-👉This PS5 design looks too bad to be true❗️<a href='https://techblock.club/?p=5221'> link</a>
+👉Best budget phones under $200: Our picks for 2020 phones you can get for cheap❗️<a href='https://techblock.club/?p=5241'> link</a>
 
-👉🏽CES 2021 set to be in-person event in Las Vegas❗️<a href='https://techblock.club/?p=5223'> link</a>
+👉🏽iPhone SE vs. iPhone 11 Pro: We take a look at performance and specs❗️<a href='https://techblock.club/?p=5243'> link</a>
 
-👉🏿Top Stories: Tim Cook on George Floyd, iOS 13.5.5, Mini-LED iPad Rumors, Mac Tips and Tricks❗️<a href='https://techblock.club/?p=5225'> link</a>
+👉🏿Fake AirPods, Apple thefts, and fruit bags in the Apple Crime Blotter❗️<a href='https://techblock.club/?p=5245'> link</a>
 
