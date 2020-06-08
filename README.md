@@ -1,20 +1,20 @@
-<b>Technology NEWS on Sunday, June 7th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Monday, June 8th, 2020</b> 📡📡📡 
 
-👉Galaxy Tab S6 Lite to launch in India on June 8❗️<a href='https://techblock.club/?p=5229'> link</a>
+👉AI takes traditional Chinese painting in a new direction❗️<a href='https://techblock.club/?p=5249'> link</a>
 
-👉🏽Respawn adds Black Lives Matter message in Apex Legends launch screen❗️<a href='https://techblock.club/?p=5231'> link</a>
+👉🏽Alwa's Legacy begins! Arriving on June 17th to Steam & GOG❗️<a href='https://techblock.club/?p=5251'> link</a>
 
-👉🏿Rock of Ages 3 will smash into open beta this month❗️<a href='https://techblock.club/?p=5233'> link</a>
+👉🏿A Dino Crisis Reboot Was Shut Down By Capcom, According To Report❗️<a href='https://techblock.club/?p=5253'> link</a>
 
-👉Skater XL launch pushed back to July 28❗️<a href='https://techblock.club/?p=5235'> link</a>
+👉Minecraft Dungeons dethrones Animal Crossing as the eShop's top seller❗️<a href='https://techblock.club/?p=5255'> link</a>
 
-👉🏽Make killer presentations with this template package deal❗️<a href='https://techblock.club/?p=5237'> link</a>
+👉🏽Amazon's Crucible Is Removing Two of Its Three Game Modes❗️<a href='https://techblock.club/?p=5257'> link</a>
 
-👉🏿This home workout app is like having a personal trainer in your pocket❗️<a href='https://techblock.club/?p=5239'> link</a>
+👉🏿Sony Renewed Trademarks for Gran Turismo's Brand Name, Logo, and Polyphony Digital❗️<a href='https://techblock.club/?p=5259'> link</a>
 
-👉Best budget phones under $200: Our picks for 2020 phones you can get for cheap❗️<a href='https://techblock.club/?p=5241'> link</a>
+👉Sims 4 Eco Lifestyle is out now, if you need a break from Animal Crossing❗️<a href='https://techblock.club/?p=5261'> link</a>
 
-👉🏽iPhone SE vs. iPhone 11 Pro: We take a look at performance and specs❗️<a href='https://techblock.club/?p=5243'> link</a>
+👉🏽UK government puts out call for evidence on loot boxes, following concerns they teach children to gamble❗️<a href='https://techblock.club/?p=5263'> link</a>
 
-👉🏿Fake AirPods, Apple thefts, and fruit bags in the Apple Crime Blotter❗️<a href='https://techblock.club/?p=5245'> link</a>
+👉🏿Pokimane breaks her silence on difficult Twitch decision❗️<a href='https://techblock.club/?p=5265'> link</a>
 
