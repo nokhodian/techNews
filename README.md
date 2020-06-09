@@ -1,20 +1,20 @@
-<b>Technology NEWS on Monday, June 8th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Tuesday, June 9th, 2020</b> 📡📡📡 
 
-👉AI takes traditional Chinese painting in a new direction❗️<a href='https://techblock.club/?p=5249'> link</a>
+👉PlayStation 5 reveal date, price, design, backwards compatability & more to know about PS5❗️<a href='https://techblock.club/?p=5269'> link</a>
 
-👉🏽Alwa's Legacy begins! Arriving on June 17th to Steam & GOG❗️<a href='https://techblock.club/?p=5251'> link</a>
+👉🏽Elite Dangerous' Fleet Carriers update lands today – here are the patch notes❗️<a href='https://techblock.club/?p=5271'> link</a>
 
-👉🏿A Dino Crisis Reboot Was Shut Down By Capcom, According To Report❗️<a href='https://techblock.club/?p=5253'> link</a>
+👉🏿HWInfo Now Checks if Your AMD X570 Motherboard is Secretly Overclocking Your CPU❗️<a href='https://techblock.club/?p=5273'> link</a>
 
-👉Minecraft Dungeons dethrones Animal Crossing as the eShop's top seller❗️<a href='https://techblock.club/?p=5255'> link</a>
+👉The Last of Us Part II Director Muses on Next Game; Might Be “Part III” or New IP❗️<a href='https://techblock.club/?p=5275'> link</a>
 
-👉🏽Amazon's Crucible Is Removing Two of Its Three Game Modes❗️<a href='https://techblock.club/?p=5257'> link</a>
+👉🏽Honda global operations halted by ransomware attack❗️<a href='https://techblock.club/?p=5277'> link</a>
 
-👉🏿Sony Renewed Trademarks for Gran Turismo's Brand Name, Logo, and Polyphony Digital❗️<a href='https://techblock.club/?p=5259'> link</a>
+👉🏿New iMac With 'iPad Pro Design Language' and Thin Bezels Reportedly Coming at WWDC❗️<a href='https://techblock.club/?p=5279'> link</a>
 
-👉Sims 4 Eco Lifestyle is out now, if you need a break from Animal Crossing❗️<a href='https://techblock.club/?p=5261'> link</a>
+👉Where To Get A Nintendo Switch Lite: Still In Stock At Best Buy❗️<a href='https://techblock.club/?p=5281'> link</a>
 
-👉🏽UK government puts out call for evidence on loot boxes, following concerns they teach children to gamble❗️<a href='https://techblock.club/?p=5263'> link</a>
+👉🏽Hellblade 2 trailer, release date, gameplay and more❗️<a href='https://techblock.club/?p=5283'> link</a>
 
-👉🏿Pokimane breaks her silence on difficult Twitch decision❗️<a href='https://techblock.club/?p=5265'> link</a>
+👉🏿PlayStation Listing Leaks UFC 4❗️<a href='https://techblock.club/?p=5285'> link</a>
 
