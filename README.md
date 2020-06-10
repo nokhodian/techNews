@@ -1,20 +1,20 @@
-<b>Technology NEWS on Tuesday, June 9th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Wednesday, June 10th, 2020</b> 📡📡📡 
 
-👉PlayStation 5 reveal date, price, design, backwards compatability & more to know about PS5❗️<a href='https://techblock.club/?p=5269'> link</a>
+👉No Man's Sky is adding crossplay for Xbox One, PC, and PS4❗️<a href='https://techblock.club/?p=5289'> link</a>
 
-👉🏽Elite Dangerous' Fleet Carriers update lands today – here are the patch notes❗️<a href='https://techblock.club/?p=5271'> link</a>
+👉🏽Destiny Content Vault (DCV) is Bungie's answer for the future❗️<a href='https://techblock.club/?p=5291'> link</a>
 
-👉🏿HWInfo Now Checks if Your AMD X570 Motherboard is Secretly Overclocking Your CPU❗️<a href='https://techblock.club/?p=5273'> link</a>
+👉🏿The Last of Us Part 2 Director's Next Game Could Be Part 3 or a New IP❗️<a href='https://techblock.club/?p=5293'> link</a>
 
-👉The Last of Us Part II Director Muses on Next Game; Might Be “Part III” or New IP❗️<a href='https://techblock.club/?p=5275'> link</a>
+👉ARMS' three year anniversary might be when we can expect the new character to drop for Super Smash Bros. Ultimate❗️<a href='https://techblock.club/?p=5295'> link</a>
 
-👉🏽Honda global operations halted by ransomware attack❗️<a href='https://techblock.club/?p=5277'> link</a>
+👉🏽Bang & Olufsen Is Making 'Designed for Xbox' Audio Products❗️<a href='https://techblock.club/?p=5297'> link</a>
 
-👉🏿New iMac With 'iPad Pro Design Language' and Thin Bezels Reportedly Coming at WWDC❗️<a href='https://techblock.club/?p=5279'> link</a>
+👉🏿Panasonic Mirrorless Cameras Can Now Work as Webcams❗️<a href='https://techblock.club/?p=5299'> link</a>
 
-👉Where To Get A Nintendo Switch Lite: Still In Stock At Best Buy❗️<a href='https://techblock.club/?p=5281'> link</a>
+👉Bloodstained is getting a new free update soon, 2020 roadmap finally unveiled❗️<a href='https://techblock.club/?p=5301'> link</a>
 
-👉🏽Hellblade 2 trailer, release date, gameplay and more❗️<a href='https://techblock.club/?p=5283'> link</a>
+👉🏽Lenovo IdeaPad Slim 3, IdeaPad Slim 5, IdeaPad Gaming 3, Yoga Slim 7i Notebooks Launched in India❗️<a href='https://techblock.club/?p=5303'> link</a>
 
-👉🏿PlayStation Listing Leaks UFC 4❗️<a href='https://techblock.club/?p=5285'> link</a>
+👉🏿Redmi 9 With Quad Rear Cameras, 5020mAh Battery Launched: Price, Specifications❗️<a href='https://techblock.club/?p=5305'> link</a>
 
