@@ -1,20 +1,20 @@
-<b>Technology NEWS on Friday, June 12th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Saturday, June 13th, 2020</b> 📡📡📡 
 
-👉Action Adventure Game 'Little Orpheus' from The Chinese Room Is This Week's Apple Arcade Release❗️<a href='https://techblock.club/?p=5329'> link</a>
+👉Fortnite The Device Event: LIVE Countdown, Details, Map Changes, Teasers, and More!❗️<a href='https://techblock.club/?p=5349'> link</a>
 
-👉🏽NBA 2K21 PS5 Trailer Showcases Next-Gen Sports❗️<a href='https://techblock.club/?p=5331'> link</a>
+👉🏽Close-Up Zoom Feature Added To Samsung Galaxy S20 Ultra In Latest Update❗️<a href='https://techblock.club/?p=5351'> link</a>
 
-👉🏿Riot Games executive resigns after 'abhorrent' George Floyd post❗️<a href='https://techblock.club/?p=5333'> link</a>
+👉🏿There's A Three-Way Tie For Destiny 2's Best Weapon Of Season Of Arrivals❗️<a href='https://techblock.club/?p=5353'> link</a>
 
-👉Sony's PS5 design is 'bold, daring and future facing," PlayStation CEO says❗️<a href='https://techblock.club/?p=5335'> link</a>
+👉Microsoft Surface Duo could be out in under 2 months – but don't expect Surface Neo until mid-2021❗️<a href='https://techblock.club/?p=5355'> link</a>
 
-👉🏽Google Maps and YouTube Music just made some commutes a little better❗️<a href='https://techblock.club/?p=5337'> link</a>
+👉🏽'Maneater' and the simple pleasures of being a killer shark❗️<a href='https://techblock.club/?p=5357'> link</a>
 
-👉🏿New iMac: Pro Display XDR lookalike? Shipping in 2020? Everything we've heard so far❗️<a href='https://techblock.club/?p=5339'> link</a>
+👉🏿OnePlus Pods May Be the Name of OnePlus' TWS Earbuds, Features Tipped via Android 11 Beta 1 Update❗️<a href='https://techblock.club/?p=5359'> link</a>
 
-👉'Resident Evil Village' Confirmed For PS5, Marks Return Of Survival Horror❗️<a href='https://techblock.club/?p=5341'> link</a>
+👉Buy the Xiaomi Mi Band 5: which stores sell the new Xiaomi smart bracelet❗️<a href='https://techblock.club/?p=5361'> link</a>
 
-👉🏽PS5's Spider-Man: Miles Morales Is An Expansion, Not A Sequel❗️<a href='https://techblock.club/?p=5343'> link</a>
+👉🏽vivo V19 Neo announced: SD675, 6.44″ screen, and 48MP quad camera❗️<a href='https://techblock.club/?p=5363'> link</a>
 
-👉🏿Paper Mario: The Origami King Gets a Lengthy Trailer Showing off Bosses, Combat, & More❗️<a href='https://techblock.club/?p=5345'> link</a>
+👉🏿'Destiny 2' Xur Inventory & Location June 12: Promethium Spur & Synthoceps❗️<a href='https://techblock.club/?p=5365'> link</a>
 
