@@ -1,20 +1,20 @@
-<b>Technology NEWS on Saturday, June 13th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Sunday, June 14th, 2020</b> 📡📡📡 
 
-👉Fortnite The Device Event: LIVE Countdown, Details, Map Changes, Teasers, and More!❗️<a href='https://techblock.club/?p=5349'> link</a>
+👉Google reportedly delays Pixel 4a launch again; Barely Blue variant dropped❗️<a href='https://techblock.club/?p=5369'> link</a>
 
-👉🏽Close-Up Zoom Feature Added To Samsung Galaxy S20 Ultra In Latest Update❗️<a href='https://techblock.club/?p=5351'> link</a>
+👉🏽[Video] 'The Outlast Trials' Arrives on PC Next Year; New Teaser Trailer Released❗️<a href='https://techblock.club/?p=5371'> link</a>
 
-👉🏿There's A Three-Way Tie For Destiny 2's Best Weapon Of Season Of Arrivals❗️<a href='https://techblock.club/?p=5353'> link</a>
+👉🏿Android 11: Everything you need to know❗️<a href='https://techblock.club/?p=5373'> link</a>
 
-👉Microsoft Surface Duo could be out in under 2 months – but don't expect Surface Neo until mid-2021❗️<a href='https://techblock.club/?p=5355'> link</a>
+👉Microsoft reportedly restores custom Xbox Live gamerpic uploads❗️<a href='https://techblock.club/?p=5375'> link</a>
 
-👉🏽'Maneater' and the simple pleasures of being a killer shark❗️<a href='https://techblock.club/?p=5357'> link</a>
+👉🏽Take a Look at Some Concept Art For Kena: Bridge of Spirits❗️<a href='https://techblock.club/?p=5377'> link</a>
 
-👉🏿OnePlus Pods May Be the Name of OnePlus' TWS Earbuds, Features Tipped via Android 11 Beta 1 Update❗️<a href='https://techblock.club/?p=5359'> link</a>
+👉🏿Cris Tales, Dustborn, and In Sound Mind Confirmed for the PlayStation 5❗️<a href='https://techblock.club/?p=5379'> link</a>
 
-👉Buy the Xiaomi Mi Band 5: which stores sell the new Xiaomi smart bracelet❗️<a href='https://techblock.club/?p=5361'> link</a>
+👉OpenCore Computer attempts sale of Hackintosh systems❗️<a href='https://techblock.club/?p=5381'> link</a>
 
-👉🏽vivo V19 Neo announced: SD675, 6.44″ screen, and 48MP quad camera❗️<a href='https://techblock.club/?p=5363'> link</a>
+👉🏽These are the 15 biggest games coming to the PlayStation 5, from a new 'Spider-Man' game to 'NBA 2K21'❗️<a href='https://techblock.club/?p=5383'> link</a>
 
-👉🏿'Destiny 2' Xur Inventory & Location June 12: Promethium Spur & Synthoceps❗️<a href='https://techblock.club/?p=5365'> link</a>
+👉🏿Huawei P40 Pro vs Samsung Galaxy S20+ – Ultimate smartphone showdown❗️<a href='https://techblock.club/?p=5385'> link</a>
 
