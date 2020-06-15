@@ -1,20 +1,20 @@
-<b>Technology NEWS on Sunday, June 14th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Monday, June 15th, 2020</b> 📡📡📡 
 
-👉Google reportedly delays Pixel 4a launch again; Barely Blue variant dropped❗️<a href='https://techblock.club/?p=5369'> link</a>
+👉AMD (AMD) Optimistic Due to Client and Data Center Business - Piper Sandler❗️<a href='https://techblock.club/?p=5389'> link</a>
 
-👉🏽[Video] 'The Outlast Trials' Arrives on PC Next Year; New Teaser Trailer Released❗️<a href='https://techblock.club/?p=5371'> link</a>
+👉🏽Apple Launching 2020 Back to School Promotion, Free AirPods With Eligible Mac or iPad Purchase❗️<a href='https://techblock.club/?p=5391'> link</a>
 
-👉🏿Android 11: Everything you need to know❗️<a href='https://techblock.club/?p=5373'> link</a>
+👉🏿You can now play Counter-Strike 1.6 in your browser❗️<a href='https://techblock.club/?p=5393'> link</a>
 
-👉Microsoft reportedly restores custom Xbox Live gamerpic uploads❗️<a href='https://techblock.club/?p=5375'> link</a>
+👉Asus ROG Phone 3 listed on TENAA, key specs revealed❗️<a href='https://techblock.club/?p=5395'> link</a>
 
-👉🏽Take a Look at Some Concept Art For Kena: Bridge of Spirits❗️<a href='https://techblock.club/?p=5377'> link</a>
+👉🏽The Outlast Trials new terrifying trailer shows that scaring is sharing❗️<a href='https://techblock.club/?p=5397'> link</a>
 
-👉🏿Cris Tales, Dustborn, and In Sound Mind Confirmed for the PlayStation 5❗️<a href='https://techblock.club/?p=5379'> link</a>
+👉🏿16-Inch MacBook Pro Now Available With Up to 75% Faster Graphics, Mac Pro Gets SSD Upgrade Kit❗️<a href='https://techblock.club/?p=5399'> link</a>
 
-👉OpenCore Computer attempts sale of Hackintosh systems❗️<a href='https://techblock.club/?p=5381'> link</a>
+👉What players need to know about 'Demon's Souls' for the PS5❗️<a href='https://techblock.club/?p=5401'> link</a>
 
-👉🏽These are the 15 biggest games coming to the PlayStation 5, from a new 'Spider-Man' game to 'NBA 2K21'❗️<a href='https://techblock.club/?p=5383'> link</a>
+👉🏽Mafia looks better than ever in new Definitive Edition trailer❗️<a href='https://techblock.club/?p=5403'> link</a>
 
-👉🏿Huawei P40 Pro vs Samsung Galaxy S20+ – Ultimate smartphone showdown❗️<a href='https://techblock.club/?p=5385'> link</a>
+👉🏿F1 2020's latest trailer is all about My Team❗️<a href='https://techblock.club/?p=5405'> link</a>
 
