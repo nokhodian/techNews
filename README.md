@@ -1,20 +1,20 @@
-<b>Technology NEWS on Wednesday, June 17th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Thursday, June 18th, 2020</b> 📡📡📡 
 
-👉Zynga launches voice game Words With Friends Word Pop for Amazon Alexa❗️<a href='https://techblock.club/?p=5429'> link</a>
+👉Discoverability, Steam's Summer Festival & 'Not-E3' Showcases❗️<a href='https://techblock.club/?p=5449'> link</a>
 
-👉🏽Ratchet & Clank: Rift Apart Features Playable Female Lombax, Insomniac Says❗️<a href='https://techblock.club/?p=5431'> link</a>
+👉🏽Sony Has Already Made It Clear The PS5's Price Will Not Be $400❗️<a href='https://techblock.club/?p=5451'> link</a>
 
-👉🏿US home construction rebounds 4.3% in May❗️<a href='https://techblock.club/?p=5433'> link</a>
+👉🏿Twitter now lets you send audio tweets — here's how to use it❗️<a href='https://techblock.club/?p=5453'> link</a>
 
-👉Save Big On Popular Anker Charging Accessories In This One-Day Sale❗️<a href='https://techblock.club/?p=5435'> link</a>
+👉Windows 10 version 2004 slams into a Storage Spaces brick wall❗️<a href='https://techblock.club/?p=5455'> link</a>
 
-👉🏽Best MacBook Pro Deals You Can Grab Right Now❗️<a href='https://techblock.club/?p=5437'> link</a>
+👉🏽Pokemon Sword / Shield: How To Get The Newly Added Pokemon Without Buying DLC❗️<a href='https://techblock.club/?p=5457'> link</a>
 
-👉🏿The PS5 Games We're Most Excited to Play❗️<a href='https://techblock.club/?p=5439'> link</a>
+👉🏿Asus ROG Phone 3 hands-on video gives us our first real-world look at the phone❗️<a href='https://techblock.club/?p=5459'> link</a>
 
-👉Shoot Your Way Through Pistol Whip's Upbeat World on PSVR Starting This July❗️<a href='https://techblock.club/?p=5441'> link</a>
+👉After TSMC Ban, Huawei Looks To MediaTek For Chipset Supply❗️<a href='https://techblock.club/?p=5461'> link</a>
 
-👉🏽Epic Games Has Launched Fortnite Chapter 2 Season 3❗️<a href='https://techblock.club/?p=5443'> link</a>
+👉🏽Here's The McLaren 720S Doing Its Best F1 LM Impression❗️<a href='https://techblock.club/?p=5463'> link</a>
 
-👉🏿Microsoft Just Gave A Billion Users A Reason To Quit Windows 10❗️<a href='https://techblock.club/?p=5445'> link</a>
+👉🏿Amazon's Kindle Paperwhite is $30 off in time for Father's Day❗️<a href='https://techblock.club/?p=5465'> link</a>
 
