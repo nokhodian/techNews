@@ -1,20 +1,20 @@
-<b>Technology NEWS on Thursday, June 18th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Friday, June 19th, 2020</b> 📡📡📡 
 
-👉Discoverability, Steam's Summer Festival & 'Not-E3' Showcases❗️<a href='https://techblock.club/?p=5449'> link</a>
+👉The BTS ARMY Can Pre-Order The Galaxy S20+ BTS Edition Starting Today!❗️<a href='https://techblock.club/?p=5469'> link</a>
 
-👉🏽Sony Has Already Made It Clear The PS5's Price Will Not Be $400❗️<a href='https://techblock.club/?p=5451'> link</a>
+👉🏽Nintendo Confirms The Next Smash Bros. Character Is From ARMS❗️<a href='https://techblock.club/?p=5471'> link</a>
 
-👉🏿Twitter now lets you send audio tweets — here's how to use it❗️<a href='https://techblock.club/?p=5453'> link</a>
+👉🏿Lost in Random Looks Like a Playable Stop-Motion Film from the Developers of Fe❗️<a href='https://techblock.club/?p=5473'> link</a>
 
-👉Windows 10 version 2004 slams into a Storage Spaces brick wall❗️<a href='https://techblock.club/?p=5455'> link</a>
+👉Railway Empire arrives on Nintendo Switch❗️<a href='https://techblock.club/?p=5475'> link</a>
 
-👉🏽Pokemon Sword / Shield: How To Get The Newly Added Pokemon Without Buying DLC❗️<a href='https://techblock.club/?p=5457'> link</a>
+👉🏽“Mozilla VPN” Exits Beta and Enters Limited US-Only Launch❗️<a href='https://techblock.club/?p=5477'> link</a>
 
-👉🏿Asus ROG Phone 3 hands-on video gives us our first real-world look at the phone❗️<a href='https://techblock.club/?p=5459'> link</a>
+👉🏿Stock Up On USB-C Cables With This Sale On Anker Nylon Braided Cables❗️<a href='https://techblock.club/?p=5479'> link</a>
 
-👉After TSMC Ban, Huawei Looks To MediaTek For Chipset Supply❗️<a href='https://techblock.club/?p=5461'> link</a>
+👉Cyberpunk 2077 Will Be Backwards Compatible on Next-Gen, 'More Robust' Update Coming Later for Free❗️<a href='https://techblock.club/?p=5481'> link</a>
 
-👉🏽Here's The McLaren 720S Doing Its Best F1 LM Impression❗️<a href='https://techblock.club/?p=5463'> link</a>
+👉🏽Google Meet Makes It Stupid Easy To Make New Video Calls❗️<a href='https://techblock.club/?p=5483'> link</a>
 
-👉🏿Amazon's Kindle Paperwhite is $30 off in time for Father's Day❗️<a href='https://techblock.club/?p=5465'> link</a>
+👉🏿Airline foods getting offered at $two a meal as travel market languishes throughout coronavirus crisis❗️<a href='https://techblock.club/?p=5485'> link</a>
 
