@@ -1,20 +1,20 @@
-<b>Technology NEWS on Friday, June 19th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Saturday, June 20th, 2020</b> 📡📡📡 
 
-👉The BTS ARMY Can Pre-Order The Galaxy S20+ BTS Edition Starting Today!❗️<a href='https://techblock.club/?p=5469'> link</a>
+👉Xiaomi 'more Indian' smartphone brand than any other: Manu Jain❗️<a href='https://techblock.club/?p=5489'> link</a>
 
-👉🏽Nintendo Confirms The Next Smash Bros. Character Is From ARMS❗️<a href='https://techblock.club/?p=5471'> link</a>
+👉🏽Google's former advertising chief is making an ad-free search engine❗️<a href='https://techblock.club/?p=5491'> link</a>
 
-👉🏿Lost in Random Looks Like a Playable Stop-Motion Film from the Developers of Fe❗️<a href='https://techblock.club/?p=5473'> link</a>
+👉🏿Google's upcoming AirDrop rival could work on desktop and mobile❗️<a href='https://techblock.club/?p=5493'> link</a>
 
-👉Railway Empire arrives on Nintendo Switch❗️<a href='https://techblock.club/?p=5475'> link</a>
+👉I wouldn't bet on an Nvidia GeForce RTX 3090 appearing❗️<a href='https://techblock.club/?p=5495'> link</a>
 
-👉🏽“Mozilla VPN” Exits Beta and Enters Limited US-Only Launch❗️<a href='https://techblock.club/?p=5477'> link</a>
+👉🏽Mozilla to launch own VPN soon; likely to be available first in US at $4.9 per month❗️<a href='https://techblock.club/?p=5497'> link</a>
 
-👉🏿Stock Up On USB-C Cables With This Sale On Anker Nylon Braided Cables❗️<a href='https://techblock.club/?p=5479'> link</a>
+👉🏿Huawei Enjoy 20 Pro goes official: Dimensity 800, 90Hz display, and rear triple cams❗️<a href='https://techblock.club/?p=5499'> link</a>
 
-👉Cyberpunk 2077 Will Be Backwards Compatible on Next-Gen, 'More Robust' Update Coming Later for Free❗️<a href='https://techblock.club/?p=5481'> link</a>
+👉New Pokémon Snap is the killer app Nintendo Labo VR desperately needs – here's why❗️<a href='https://techblock.club/?p=5501'> link</a>
 
-👉🏽Google Meet Makes It Stupid Easy To Make New Video Calls❗️<a href='https://techblock.club/?p=5483'> link</a>
+👉🏽Prerecorded backing vocals allowed during Eurovision 2021❗️<a href='https://techblock.club/?p=5503'> link</a>
 
-👉🏿Airline foods getting offered at $two a meal as travel market languishes throughout coronavirus crisis❗️<a href='https://techblock.club/?p=5485'> link</a>
+👉🏿Call of Duty: Modern Warfare and Warzone weapon-tuning coming in mid-season update❗️<a href='https://techblock.club/?p=5505'> link</a>
 
