@@ -1,20 +1,20 @@
-<b>Technology NEWS on Tuesday, June 23rd, 2020</b> 📡📡📡 
+<b>Technology NEWS on Wednesday, June 24th, 2020</b> 📡📡📡 
 
-👉Acer woos desktop gamers with 360Hz G-Sync and a gaming chair that rubs your neck❗️<a href='https://techblock.club/?p=5549'> link</a>
+👉Nvidia now supports DirectX 12 Ultimate and new Windows 10 GPU scheduling feature❗️<a href='https://techblock.club/?p=5569'> link</a>
 
-👉🏽Acer launches stylish new Chromebook Spin 713❗️<a href='https://techblock.club/?p=5551'> link</a>
+👉🏽Now you can edit Netflix's Continue Watching row from your phone❗️<a href='https://techblock.club/?p=5571'> link</a>
 
-👉🏿TCL updates the 10 Pro and 10L: Amazon and Best Buy offer 15% discount❗️<a href='https://techblock.club/?p=5553'> link</a>
+👉🏿Jurassic Park Barbasol Can Dennis Nedry SDCC Exclusive Figure Launches Today❗️<a href='https://techblock.club/?p=5573'> link</a>
 
-👉BMW announces new 8 Series Golden Thunder Edition❗️<a href='https://techblock.club/?p=5555'> link</a>
+👉Windows 10 Start Menu redesign looks beautiful: What to expect❗️<a href='https://techblock.club/?p=5575'> link</a>
 
-👉🏽Global HONOR 9A Announced Along With New TWS Earbuds & More❗️<a href='https://techblock.club/?p=5557'> link</a>
+👉🏽Xiaomi Mi Band 5 gets BIS certified, expected to launch in India soon❗️<a href='https://techblock.club/?p=5577'> link</a>
 
-👉🏿ESRB Rating for Ghost of Tsushima Highlights Extreme Violence and Partial Nudity❗️<a href='https://techblock.club/?p=5559'> link</a>
+👉🏿Intel Core i7-10700K Review: Taking the Gaming Shine Off Core i9❗️<a href='https://techblock.club/?p=5579'> link</a>
 
-👉Apple's WWDC keynote was like no other. Why that's a good thing❗️<a href='https://techblock.club/?p=5561'> link</a>
+👉How to Recruit Pikachu and Get More Acorns on Pokemon Cafe Mix? Game Now Out on Mobile and Switch❗️<a href='https://techblock.club/?p=5581'> link</a>
 
-👉🏽Yep, Apple will help you find lost stuff besides its gear and your friends❗️<a href='https://techblock.club/?p=5563'> link</a>
+👉🏽Grab Two Google Home Mini's For Just $40❗️<a href='https://techblock.club/?p=5583'> link</a>
 
-👉🏿These are the 'seven games' EA is reportedly bringing to Switch❗️<a href='https://techblock.club/?p=5565'> link</a>
+👉🏿Acer Predator Helios 300 hands-on review: More power, same price❗️<a href='https://techblock.club/?p=5585'> link</a>
 
