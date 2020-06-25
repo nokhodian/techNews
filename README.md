@@ -1,20 +1,20 @@
-<b>Technology NEWS on Wednesday, June 24th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Thursday, June 25th, 2020</b> 📡📡📡 
 
-👉Nvidia now supports DirectX 12 Ultimate and new Windows 10 GPU scheduling feature❗️<a href='https://techblock.club/?p=5569'> link</a>
+👉HTC's Vive X incubator backs 7 new startups, focuses on enterprise XR❗️<a href='https://techblock.club/?p=5589'> link</a>
 
-👉🏽Now you can edit Netflix's Continue Watching row from your phone❗️<a href='https://techblock.club/?p=5571'> link</a>
+👉🏽Apple's 256GB iPad mini is $50 off at Amazon❗️<a href='https://techblock.club/?p=5591'> link</a>
 
-👉🏿Jurassic Park Barbasol Can Dennis Nedry SDCC Exclusive Figure Launches Today❗️<a href='https://techblock.club/?p=5573'> link</a>
+👉🏿Barclays on iPhone 12 Lineup: No EarPods in Box and Possibly Not Even a Charger, LiDAR Scanner on Pro Models❗️<a href='https://techblock.club/?p=5593'> link</a>
 
-👉Windows 10 Start Menu redesign looks beautiful: What to expect❗️<a href='https://techblock.club/?p=5575'> link</a>
+👉Animal Crossing: New Horizons Is Getting A Major Update Next Week❗️<a href='https://techblock.club/?p=5595'> link</a>
 
-👉🏽Xiaomi Mi Band 5 gets BIS certified, expected to launch in India soon❗️<a href='https://techblock.club/?p=5577'> link</a>
+👉🏽Safari 14 will let you log in to websites with your face or finger❗️<a href='https://techblock.club/?p=5597'> link</a>
 
-👉🏿Intel Core i7-10700K Review: Taking the Gaming Shine Off Core i9❗️<a href='https://techblock.club/?p=5579'> link</a>
+👉🏿Control 'The Foundation' expansion launches on Xbox One❗️<a href='https://techblock.club/?p=5599'> link</a>
 
-👉How to Recruit Pikachu and Get More Acorns on Pokemon Cafe Mix? Game Now Out on Mobile and Switch❗️<a href='https://techblock.club/?p=5581'> link</a>
+👉Biomutant Resurfaces: New Trailer Showcases Open-World & Eclectic Monsters❗️<a href='https://techblock.club/?p=5601'> link</a>
 
-👉🏽Grab Two Google Home Mini's For Just $40❗️<a href='https://techblock.club/?p=5583'> link</a>
+👉🏽Fortnite leaks reveal Atlantis POI potentially coming in Season 3❗️<a href='https://techblock.club/?p=5603'> link</a>
 
-👉🏿Acer Predator Helios 300 hands-on review: More power, same price❗️<a href='https://techblock.club/?p=5585'> link</a>
+👉🏿iPhone 12: the smartphone will inspire much of the design of the iPhone 4 !❗️<a href='https://techblock.club/?p=5605'> link</a>
 
