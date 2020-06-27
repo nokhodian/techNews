@@ -1,20 +1,20 @@
-<b>Technology NEWS on Friday, June 26th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Saturday, June 27th, 2020</b> 📡📡📡 
 
-👉Google Chromecast 4 Sabrina: Release date, price and more for new Android TV box❗️<a href='https://techblock.club/?p=5609'> link</a>
+👉New Metal Slug Game Coming From Pokemon Unite Studio❗️<a href='https://techblock.club/?p=5629'> link</a>
 
-👉🏽Amazon, looking to the future of ride hailing, will buy Zoox❗️<a href='https://techblock.club/?p=5611'> link</a>
+👉🏽iPhone SE (2020) Camera Offers Good Exposure, Poor Zoom Shots: DxOMark❗️<a href='https://techblock.club/?p=5631'> link</a>
 
-👉🏿'Pokémon GO' Bug Out: Spawns, Raids, Eggs, Research, Shiny Dwebble, Incense❗️<a href='https://techblock.club/?p=5613'> link</a>
+👉🏿Crash Bandicoot 4 Is Going To Be Huge (As In, Over 100 Levels)❗️<a href='https://techblock.club/?p=5633'> link</a>
 
-👉Biomutant-10 minutes gameplay video released❗️<a href='https://techblock.club/?p=5615'> link</a>
+👉GameStop Pro Day Sale Is Live Now -- Here Are The Best Deals❗️<a href='https://techblock.club/?p=5635'> link</a>
 
-👉🏽Microsoft to permanently close nearly all of its retail stores❗️<a href='https://techblock.club/?p=5617'> link</a>
+👉🏽Animal Crossing's First Bug-Off Event Is Today❗️<a href='https://techblock.club/?p=5637'> link</a>
 
-👉🏿Steam Summer Sale: 15 Games That Are Dirt Cheap Right Now❗️<a href='https://techblock.club/?p=5619'> link</a>
+👉🏿Top Stories: WWDC20 Brings iOS 14, macOS Big Sur, watchOS 7, Apple Silicon, and More!❗️<a href='https://techblock.club/?p=5639'> link</a>
 
-👉Don't know why a business is calling? Google's phone app will soon let you know❗️<a href='https://techblock.club/?p=5621'> link</a>
+👉This week's top stories: Potential Pixel 3 lawsuit, Xiaomi Android TV dongles, more❗️<a href='https://techblock.club/?p=5641'> link</a>
 
-👉🏽Xbox Games With Gold Free Games For July 2020 Announced❗️<a href='https://techblock.club/?p=5623'> link</a>
+👉🏽Bloodstained: Curse of the Moon 2 launches July 10, includes classic characters and co-op mode❗️<a href='https://techblock.club/?p=5643'> link</a>
 
-👉🏿Rosetta 2 is Apple's key to making the ARM transition less painful❗️<a href='https://techblock.club/?p=5625'> link</a>
+👉🏿JLab Audio Talk Pro review: A Twitch-ready USB mic for streamers on the go❗️<a href='https://techblock.club/?p=5645'> link</a>
 
