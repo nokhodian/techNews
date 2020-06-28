@@ -1,20 +1,20 @@
-<b>Technology NEWS on Saturday, June 27th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Sunday, June 28th, 2020</b> 📡📡📡 
 
-👉New Metal Slug Game Coming From Pokemon Unite Studio❗️<a href='https://techblock.club/?p=5629'> link</a>
+👉'Divinity: Usual Sin 2 – Definitive Version' Is Coming Rapidly to iPad, Published at WWDC 2020❗️<a href='https://techblock.club/?p=5649'> link</a>
 
-👉🏽iPhone SE (2020) Camera Offers Good Exposure, Poor Zoom Shots: DxOMark❗️<a href='https://techblock.club/?p=5631'> link</a>
+👉🏽Google's Covid-19 exposure notification system goes live in India❗️<a href='https://techblock.club/?p=5651'> link</a>
 
-👉🏿Crash Bandicoot 4 Is Going To Be Huge (As In, Over 100 Levels)❗️<a href='https://techblock.club/?p=5633'> link</a>
+👉🏿'Earth Defense Force: World Brothers' Looks Utterly Adorable And Very Blocky❗️<a href='https://techblock.club/?p=5653'> link</a>
 
-👉GameStop Pro Day Sale Is Live Now -- Here Are The Best Deals❗️<a href='https://techblock.club/?p=5635'> link</a>
+👉Second 'Bloodstained: Curse of the Moon 2' Trailer Reveals July 10 Release Date [Video]❗️<a href='https://techblock.club/?p=5655'> link</a>
 
-👉🏽Animal Crossing's First Bug-Off Event Is Today❗️<a href='https://techblock.club/?p=5637'> link</a>
+👉🏽Native Apple Watch Sleep Tracking❗️<a href='https://techblock.club/?p=5657'> link</a>
 
-👉🏿Top Stories: WWDC20 Brings iOS 14, macOS Big Sur, watchOS 7, Apple Silicon, and More!❗️<a href='https://techblock.club/?p=5639'> link</a>
+👉🏿Steam Summer Sale 2020: Best Deals So Far❗️<a href='https://techblock.club/?p=5659'> link</a>
 
-👉This week's top stories: Potential Pixel 3 lawsuit, Xiaomi Android TV dongles, more❗️<a href='https://techblock.club/?p=5641'> link</a>
+👉Apple, Google, Amazon and Facebook bet on gaming. Here's how they've done so far❗️<a href='https://techblock.club/?p=5661'> link</a>
 
-👉🏽Bloodstained: Curse of the Moon 2 launches July 10, includes classic characters and co-op mode❗️<a href='https://techblock.club/?p=5643'> link</a>
+👉🏽Everything Apple announced in its WWDC keynote: iOS 14, Apple Silicon, macOS 11 Big Sur, more❗️<a href='https://techblock.club/?p=5663'> link</a>
 
-👉🏿JLab Audio Talk Pro review: A Twitch-ready USB mic for streamers on the go❗️<a href='https://techblock.club/?p=5645'> link</a>
+👉🏿Realme 6, Realme 6 Pro Price in India Hiked Yet Again by Rs 1000, Here's How Much You Have to Pay Now❗️<a href='https://techblock.club/?p=5665'> link</a>
 
