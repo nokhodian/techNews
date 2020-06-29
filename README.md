@@ -1,20 +1,20 @@
-<b>Technology NEWS on Sunday, June 28th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Monday, June 29th, 2020</b> 📡📡📡 
 
-👉'Divinity: Usual Sin 2 – Definitive Version' Is Coming Rapidly to iPad, Published at WWDC 2020❗️<a href='https://techblock.club/?p=5649'> link</a>
+👉Samsung Galaxy Watch 3: Release date, price, specs and news❗️<a href='https://techblock.club/?p=5669'> link</a>
 
-👉🏽Google's Covid-19 exposure notification system goes live in India❗️<a href='https://techblock.club/?p=5651'> link</a>
+👉🏽Leak Suggests Second, Weaker Xbox Series X Console❗️<a href='https://techblock.club/?p=5671'> link</a>
 
-👉🏿'Earth Defense Force: World Brothers' Looks Utterly Adorable And Very Blocky❗️<a href='https://techblock.club/?p=5653'> link</a>
+👉🏿No Straight Roads Preview: Style Over Substance?❗️<a href='https://techblock.club/?p=5673'> link</a>
 
-👉Second 'Bloodstained: Curse of the Moon 2' Trailer Reveals July 10 Release Date [Video]❗️<a href='https://techblock.club/?p=5655'> link</a>
+👉The OnePlus 8, OnePlus 8 Pro Pro Review: Becoming The Flagship❗️<a href='https://techblock.club/?p=5675'> link</a>
 
-👉🏽Native Apple Watch Sleep Tracking❗️<a href='https://techblock.club/?p=5657'> link</a>
+👉🏽Snap Inc eyes influencers in India with AR-ready Spectacles 3 glasses❗️<a href='https://techblock.club/?p=5677'> link</a>
 
-👉🏿Steam Summer Sale 2020: Best Deals So Far❗️<a href='https://techblock.club/?p=5659'> link</a>
+👉🏿PlayStation Plus Games For July 2020: Sony Marks 10 Years With Three Freebies❗️<a href='https://techblock.club/?p=5679'> link</a>
 
-👉Apple, Google, Amazon and Facebook bet on gaming. Here's how they've done so far❗️<a href='https://techblock.club/?p=5661'> link</a>
+👉Nintendo's President Shuntaro Furukawa Comments Nintendo Switch Stock Should Return To Normal This Summer❗️<a href='https://techblock.club/?p=5681'> link</a>
 
-👉🏽Everything Apple announced in its WWDC keynote: iOS 14, Apple Silicon, macOS 11 Big Sur, more❗️<a href='https://techblock.club/?p=5663'> link</a>
+👉🏽Hey app for iPhone: Why all the controversy?❗️<a href='https://techblock.club/?p=5683'> link</a>
 
-👉🏿Realme 6, Realme 6 Pro Price in India Hiked Yet Again by Rs 1000, Here's How Much You Have to Pay Now❗️<a href='https://techblock.club/?p=5665'> link</a>
+👉🏿MIT's autonomous robot uses UVC light to kill coronavirus particles on surfaces❗️<a href='https://techblock.club/?p=5685'> link</a>
 
