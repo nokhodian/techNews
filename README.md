@@ -1,20 +1,20 @@
-<b>Technology NEWS on Monday, June 29th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Tuesday, June 30th, 2020</b> 📡📡📡 
 
-👉Samsung Galaxy Watch 3: Release date, price, specs and news❗️<a href='https://techblock.club/?p=5669'> link</a>
+👉Researcher reveals Mac privacy bug, blasts Apple for 'security theater'❗️<a href='https://techblock.club/?p=5689'> link</a>
 
-👉🏽Leak Suggests Second, Weaker Xbox Series X Console❗️<a href='https://techblock.club/?p=5671'> link</a>
+👉🏽You can now invite 100 friends to an Amazon Prime Video Watch Party❗️<a href='https://techblock.club/?p=5691'> link</a>
 
-👉🏿No Straight Roads Preview: Style Over Substance?❗️<a href='https://techblock.club/?p=5673'> link</a>
+👉🏿Home grown alternatives to 59 banned apps on Android, iOS you can safely use❗️<a href='https://techblock.club/?p=5693'> link</a>
 
-👉The OnePlus 8, OnePlus 8 Pro Pro Review: Becoming The Flagship❗️<a href='https://techblock.club/?p=5675'> link</a>
+👉Google Confirms Its AirDrop Killer & Starts Rolling It Out To Some Beta Users❗️<a href='https://techblock.club/?p=5695'> link</a>
 
-👉🏽Snap Inc eyes influencers in India with AR-ready Spectacles 3 glasses❗️<a href='https://techblock.club/?p=5677'> link</a>
+👉🏽OnePlus confirms Nord name for upcoming affordable phone❗️<a href='https://techblock.club/?p=5697'> link</a>
 
-👉🏿PlayStation Plus Games For July 2020: Sony Marks 10 Years With Three Freebies❗️<a href='https://techblock.club/?p=5679'> link</a>
+👉🏿Parrot ANAFI USA rugged drone packs 32x zoom and thermal camera❗️<a href='https://techblock.club/?p=5699'> link</a>
 
-👉Nintendo's President Shuntaro Furukawa Comments Nintendo Switch Stock Should Return To Normal This Summer❗️<a href='https://techblock.club/?p=5681'> link</a>
+👉Polar Just Made Its First Affordable, Stylish Smartwatch❗️<a href='https://techblock.club/?p=5701'> link</a>
 
-👉🏽Hey app for iPhone: Why all the controversy?❗️<a href='https://techblock.club/?p=5683'> link</a>
+👉🏽Samsung SSD 870 QVO review: Stupendous 8TB capacity in a SATA SSD❗️<a href='https://techblock.club/?p=5703'> link</a>
 
-👉🏿MIT's autonomous robot uses UVC light to kill coronavirus particles on surfaces❗️<a href='https://techblock.club/?p=5685'> link</a>
+👉🏿Best smartwatches in 2020: Apple and Samsung battle for a spot on your wrist❗️<a href='https://techblock.club/?p=5705'> link</a>
 
