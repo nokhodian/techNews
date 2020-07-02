@@ -1,20 +1,20 @@
-<b>Technology NEWS on Wednesday, July 1st, 2020</b> 📡📡📡 
+<b>Technology NEWS on Thursday, July 2nd, 2020</b> 📡📡📡 
 
-👉Samsung's Galaxy Buds Plus are more affordable than ever today❗️<a href='https://techblock.club/?p=5709'> link</a>
+👉Instagram is experimenting with 'full screen stories'❗️<a href='https://techblock.club/?p=5729'> link</a>
 
-👉🏽MediaTek Helio G35 and Helio G25 gaming processors unveiled for entry-level smartphones❗️<a href='https://techblock.club/?p=5711'> link</a>
+👉🏽You can now smell like space, with this new NASA-inspired fragrance❗️<a href='https://techblock.club/?p=5731'> link</a>
 
-👉🏿Accell Driver-Less USB-C 4K Dock Station Review❗️<a href='https://techblock.club/?p=5713'> link</a>
+👉🏿Amazon's Twitch Sees Massive Surge in Engagement Amid COVID-19 Lockdowns❗️<a href='https://techblock.club/?p=5733'> link</a>
 
-👉Sony Debuting New PS5 Games Today❗️<a href='https://techblock.club/?p=5715'> link</a>
+👉Samsung's UV Sterilizer Charges Your Phone While Cleaning It❗️<a href='https://techblock.club/?p=5735'> link</a>
 
-👉🏽FIST: Forged in Shadow Torch story trailer, latest details❗️<a href='https://techblock.club/?p=5717'> link</a>
+👉🏽PlayStation pulls ads from Facebook and Instagram for boycott❗️<a href='https://techblock.club/?p=5737'> link</a>
 
-👉🏿Marshall Emberton Review❗️<a href='https://techblock.club/?p=5719'> link</a>
+👉🏿(Update) Minecraft Dungeons' first DLC pack, Jungle Awakens, is out this week❗️<a href='https://techblock.club/?p=5739'> link</a>
 
-👉Nintendo's President Apologizes for Joy-Con Drift❗️<a href='https://techblock.club/?p=5721'> link</a>
+👉UK's House of Lords Select Committee Demands Government “Must Act Immediately” to Classify Loot Boxes as Gambling❗️<a href='https://techblock.club/?p=5741'> link</a>
 
-👉🏽Voicemod raises $8 million for silly or serious voice filters in games❗️<a href='https://techblock.club/?p=5723'> link</a>
+👉🏽iPhone assembly in India badly disrupted as Chinese border dispute worsens [U]❗️<a href='https://techblock.club/?p=5743'> link</a>
 
-👉🏿WhatsApp is rolling out animated stickers in beta (APK download)❗️<a href='https://techblock.club/?p=5725'> link</a>
+👉🏿5 Games To Play Before Ghost Of Tsushima❗️<a href='https://techblock.club/?p=5745'> link</a>
 
