@@ -1,20 +1,20 @@
-<b>Technology NEWS on Thursday, July 2nd, 2020</b> 📡📡📡 
+<b>Technology NEWS on Friday, July 3rd, 2020</b> 📡📡📡 
 
-👉Instagram is experimenting with 'full screen stories'❗️<a href='https://techblock.club/?p=5729'> link</a>
+👉Get the Roborock S5 robot vacuum and mop for just $360❗️<a href='https://techblock.club/?p=5749'> link</a>
 
-👉🏽You can now smell like space, with this new NASA-inspired fragrance❗️<a href='https://techblock.club/?p=5731'> link</a>
+👉🏽Apple plots path to the next Intel iMac❗️<a href='https://techblock.club/?p=5751'> link</a>
 
-👉🏿Amazon's Twitch Sees Massive Surge in Engagement Amid COVID-19 Lockdowns❗️<a href='https://techblock.club/?p=5733'> link</a>
+👉🏿Motorola Razr 2020 Will Support Fast Charging, Details Confirmed❗️<a href='https://techblock.club/?p=5753'> link</a>
 
-👉Samsung's UV Sterilizer Charges Your Phone While Cleaning It❗️<a href='https://techblock.club/?p=5735'> link</a>
+👉PUBG Mobile Ancient Secret Event Leaked: Mummies, Flying Buildings, and More Inbound❗️<a href='https://techblock.club/?p=5755'> link</a>
 
-👉🏽PlayStation pulls ads from Facebook and Instagram for boycott❗️<a href='https://techblock.club/?p=5737'> link</a>
+👉🏽Game Discoverabilityland: The Season Of Discovery❗️<a href='https://techblock.club/?p=5757'> link</a>
 
-👉🏿(Update) Minecraft Dungeons' first DLC pack, Jungle Awakens, is out this week❗️<a href='https://techblock.club/?p=5739'> link</a>
+👉🏿Giant 4th of July Apple deal roundup: $200 off 2020 MacBook Pros, $199 HomePods, $169 Apple Watches❗️<a href='https://techblock.club/?p=5759'> link</a>
 
-👉UK's House of Lords Select Committee Demands Government “Must Act Immediately” to Classify Loot Boxes as Gambling❗️<a href='https://techblock.club/?p=5741'> link</a>
+👉JioMeet is basically a completely free 1:1 copy of Zoom❗️<a href='https://techblock.club/?p=5761'> link</a>
 
-👉🏽iPhone assembly in India badly disrupted as Chinese border dispute worsens [U]❗️<a href='https://techblock.club/?p=5743'> link</a>
+👉🏽Min Min from Arms is ready to rumble as Super Smash Brothers Ultimate Fighter Pass Vol. 2 begins❗️<a href='https://techblock.club/?p=5763'> link</a>
 
-👉🏿5 Games To Play Before Ghost Of Tsushima❗️<a href='https://techblock.club/?p=5745'> link</a>
+👉🏿Animal Crossing's First Summer Update Is Out Now❗️<a href='https://techblock.club/?p=5765'> link</a>
 
