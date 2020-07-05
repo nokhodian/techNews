@@ -1,20 +1,20 @@
-<b>Technology NEWS on Saturday, July 4th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Sunday, July 5th, 2020</b> 📡📡📡 
 
-👉Samsung Suddenly Exposes Stunning New Galaxy Smartphone❗️<a href='https://techblock.club/?p=5769'> link</a>
+👉PUBG Mobile adds Livik map made specifically for phones and tablets❗️<a href='https://techblock.club/?p=5789'> link</a>
 
-👉🏽iPhone 11 vs. Pro vs. Pro Max: Specs and features that make the biggest difference❗️<a href='https://techblock.club/?p=5771'> link</a>
+👉🏽Apple facing challenges to free up iPhone shipments as India is holding its imports from China❗️<a href='https://techblock.club/?p=5791'> link</a>
 
-👉🏿How to use JioMeet: 5 tips and tricks for better video meetings❗️<a href='https://techblock.club/?p=5773'> link</a>
+👉🏿Buick Regal TourX Discount Approximately $7000 In July 2020❗️<a href='https://techblock.club/?p=5793'> link</a>
 
-👉Reddit says it's fixing code in its iOS app that copied clipboard contents❗️<a href='https://techblock.club/?p=5775'> link</a>
+👉Vivo Y30 launched with Hole-Punch screen, 5000 mAh battery in India: price, specs and more❗️<a href='https://techblock.club/?p=5795'> link</a>
 
-👉🏽Horizon Zero Dawn Is Coming to PC on August 7❗️<a href='https://techblock.club/?p=5777'> link</a>
+👉🏽MSI Unveils Creator Mobile Workstations With Intel 10th Gen CPUs❗️<a href='https://techblock.club/?p=5797'> link</a>
 
-👉🏿OnePlus TV 32Y1 first sale in India on 5 July❗️<a href='https://techblock.club/?p=5779'> link</a>
+👉🏿Losers and also champions: Hamilton escalates onto Disney Plus while NBA 2K21 overlooks a bang dunk❗️<a href='https://techblock.club/?p=5799'> link</a>
 
-👉Top Stories: iPhone 12 Rumors, Apple's A12Z-Based Mac mini, Leaked iMac, and More!❗️<a href='https://techblock.club/?p=5781'> link</a>
+👉OnePlus Nord preorders have already begun. Here are the features it needs (and doesn't need)❗️<a href='https://techblock.club/?p=5801'> link</a>
 
-👉🏽The World Ends with You anime coming 2021, teaser trailer released❗️<a href='https://techblock.club/?p=5783'> link</a>
+👉🏽How to swim in Animal Crossing: New Horizons and what sea creatures can you catch?❗️<a href='https://techblock.club/?p=5803'> link</a>
 
-👉🏿AMD Ryzen and Radeon road map: 2020-21, and beyond❗️<a href='https://techblock.club/?p=5785'> link</a>
+👉🏿WWE's Forgotten Incredible Moments from the Last 20 Years❗️<a href='https://techblock.club/?p=5805'> link</a>
 
