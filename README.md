@@ -1,20 +1,20 @@
-<b>Technology NEWS on Sunday, July 5th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Monday, July 6th, 2020</b> 📡📡📡 
 
-👉PUBG Mobile adds Livik map made specifically for phones and tablets❗️<a href='https://techblock.club/?p=5789'> link</a>
+👉EA's UFC 4 beta listing leaked, official reveal this weekend❗️<a href='https://techblock.club/?p=5809'> link</a>
 
-👉🏽Apple facing challenges to free up iPhone shipments as India is holding its imports from China❗️<a href='https://techblock.club/?p=5791'> link</a>
+👉🏽Comparison between different types of VPNs 2020❗️<a href='https://techblock.club/?p=5811'> link</a>
 
-👉🏿Buick Regal TourX Discount Approximately $7000 In July 2020❗️<a href='https://techblock.club/?p=5793'> link</a>
+👉🏿Inspect weapon feature could be coming to Call of Duty: Modern Warfare and Warzone❗️<a href='https://techblock.club/?p=5813'> link</a>
 
-👉Vivo Y30 launched with Hole-Punch screen, 5000 mAh battery in India: price, specs and more❗️<a href='https://techblock.club/?p=5795'> link</a>
+👉Samsung Takes to WhatsApp to Offer Contactless Customer Service: Here's How to Register❗️<a href='https://techblock.club/?p=5815'> link</a>
 
-👉🏽MSI Unveils Creator Mobile Workstations With Intel 10th Gen CPUs❗️<a href='https://techblock.club/?p=5797'> link</a>
+👉🏽Apple AirPods Pro are $30 off at Verizon❗️<a href='https://techblock.club/?p=5817'> link</a>
 
-👉🏿Losers and also champions: Hamilton escalates onto Disney Plus while NBA 2K21 overlooks a bang dunk❗️<a href='https://techblock.club/?p=5799'> link</a>
+👉🏿Headless Sea Lions Are Washing Up in British Columbia❗️<a href='https://techblock.club/?p=5819'> link</a>
 
-👉OnePlus Nord preorders have already begun. Here are the features it needs (and doesn't need)❗️<a href='https://techblock.club/?p=5801'> link</a>
+👉MacBook Pro could get this radical glass keyboard upgrade❗️<a href='https://techblock.club/?p=5821'> link</a>
 
-👉🏽How to swim in Animal Crossing: New Horizons and what sea creatures can you catch?❗️<a href='https://techblock.club/?p=5803'> link</a>
+👉🏽Customize your watch to pair with your Porsche❗️<a href='https://techblock.club/?p=5823'> link</a>
 
-👉🏿WWE's Forgotten Incredible Moments from the Last 20 Years❗️<a href='https://techblock.club/?p=5805'> link</a>
+👉🏿The Echo Dot is now under £30 in Amazon's Summer Sale❗️<a href='https://techblock.club/?p=5825'> link</a>
 
