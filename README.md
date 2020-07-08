@@ -1,20 +1,20 @@
-<b>Technology NEWS on Tuesday, July 7th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Wednesday, July 8th, 2020</b> 📡📡📡 
 
-👉Kart racer Supermarket Shriek coming to PS4, Switch, and Steam in 2020❗️<a href='https://techblock.club/?p=5829'> link</a>
+👉New Assassin's Creed Valhalla gameplay leak shows boss fight and map❗️<a href='https://techblock.club/?p=5849'> link</a>
 
-👉🏽Sony's new ultra-wide full-frame lens is the first of its kind❗️<a href='https://techblock.club/?p=5831'> link</a>
+👉🏽Call of Duty: Mobile Season 8 leaks, start date, characters, skins and battle pass❗️<a href='https://techblock.club/?p=5851'> link</a>
 
-👉🏿How to download the iOS 14 public beta on your iPhone❗️<a href='https://techblock.club/?p=5833'> link</a>
+👉🏿Intel Shares Details on Thunderbolt 4, Launching Later This Year❗️<a href='https://techblock.club/?p=5853'> link</a>
 
-👉Watch Dogs Legion PS4 Pre-Orders Are $40 For Some Reason❗️<a href='https://techblock.club/?p=5835'> link</a>
+👉A New Design For The Omega Constellation Gents Watch❗️<a href='https://techblock.club/?p=5855'> link</a>
 
-👉🏽Amazon Summer Sale: top savings live now❗️<a href='https://techblock.club/?p=5837'> link</a>
+👉🏽Samsung Galaxy Tab S6 Lite Review❗️<a href='https://techblock.club/?p=5857'> link</a>
 
-👉🏿Vivo Watch Gets Bluetooth SIG Certification, May Launch Soon❗️<a href='https://techblock.club/?p=5839'> link</a>
+👉🏿The best iPad Air deal of the year slashes $69 off right now❗️<a href='https://techblock.club/?p=5859'> link</a>
 
-👉Google Assistant Adds 6 New Entertainment Device Types❗️<a href='https://techblock.club/?p=5841'> link</a>
+👉WWE 2K Battlegrounds launches September 18, features over 70 playable wrestlers❗️<a href='https://techblock.club/?p=5861'> link</a>
 
-👉🏽Kingdoms Of Amalur: Re-Reckoning Release Date, New Expansion Announced❗️<a href='https://techblock.club/?p=5843'> link</a>
+👉🏽JBL Club series headphones with JBL Pro Sound launched in India, prices start at Rs 11999❗️<a href='https://techblock.club/?p=5863'> link</a>
 
-👉🏿Halo 3 is coming to PC on July 14th❗️<a href='https://techblock.club/?p=5845'> link</a>
+👉🏿Improve your home Wi-Fi with the excellent Eero Mesh 3-pack for $169, plus free Echo Dot❗️<a href='https://techblock.club/?p=5865'> link</a>
 
