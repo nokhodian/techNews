@@ -1,20 +1,20 @@
-<b>Technology NEWS on Wednesday, July 8th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Thursday, July 9th, 2020</b> 📡📡📡 
 
-👉New Assassin's Creed Valhalla gameplay leak shows boss fight and map❗️<a href='https://techblock.club/?p=5849'> link</a>
+👉[Update: Confirmed] Google Maps tests showing traffic lights on streets❗️<a href='https://techblock.club/?p=5869'> link</a>
 
-👉🏽Call of Duty: Mobile Season 8 leaks, start date, characters, skins and battle pass❗️<a href='https://techblock.club/?p=5851'> link</a>
+👉🏽Electronics Deals – July 9, 2020: Eureka, Amazon, Samsung & More❗️<a href='https://techblock.club/?p=5871'> link</a>
 
-👉🏿Intel Shares Details on Thunderbolt 4, Launching Later This Year❗️<a href='https://techblock.club/?p=5853'> link</a>
+👉🏿Google's upcoming Nest speaker revealed in regulatory filing❗️<a href='https://techblock.club/?p=5873'> link</a>
 
-👉A New Design For The Omega Constellation Gents Watch❗️<a href='https://techblock.club/?p=5855'> link</a>
+👉Tetris is now a daily game show with cash prizes❗️<a href='https://techblock.club/?p=5875'> link</a>
 
-👉🏽Samsung Galaxy Tab S6 Lite Review❗️<a href='https://techblock.club/?p=5857'> link</a>
+👉🏽Poco M2 Pro vs Redmi Note 9 Pro vs Realme 6: Which Is the Best Phone Under Rs. 15000?❗️<a href='https://techblock.club/?p=5877'> link</a>
 
-👉🏿The best iPad Air deal of the year slashes $69 off right now❗️<a href='https://techblock.club/?p=5859'> link</a>
+👉🏿All-black PS5 concept is the design the console needs❗️<a href='https://techblock.club/?p=5879'> link</a>
 
-👉WWE 2K Battlegrounds launches September 18, features over 70 playable wrestlers❗️<a href='https://techblock.club/?p=5861'> link</a>
+👉Job Listings Show Naughty Dog is Hiring for Its Next Narrative-Driven Project❗️<a href='https://techblock.club/?p=5881'> link</a>
 
-👉🏽JBL Club series headphones with JBL Pro Sound launched in India, prices start at Rs 11999❗️<a href='https://techblock.club/?p=5863'> link</a>
+👉🏽Samsung Galaxy S30 could borrow one of the worst things about iPhone 12❗️<a href='https://techblock.club/?p=5883'> link</a>
 
-👉🏿Improve your home Wi-Fi with the excellent Eero Mesh 3-pack for $169, plus free Echo Dot❗️<a href='https://techblock.club/?p=5865'> link</a>
+👉🏿AMD Ryzen 7 Extreme Edition CPU pops up in a laptop – but what's 'extreme' about it remains a mystery❗️<a href='https://techblock.club/?p=5885'> link</a>
 
