@@ -1,20 +1,20 @@
-<b>Technology NEWS on Thursday, July 9th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Friday, July 10th, 2020</b> 📡📡📡 
 
-👉[Update: Confirmed] Google Maps tests showing traffic lights on streets❗️<a href='https://techblock.club/?p=5869'> link</a>
+👉Deadly Premonition 2 leans into the best and worst parts of the original cult classic❗️<a href='https://techblock.club/?p=5889'> link</a>
 
-👉🏽Electronics Deals – July 9, 2020: Eureka, Amazon, Samsung & More❗️<a href='https://techblock.club/?p=5871'> link</a>
+👉🏽Lenovo Flex 5 Chromebook Review❗️<a href='https://techblock.club/?p=5891'> link</a>
 
-👉🏿Google's upcoming Nest speaker revealed in regulatory filing❗️<a href='https://techblock.club/?p=5873'> link</a>
+👉🏿Liquid metal synthesis for better piezoelectrics: Atomically-thin tin-monosulfide❗️<a href='https://techblock.club/?p=5893'> link</a>
 
-👉Tetris is now a daily game show with cash prizes❗️<a href='https://techblock.club/?p=5875'> link</a>
+👉New Windows 10 security feature protects PCs against data-stealing malware❗️<a href='https://techblock.club/?p=5895'> link</a>
 
-👉🏽Poco M2 Pro vs Redmi Note 9 Pro vs Realme 6: Which Is the Best Phone Under Rs. 15000?❗️<a href='https://techblock.club/?p=5877'> link</a>
+👉🏽Time-bending Murder Mystery 'The Invisible Hours' Coming Soon to Quest❗️<a href='https://techblock.club/?p=5897'> link</a>
 
-👉🏿All-black PS5 concept is the design the console needs❗️<a href='https://techblock.club/?p=5879'> link</a>
+👉🏿WATCH: Little girl caught 'stealing' snacks and pretends to be 'asleep'❗️<a href='https://techblock.club/?p=5899'> link</a>
 
-👉Job Listings Show Naughty Dog is Hiring for Its Next Narrative-Driven Project❗️<a href='https://techblock.club/?p=5881'> link</a>
+👉4 reasons not to install the iOS 14 and iPadOS 14 beta right away❗️<a href='https://techblock.club/?p=5901'> link</a>
 
-👉🏽Samsung Galaxy S30 could borrow one of the worst things about iPhone 12❗️<a href='https://techblock.club/?p=5883'> link</a>
+👉🏽Know Most Current Update Will the Chevrolet SS keep its own market value?❗️<a href='https://techblock.club/?p=5903'> link</a>
 
-👉🏿AMD Ryzen 7 Extreme Edition CPU pops up in a laptop – but what's 'extreme' about it remains a mystery❗️<a href='https://techblock.club/?p=5885'> link</a>
+👉🏿New iPhone App Lets Video Game Characters Copy Your Emotions❗️<a href='https://techblock.club/?p=5905'> link</a>
 
