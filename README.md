@@ -1,20 +1,20 @@
-<b>Technology NEWS on Friday, July 10th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Saturday, July 11th, 2020</b> 📡📡📡 
 
-👉Deadly Premonition 2 leans into the best and worst parts of the original cult classic❗️<a href='https://techblock.club/?p=5889'> link</a>
+👉Tencent Is in Exclusive Talks to Acquire Gears Tactics and Warframe Parent Company, Leyou❗️<a href='https://techblock.club/?p=5909'> link</a>
 
-👉🏽Lenovo Flex 5 Chromebook Review❗️<a href='https://techblock.club/?p=5891'> link</a>
+👉🏽Top Stories: iOS 14 Public Beta, iPhone 12 Size Comparison, 14-Inch MacBook Pro Rumors❗️<a href='https://techblock.club/?p=5911'> link</a>
 
-👉🏿Liquid metal synthesis for better piezoelectrics: Atomically-thin tin-monosulfide❗️<a href='https://techblock.club/?p=5893'> link</a>
+👉🏿Persona 4 Golden surpasses half a million players on Steam❗️<a href='https://techblock.club/?p=5913'> link</a>
 
-👉New Windows 10 security feature protects PCs against data-stealing malware❗️<a href='https://techblock.club/?p=5895'> link</a>
+👉Amazon's New World MMO delayed following Crucible beta switch❗️<a href='https://techblock.club/?p=5915'> link</a>
 
-👉🏽Time-bending Murder Mystery 'The Invisible Hours' Coming Soon to Quest❗️<a href='https://techblock.club/?p=5897'> link</a>
+👉🏽EA Sports UFC 4 Revealed Early, Coming To Xbox One In August❗️<a href='https://techblock.club/?p=5917'> link</a>
 
-👉🏿WATCH: Little girl caught 'stealing' snacks and pretends to be 'asleep'❗️<a href='https://techblock.club/?p=5899'> link</a>
+👉🏿LG launches GX soundbar with Dolby Atmos support❗️<a href='https://techblock.club/?p=5919'> link</a>
 
-👉4 reasons not to install the iOS 14 and iPadOS 14 beta right away❗️<a href='https://techblock.club/?p=5901'> link</a>
+👉Cyberpunk 2077 won't be available on Xbox Game Pass at launch❗️<a href='https://techblock.club/?p=5921'> link</a>
 
-👉🏽Know Most Current Update Will the Chevrolet SS keep its own market value?❗️<a href='https://techblock.club/?p=5903'> link</a>
+👉🏽Asus TUF Gaming A17 vs. Lenovo IdeaPad Gaming 3i: Which gaming laptop wins?❗️<a href='https://techblock.club/?p=5923'> link</a>
 
-👉🏿New iPhone App Lets Video Game Characters Copy Your Emotions❗️<a href='https://techblock.club/?p=5905'> link</a>
+👉🏿This weekend, you can still save $30 on the Apple AirPods Pro at Verizon❗️<a href='https://techblock.club/?p=5925'> link</a>
 
