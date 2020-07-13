@@ -1,20 +1,20 @@
-<b>Technology NEWS on Sunday, July 12th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Monday, July 13th, 2020</b> 📡📡📡 
 
-👉Man Finds Mysterious Green Insect On The Street❗️<a href='https://techblock.club/?p=5929'> link</a>
+👉iPhone Users Who Experienced 'Batterygate' Can Now File to Receive Around $25 Settlement From Apple❗️<a href='https://techblock.club/?p=5949'> link</a>
 
-👉🏽Electric Lincoln Rendering Is A More Luxurious Mustang Mach-E❗️<a href='https://techblock.club/?p=5931'> link</a>
+👉🏽Microsoft Flight Simulator will launch on August 18th on PC❗️<a href='https://techblock.club/?p=5951'> link</a>
 
-👉🏿Xiaomi Patent Shows Incredible Wraparound Display Design, 'Huge' 108MP Camera❗️<a href='https://techblock.club/?p=5933'> link</a>
+👉🏿MSI Bravo 15 Review❗️<a href='https://techblock.club/?p=5953'> link</a>
 
-👉Paper Mario: The Origami King leaks online; spoilers start to spread❗️<a href='https://techblock.club/?p=5935'> link</a>
+👉Lenovo IdeaPad 3 Chromebook Review❗️<a href='https://techblock.club/?p=5955'> link</a>
 
-👉🏽Far Cry 6 Confirmed, Full Trailer Leaks Ahead Of Today's Show❗️<a href='https://techblock.club/?p=5937'> link</a>
+👉🏽Watch Dogs 2 For PC Is Free For Everyone--Here's How To Claim It❗️<a href='https://techblock.club/?p=5957'> link</a>
 
-👉🏿How to watch Ubisoft's Forward game conference❗️<a href='https://techblock.club/?p=5939'> link</a>
+👉🏿iOS 14 Not Your Cup Of Tea? Here's How To Revert To iOS 13❗️<a href='https://techblock.club/?p=5959'> link</a>
 
-👉Ubisoft Forward: Start Time And How To Watch Today's Ubisoft Event❗️<a href='https://techblock.club/?p=5941'> link</a>
+👉Samsung QLED TVs Are Deeply Discounted Right Now❗️<a href='https://techblock.club/?p=5961'> link</a>
 
-👉🏽Vivo X50 series to launch in India on July 16, confirms company❗️<a href='https://techblock.club/?p=5943'> link</a>
+👉🏽Linux founder tells Intel to stop inventing 'magic instructions' and 'start fixing real problems'❗️<a href='https://techblock.club/?p=5963'> link</a>
 
-👉🏿Bluetooth Earbuds vs Overear Earphones❗️<a href='https://techblock.club/?p=5945'> link</a>
+👉🏿Check out the new trailer for the haunting NieR Reincarnation❗️<a href='https://techblock.club/?p=5965'> link</a>
 
