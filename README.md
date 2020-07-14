@@ -1,20 +1,20 @@
-<b>Technology NEWS on Monday, July 13th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Tuesday, July 14th, 2020</b> 📡📡📡 
 
-👉iPhone Users Who Experienced 'Batterygate' Can Now File to Receive Around $25 Settlement From Apple❗️<a href='https://techblock.club/?p=5949'> link</a>
+👉Major news organizations use digital watermarking to fight fake election news❗️<a href='https://techblock.club/?p=5969'> link</a>
 
-👉🏽Microsoft Flight Simulator will launch on August 18th on PC❗️<a href='https://techblock.club/?p=5951'> link</a>
+👉🏽MacRumors Exclusive: Save Up to 30% on Anker's Best Wireless Chargers, USB-C Hubs, and More❗️<a href='https://techblock.club/?p=5971'> link</a>
 
-👉🏿MSI Bravo 15 Review❗️<a href='https://techblock.club/?p=5953'> link</a>
+👉🏿Malware stashed in China-mandated software is more extensive than thought❗️<a href='https://techblock.club/?p=5973'> link</a>
 
-👉Lenovo IdeaPad 3 Chromebook Review❗️<a href='https://techblock.club/?p=5955'> link</a>
+👉Snapchat testing TikTok-like swipe navigation for public videos❗️<a href='https://techblock.club/?p=5975'> link</a>
 
-👉🏽Watch Dogs 2 For PC Is Free For Everyone--Here's How To Claim It❗️<a href='https://techblock.club/?p=5957'> link</a>
+👉🏽Amazon's one-day Razer sale includes a $250 discount on the Blade Stealth❗️<a href='https://techblock.club/?p=5977'> link</a>
 
-👉🏿iOS 14 Not Your Cup Of Tea? Here's How To Revert To iOS 13❗️<a href='https://techblock.club/?p=5959'> link</a>
+👉🏿PUBG's next major update brings armored loot trucks to a reworked Sanhok❗️<a href='https://techblock.club/?p=5979'> link</a>
 
-👉Samsung QLED TVs Are Deeply Discounted Right Now❗️<a href='https://techblock.club/?p=5961'> link</a>
+👉Microsoft OneDrive bids farewell to file fetching feature❗️<a href='https://techblock.club/?p=5981'> link</a>
 
-👉🏽Linux founder tells Intel to stop inventing 'magic instructions' and 'start fixing real problems'❗️<a href='https://techblock.club/?p=5963'> link</a>
+👉🏽Verizon 5G Phones Take Off, But Coverage Is Still Lacking❗️<a href='https://techblock.club/?p=5983'> link</a>
 
-👉🏿Check out the new trailer for the haunting NieR Reincarnation❗️<a href='https://techblock.club/?p=5965'> link</a>
+👉🏿Booming Cryptocurrency Chainlink Recruited Into Fledgling Social Media War❗️<a href='https://techblock.club/?p=5985'> link</a>
 
