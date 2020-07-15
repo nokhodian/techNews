@@ -1,20 +1,20 @@
-<b>Technology NEWS on Tuesday, July 14th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Wednesday, July 15th, 2020</b> 📡📡📡 
 
-👉Major news organizations use digital watermarking to fight fake election news❗️<a href='https://techblock.club/?p=5969'> link</a>
+👉CD Projekt Red tribute shows Kojima as a Cyberpunk 2077 character❗️<a href='https://techblock.club/?p=5989'> link</a>
 
-👉🏽MacRumors Exclusive: Save Up to 30% on Anker's Best Wireless Chargers, USB-C Hubs, and More❗️<a href='https://techblock.club/?p=5971'> link</a>
+👉🏽Xiaomi Announces New Scooters, Gaming Monitor, & Fitness Band, Oh My!❗️<a href='https://techblock.club/?p=5991'> link</a>
 
-👉🏿Malware stashed in China-mandated software is more extensive than thought❗️<a href='https://techblock.club/?p=5973'> link</a>
+👉🏿Stock up on cheap SSDs, flash drives, SD cards, and more in Amazon's 24-hour storage sale❗️<a href='https://techblock.club/?p=5993'> link</a>
 
-👉Snapchat testing TikTok-like swipe navigation for public videos❗️<a href='https://techblock.club/?p=5975'> link</a>
+👉[Update: Out of beta] Mozilla launches a standalone VPN service for Android and Chromebook❗️<a href='https://techblock.club/?p=5995'> link</a>
 
-👉🏽Amazon's one-day Razer sale includes a $250 discount on the Blade Stealth❗️<a href='https://techblock.club/?p=5977'> link</a>
+👉🏽Google Nest Mini speakers are buy one, get one free for Verge readers❗️<a href='https://techblock.club/?p=5997'> link</a>
 
-👉🏿PUBG's next major update brings armored loot trucks to a reworked Sanhok❗️<a href='https://techblock.club/?p=5979'> link</a>
+👉🏿Xbox Game Pass adds Forager, Carrion, Grounded, The Touryst, Yakuza: Kiwami 2, and more in late July❗️<a href='https://techblock.club/?p=5999'> link</a>
 
-👉Microsoft OneDrive bids farewell to file fetching feature❗️<a href='https://techblock.club/?p=5981'> link</a>
+👉Apple's new ARM MacBooks to begin production later this year❗️<a href='https://techblock.club/?p=6001'> link</a>
 
-👉🏽Verizon 5G Phones Take Off, But Coverage Is Still Lacking❗️<a href='https://techblock.club/?p=5983'> link</a>
+👉🏽'I thought I didn't buy into horoscopes but Nasa changing everyone's star sign has thrown me'❗️<a href='https://techblock.club/?p=6003'> link</a>
 
-👉🏿Booming Cryptocurrency Chainlink Recruited Into Fledgling Social Media War❗️<a href='https://techblock.club/?p=5985'> link</a>
+👉🏿Mi True Wireless Earphones 2 Basic With Noise Cancellation, 5 Hours Battery Life Launched❗️<a href='https://techblock.club/?p=6005'> link</a>
 
