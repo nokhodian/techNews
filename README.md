@@ -1,20 +1,20 @@
-<b>Technology NEWS on Thursday, July 16th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Friday, July 17th, 2020</b> 📡📡📡 
 
-👉Check Point helps Zoom resolve "Vanity URL" security problem❗️<a href='https://techblock.club/?p=6009'> link</a>
+👉How to set up and use a VPN❗️<a href='https://techblock.club/?p=6029'> link</a>
 
-👉🏽Another Online Listing for This Year's Call of Duty Surfaces Under Familiar Codename❗️<a href='https://techblock.club/?p=6011'> link</a>
+👉🏽Audi bids farewell to entry-level R8 V10 in the US with limited-run variant❗️<a href='https://techblock.club/?p=6031'> link</a>
 
-👉🏿Mozilla's new $5/month VPN offers a 'no-nonsense' privacy policy❗️<a href='https://techblock.club/?p=6013'> link</a>
+👉🏿PUBG Mobile Launches Running Challenge for Players to Contribute to COVID-19 Aid❗️<a href='https://techblock.club/?p=6033'> link</a>
 
-👉Ethics before profits: What it will take to have global access to COVID-19 vaccine❗️<a href='https://techblock.club/?p=6015'> link</a>
+👉Microsoft Lays Out a Player-Centric Vision of Gaming's Future❗️<a href='https://techblock.club/?p=6035'> link</a>
 
-👉🏽Dr Disrespect says he will not return to Twitch after he was abruptly banned❗️<a href='https://techblock.club/?p=6017'> link</a>
+👉🏽Check Out The Samsung Galaxy Note 20 From Every Angle❗️<a href='https://techblock.club/?p=6037'> link</a>
 
-👉🏿Microsoft to launch xCloud streaming free with Xbox Game Pass Ultimate in September❗️<a href='https://techblock.club/?p=6019'> link</a>
+👉🏿'Fortnite' Waterfall at Gorgeous Gorge Location Aquaman Curry Skin Guide❗️<a href='https://techblock.club/?p=6039'> link</a>
 
-👉No Man's Sky 'Desolation' update now available❗️<a href='https://techblock.club/?p=6021'> link</a>
+👉Blackmagic Design Releases URSA Mini Pro 12K, Video Assist 3G, UltraStudio Monitor 3G and UltraStudio Recorder 3G❗️<a href='https://techblock.club/?p=6041'> link</a>
 
-👉🏽New multi-branching FMV game 'Gamer Girl' Announced❗️<a href='https://techblock.club/?p=6023'> link</a>
+👉🏽Worms Armageddon Is Getting A Free Update With A 6-Player Mode❗️<a href='https://techblock.club/?p=6043'> link</a>
 
-👉🏿Lenovo's new AMD-powered Legions could be the ultimate budget gaming laptops❗️<a href='https://techblock.club/?p=6025'> link</a>
+👉🏿An ode to Ghost of Tsushima's katana❗️<a href='https://techblock.club/?p=6045'> link</a>
 
