@@ -1,20 +1,20 @@
-<b>Technology NEWS on Friday, July 17th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Saturday, July 18th, 2020</b> 📡📡📡 
 
-👉How to set up and use a VPN❗️<a href='https://techblock.club/?p=6029'> link</a>
+👉Fortnite: How to unlock every Aquaman skin❗️<a href='https://techblock.club/?p=6049'> link</a>
 
-👉🏽Audi bids farewell to entry-level R8 V10 in the US with limited-run variant❗️<a href='https://techblock.club/?p=6031'> link</a>
+👉🏽Microsoft Flight Simulator and 3 different editions revealed, know all details❗️<a href='https://techblock.club/?p=6051'> link</a>
 
-👉🏿PUBG Mobile Launches Running Challenge for Players to Contribute to COVID-19 Aid❗️<a href='https://techblock.club/?p=6033'> link</a>
+👉🏿Apple iPhone assembler Pegatron to set up plant in India; check details❗️<a href='https://techblock.club/?p=6053'> link</a>
 
-👉Microsoft Lays Out a Player-Centric Vision of Gaming's Future❗️<a href='https://techblock.club/?p=6035'> link</a>
+👉Riot sends secret message to Valorant hackers using Vanguard❗️<a href='https://techblock.club/?p=6055'> link</a>
 
-👉🏽Check Out The Samsung Galaxy Note 20 From Every Angle❗️<a href='https://techblock.club/?p=6037'> link</a>
+👉🏽This week's top stories: Gmail redesign revealed, Pixel 4a render leaked, OnePlus Nord specs, more❗️<a href='https://techblock.club/?p=6057'> link</a>
 
-👉🏿'Fortnite' Waterfall at Gorgeous Gorge Location Aquaman Curry Skin Guide❗️<a href='https://techblock.club/?p=6039'> link</a>
+👉🏿9 Best Laptops For GTA❗️<a href='https://techblock.club/?p=6059'> link</a>
 
-👉Blackmagic Design Releases URSA Mini Pro 12K, Video Assist 3G, UltraStudio Monitor 3G and UltraStudio Recorder 3G❗️<a href='https://techblock.club/?p=6041'> link</a>
+👉Top Stories: Apple Warns About MacBook Webcam Covers, iOS 13.6 Released, Apple Hacked on Twitter❗️<a href='https://techblock.club/?p=6061'> link</a>
 
-👉🏽Worms Armageddon Is Getting A Free Update With A 6-Player Mode❗️<a href='https://techblock.club/?p=6043'> link</a>
+👉🏽Get Paper Mario: The Origami King For $10 At Launch❗️<a href='https://techblock.club/?p=6063'> link</a>
 
-👉🏿An ode to Ghost of Tsushima's katana❗️<a href='https://techblock.club/?p=6045'> link</a>
+👉🏿Strauss & Wagner SW-ANCBT501 Wireless Over-Ear Headphones review❗️<a href='https://techblock.club/?p=6065'> link</a>
 
