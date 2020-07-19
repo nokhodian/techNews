@@ -1,20 +1,20 @@
-<b>Technology NEWS on Saturday, July 18th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Sunday, July 19th, 2020</b> 📡📡📡 
 
-👉Fortnite: How to unlock every Aquaman skin❗️<a href='https://techblock.club/?p=6049'> link</a>
+👉This week's top stories: iOS 13.6 released with Car Key, Apple previews new emoji, more❗️<a href='https://techblock.club/?p=6069'> link</a>
 
-👉🏽Microsoft Flight Simulator and 3 different editions revealed, know all details❗️<a href='https://techblock.club/?p=6051'> link</a>
+👉🏽Ghost Of Tsushima Sly Cooper Costume: How To Unlock Toughest Trophy❗️<a href='https://techblock.club/?p=6071'> link</a>
 
-👉🏿Apple iPhone assembler Pegatron to set up plant in India; check details❗️<a href='https://techblock.club/?p=6053'> link</a>
+👉🏿Halo Infinite Teases The Master Chief's Return Ahead Of July Xbox Event❗️<a href='https://techblock.club/?p=6073'> link</a>
 
-👉Riot sends secret message to Valorant hackers using Vanguard❗️<a href='https://techblock.club/?p=6055'> link</a>
+👉Original Content podcast: 'The Old Guard' is extremely dumb fun❗️<a href='https://techblock.club/?p=6075'> link</a>
 
-👉🏽This week's top stories: Gmail redesign revealed, Pixel 4a render leaked, OnePlus Nord specs, more❗️<a href='https://techblock.club/?p=6057'> link</a>
+👉🏽Destiny 2's Pyramids Are Building Something In The Tree Of Silver Wings❗️<a href='https://techblock.club/?p=6077'> link</a>
 
-👉🏿9 Best Laptops For GTA❗️<a href='https://techblock.club/?p=6059'> link</a>
+👉🏿I flew around London on a drone and it was the most fun I've had in Watch Dogs❗️<a href='https://techblock.club/?p=6079'> link</a>
 
-👉Top Stories: Apple Warns About MacBook Webcam Covers, iOS 13.6 Released, Apple Hacked on Twitter❗️<a href='https://techblock.club/?p=6061'> link</a>
+👉Free Bloodborne demake with Zelda-like graphics is available for download❗️<a href='https://techblock.club/?p=6081'> link</a>
 
-👉🏽Get Paper Mario: The Origami King For $10 At Launch❗️<a href='https://techblock.club/?p=6063'> link</a>
+👉🏽Samsung Galaxy A21s update rolls out with July 2020 security patch❗️<a href='https://techblock.club/?p=6083'> link</a>
 
-👉🏿Strauss & Wagner SW-ANCBT501 Wireless Over-Ear Headphones review❗️<a href='https://techblock.club/?p=6065'> link</a>
+👉🏿Is PS4's 'Ghost Of Tsushima' The Most Beautiful Game Ever Made?❗️<a href='https://techblock.club/?p=6085'> link</a>
 
