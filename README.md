@@ -1,20 +1,20 @@
-<b>Technology NEWS on Sunday, July 19th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Monday, July 20th, 2020</b> 📡📡📡 
 
-👉This week's top stories: iOS 13.6 released with Car Key, Apple previews new emoji, more❗️<a href='https://techblock.club/?p=6069'> link</a>
+👉This Powerful Retro Handheld Almost Puts the N64 in Your Pocket❗️<a href='https://techblock.club/?p=6089'> link</a>
 
-👉🏽Ghost Of Tsushima Sly Cooper Costume: How To Unlock Toughest Trophy❗️<a href='https://techblock.club/?p=6071'> link</a>
+👉🏽Samsung's Galaxy Note 9 is cheaper than ever at Amazon❗️<a href='https://techblock.club/?p=6091'> link</a>
 
-👉🏿Halo Infinite Teases The Master Chief's Return Ahead Of July Xbox Event❗️<a href='https://techblock.club/?p=6073'> link</a>
+👉🏿Yakuza: Like a Dragon ESRB Rating Includes Blood, Violence, and Extreme Bondage❗️<a href='https://techblock.club/?p=6093'> link</a>
 
-👉Original Content podcast: 'The Old Guard' is extremely dumb fun❗️<a href='https://techblock.club/?p=6075'> link</a>
+👉The best soundbar to buy for 2020❗️<a href='https://techblock.club/?p=6095'> link</a>
 
-👉🏽Destiny 2's Pyramids Are Building Something In The Tree Of Silver Wings❗️<a href='https://techblock.club/?p=6077'> link</a>
+👉🏽'Ghost of Tsushima' Ending Guide: The Differences Between the 'Good' and 'Bad' Ending and How to Get Them❗️<a href='https://techblock.club/?p=6097'> link</a>
 
-👉🏿I flew around London on a drone and it was the most fun I've had in Watch Dogs❗️<a href='https://techblock.club/?p=6079'> link</a>
+👉🏿Sea of Thieves crosses 15 million players, over 1 million copies sold on Steam❗️<a href='https://techblock.club/?p=6099'> link</a>
 
-👉Free Bloodborne demake with Zelda-like graphics is available for download❗️<a href='https://techblock.club/?p=6081'> link</a>
+👉iPhone SE drove iPhone sales & upgrades during June quarter❗️<a href='https://techblock.club/?p=6101'> link</a>
 
-👉🏽Samsung Galaxy A21s update rolls out with July 2020 security patch❗️<a href='https://techblock.club/?p=6083'> link</a>
+👉🏽Get A New Pair Of Nintendo Switch Joy-Cons At Amazon, GameStop, And Target❗️<a href='https://techblock.club/?p=6103'> link</a>
 
-👉🏿Is PS4's 'Ghost Of Tsushima' The Most Beautiful Game Ever Made?❗️<a href='https://techblock.club/?p=6085'> link</a>
+👉🏿Metacritic Implements 36-Hour Delay for New Game User Reviews❗️<a href='https://techblock.club/?p=6105'> link</a>
 
