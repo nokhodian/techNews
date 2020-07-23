@@ -1,20 +1,20 @@
-<b>Technology NEWS on Wednesday, July 22nd, 2020</b> 📡📡📡 
+<b>Technology NEWS on Thursday, July 23rd, 2020</b> 📡📡📡 
 
-👉Dreams' PlayStation VR Support now Live, Goes on Sale❗️<a href='https://techblock.club/?p=6129'> link</a>
+👉Pump up the volume anywhere with this 24-hour sale on LG's portable Xboom speakers❗️<a href='https://techblock.club/?p=6149'> link</a>
 
-👉🏽Final Fantasy 14 director says he doesn't anticipate further delays due to the coronavirus❗️<a href='https://techblock.club/?p=6131'> link</a>
+👉🏽Get 30% off this already cheap little Bose competitor❗️<a href='https://techblock.club/?p=6151'> link</a>
 
-👉🏿Sony WF-1000XM3 TWS Earbuds May Launch in August in India, Expected Price Below Rs 20000❗️<a href='https://techblock.club/?p=6133'> link</a>
+👉🏿Xbox Series X Pre-Order Guide: Retailer Listings, When Will Pre-Orders Be Available, And More❗️<a href='https://techblock.club/?p=6153'> link</a>
 
-👉Facebook Messenger will allow users to unlock the app with their fingerprints and faces❗️<a href='https://techblock.club/?p=6135'> link</a>
+👉Samsung's next phones will come with scratch-resistant Gorilla Glass Victus❗️<a href='https://techblock.club/?p=6155'> link</a>
 
-👉🏽Hearthstone: Scholomance Academy card reveal — Boneweb Egg❗️<a href='https://techblock.club/?p=6137'> link</a>
+👉🏽Shin Megami Tensei III Nocturne HD Remaster Gets First PS4 Gameplay Showing Renewed Graphics❗️<a href='https://techblock.club/?p=6157'> link</a>
 
-👉🏿Adding an external GPU to your Mac is probably a better upgrade option than getting a new one❗️<a href='https://techblock.club/?p=6139'> link</a>
+👉🏿Realme V5 series teased online with 48MP quad-camera, L-shaped module❗️<a href='https://techblock.club/?p=6159'> link</a>
 
-👉Comprehensive study shows that playing video games does not make you violent❗️<a href='https://techblock.club/?p=6141'> link</a>
+👉Cyberpunk 2077- Latest quest completion details and side missions!❗️<a href='https://techblock.club/?p=6161'> link</a>
 
-👉🏽What is a periscope lens, and what would it mean for future iPhones?❗️<a href='https://techblock.club/?p=6143'> link</a>
+👉🏽Pandora's interactive voice ads now unlock premium audio features❗️<a href='https://techblock.club/?p=6163'> link</a>
 
-👉🏿Motorola Edge, unlocked for all US carriers, goes on pre-order starting at $500❗️<a href='https://techblock.club/?p=6145'> link</a>
+👉🏿Dragon Age 4 lead says the game is coming along, but working from home has made progress harder❗️<a href='https://techblock.club/?p=6165'> link</a>
 
