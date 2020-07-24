@@ -1,20 +1,20 @@
-<b>Technology NEWS on Thursday, July 23rd, 2020</b> 📡📡📡 
+<b>Technology NEWS on Friday, July 24th, 2020</b> 📡📡📡 
 
-👉Pump up the volume anywhere with this 24-hour sale on LG's portable Xboom speakers❗️<a href='https://techblock.club/?p=6149'> link</a>
+👉What Cyberpunk 2077's Badlands Screenshots Reveal About Gameplay❗️<a href='https://techblock.club/?p=6169'> link</a>
 
-👉🏽Get 30% off this already cheap little Bose competitor❗️<a href='https://techblock.club/?p=6151'> link</a>
+👉🏽Apple Pledges Complete Environmental Sustainability by 2030❗️<a href='https://techblock.club/?p=6171'> link</a>
 
-👉🏿Xbox Series X Pre-Order Guide: Retailer Listings, When Will Pre-Orders Be Available, And More❗️<a href='https://techblock.club/?p=6153'> link</a>
+👉🏿Apple Acquires More AI Startups Than Any Other Tech Company❗️<a href='https://techblock.club/?p=6173'> link</a>
 
-👉Samsung's next phones will come with scratch-resistant Gorilla Glass Victus❗️<a href='https://techblock.club/?p=6155'> link</a>
+👉Xbox Game Pass is Microsoft's true next-gen Xbox❗️<a href='https://techblock.club/?p=6175'> link</a>
 
-👉🏽Shin Megami Tensei III Nocturne HD Remaster Gets First PS4 Gameplay Showing Renewed Graphics❗️<a href='https://techblock.club/?p=6157'> link</a>
+👉🏽RHA TrueConnect 2 earbuds review: Doubling down on battery life❗️<a href='https://techblock.club/?p=6177'> link</a>
 
-👉🏿Realme V5 series teased online with 48MP quad-camera, L-shaped module❗️<a href='https://techblock.club/?p=6159'> link</a>
+👉🏿'Fortnite' Cars Update Delayed By Weeks & We're Unsure When They're Coming❗️<a href='https://techblock.club/?p=6179'> link</a>
 
-👉Cyberpunk 2077- Latest quest completion details and side missions!❗️<a href='https://techblock.club/?p=6161'> link</a>
+👉WhatsApp 'Linked Devices' feature coming soon: When will it come? How to use it❗️<a href='https://techblock.club/?p=6181'> link</a>
 
-👉🏽Pandora's interactive voice ads now unlock premium audio features❗️<a href='https://techblock.club/?p=6163'> link</a>
+👉🏽Ghost of Tsushima Has Best Launch of Any First-Party Original IP on PlayStation 4❗️<a href='https://techblock.club/?p=6183'> link</a>
 
-👉🏿Dragon Age 4 lead says the game is coming along, but working from home has made progress harder❗️<a href='https://techblock.club/?p=6165'> link</a>
+👉🏿Garmin app, website go offline after reported ransomware attack❗️<a href='https://techblock.club/?p=6185'> link</a>
 
