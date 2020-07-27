@@ -1,20 +1,20 @@
-<b>Technology NEWS on Sunday, July 26th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Monday, July 27th, 2020</b> 📡📡📡 
 
-👉Dr. Disrespect Could Bring Lawsuit Against Twitch After His Ban❗️<a href='https://techblock.club/?p=6209'> link</a>
+👉Samsung's Unpacked trailer gives a peek at its five new devices❗️<a href='https://techblock.club/?p=6229'> link</a>
 
-👉🏽Ghost of Tsushima: How to Use Photo Mode (The Easy Way)❗️<a href='https://techblock.club/?p=6211'> link</a>
+👉🏽Fortnite autos launch date: When are cars in Fortnite? When are Fortnite cars and trucks coming?❗️<a href='https://techblock.club/?p=6231'> link</a>
 
-👉🏿Phantasy Star Online 2: New Genesis Teaser Trailer & Follow Up Video❗️<a href='https://techblock.club/?p=6213'> link</a>
+👉🏿How to get an Echo Dot for a buck (some weasel words apply)❗️<a href='https://techblock.club/?p=6233'> link</a>
 
-👉Xiaomi POCO F2 Pro Review: Heavy-duty in hand, but with a good cam❗️<a href='https://techblock.club/?p=6215'> link</a>
+👉Google reportedly extends remote work policy through next summer❗️<a href='https://techblock.club/?p=6235'> link</a>
 
-👉🏽Realme V5 Launch Set for August 3, Specifications and Renders Spotted on E-commerce Website❗️<a href='https://techblock.club/?p=6217'> link</a>
+👉🏽Adobe Adds Refine Edge Brush and Rotate Canvas Tool to Photoshop for iPad❗️<a href='https://techblock.club/?p=6237'> link</a>
 
-👉🏿The US Plans To Develop An Unhackable Quantum Internet❗️<a href='https://techblock.club/?p=6219'> link</a>
+👉🏿Google rolls out Play Store search filters to more regions❗️<a href='https://techblock.club/?p=6239'> link</a>
 
-👉Random: Artist Shows Off Totally Rad Cyberpunk 2077 Game Boy Concept❗️<a href='https://techblock.club/?p=6221'> link</a>
+👉An unannounced new Xbox Series X color might've just leaked❗️<a href='https://techblock.club/?p=6241'> link</a>
 
-👉🏽As Dusk Falls announced | PC❗️<a href='https://techblock.club/?p=6223'> link</a>
+👉🏽The Medium PC requirements revealed❗️<a href='https://techblock.club/?p=6243'> link</a>
 
-👉🏿Doritos confirms Call of Duty Black Ops: Cold War is real❗️<a href='https://techblock.club/?p=6225'> link</a>
+👉🏿Google tweaks Chrome's lazy-loading images to help save more data❗️<a href='https://techblock.club/?p=6245'> link</a>
 
