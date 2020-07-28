@@ -1,20 +1,20 @@
-<b>Technology NEWS on Monday, July 27th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Tuesday, July 28th, 2020</b> 📡📡📡 
 
-👉Samsung's Unpacked trailer gives a peek at its five new devices❗️<a href='https://techblock.club/?p=6229'> link</a>
+👉Airbnb and ClassPass Claim Apple Wrongly Demanded Commission on Sales of Virtual Classes❗️<a href='https://techblock.club/?p=6249'> link</a>
 
-👉🏽Fortnite autos launch date: When are cars in Fortnite? When are Fortnite cars and trucks coming?❗️<a href='https://techblock.club/?p=6231'> link</a>
+👉🏽The More We Learn About 'Halo Infinite,' The More It Sounds Like 'Destiny'❗️<a href='https://techblock.club/?p=6251'> link</a>
 
-👉🏿How to get an Echo Dot for a buck (some weasel words apply)❗️<a href='https://techblock.club/?p=6233'> link</a>
+👉🏿Galaxy S20 Ultra vs. S10 Plus: I used both Samsung phones for a week❗️<a href='https://techblock.club/?p=6253'> link</a>
 
-👉Google reportedly extends remote work policy through next summer❗️<a href='https://techblock.club/?p=6235'> link</a>
+👉Mi 10 Pro Plus May Just Have Set a Massive AnTuTu Score, Tipped to Be Powered by Snapdragon 865❗️<a href='https://techblock.club/?p=6255'> link</a>
 
-👉🏽Adobe Adds Refine Edge Brush and Rotate Canvas Tool to Photoshop for iPad❗️<a href='https://techblock.club/?p=6237'> link</a>
+👉🏽[Update: July 2020] The best affordable Android phones you can buy today❗️<a href='https://techblock.club/?p=6257'> link</a>
 
-👉🏿Google rolls out Play Store search filters to more regions❗️<a href='https://techblock.club/?p=6239'> link</a>
+👉🏿Google To Build New Transatlantic Data Cable❗️<a href='https://techblock.club/?p=6259'> link</a>
 
-👉An unannounced new Xbox Series X color might've just leaked❗️<a href='https://techblock.club/?p=6241'> link</a>
+👉'NBA 2K21' On Next-Gen Consoles To Have 4x More Music❗️<a href='https://techblock.club/?p=6261'> link</a>
 
-👉🏽The Medium PC requirements revealed❗️<a href='https://techblock.club/?p=6243'> link</a>
+👉🏽Motorola Razr 2020's design plays it safe in a leaked render❗️<a href='https://techblock.club/?p=6263'> link</a>
 
-👉🏿Google tweaks Chrome's lazy-loading images to help save more data❗️<a href='https://techblock.club/?p=6245'> link</a>
+👉🏿Ghost of Tsushima Review❗️<a href='https://techblock.club/?p=6265'> link</a>
 
