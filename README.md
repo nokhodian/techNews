@@ -1,20 +1,20 @@
-<b>Technology NEWS on Wednesday, July 29th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Thursday, July 30th, 2020</b> 📡📡📡 
 
-👉Lamborghini motorsport squad reveals 830-horsepower Essenza SCV12❗️<a href='https://techblock.club/?p=6269'> link</a>
+👉Mi 10 Pro Plus Tipped to Come With Customisable GPU Feature Called Game Mode❗️<a href='https://techblock.club/?p=6289'> link</a>
 
-👉🏽Private Division Sign Publishing Agreements With Three Big Indie Studios❗️<a href='https://techblock.club/?p=6271'> link</a>
+👉🏽Amazon knocks $200 off the latest 13-inch MacBook Pro❗️<a href='https://techblock.club/?p=6291'> link</a>
 
-👉🏿2020 Emmy Nominations Criticized by Hispanic Caucus for 'Erasure' of Latinx Actors❗️<a href='https://techblock.club/?p=6273'> link</a>
+👉🏿Animal Crossing: New Horizons Camera Glitch Is Back As An Official Feature❗️<a href='https://techblock.club/?p=6293'> link</a>
 
-👉Horizon Zero Dawn PC requirements: Here's what Aloy needs from you❗️<a href='https://techblock.club/?p=6275'> link</a>
+👉Where To Buy A Nintendo Switch Or Switch Lite❗️<a href='https://techblock.club/?p=6295'> link</a>
 
-👉🏽These Rad Nike Shoes Are Inspired By Gamer Culture❗️<a href='https://techblock.club/?p=6277'> link</a>
+👉🏽What GTA Online's DLC Mall Update Could Include❗️<a href='https://techblock.club/?p=6297'> link</a>
 
-👉🏿iPhone 11 vs. iPhone XR: Find out which phone is the better value❗️<a href='https://techblock.club/?p=6279'> link</a>
+👉🏿Bulletstorm and Gears of War developer announce new AAA action-adventure title❗️<a href='https://techblock.club/?p=6299'> link</a>
 
-👉Mac OS 8 Emulator Available as a Downloadable App❗️<a href='https://techblock.club/?p=6281'> link</a>
+👉Tony Hawk's Pro Skater Let Its Stars Pretend They Were Superman❗️<a href='https://techblock.club/?p=6301'> link</a>
 
-👉🏽Dedicated new BTCC game to be released in 2022❗️<a href='https://techblock.club/?p=6283'> link</a>
+👉🏽Vivo joins forces with Acculi Labs to develop Covid-19 app for faster detection❗️<a href='https://techblock.club/?p=6303'> link</a>
 
-👉🏿The Pixel 4 obliterates the OnePlus Nord in camera comparison❗️<a href='https://techblock.club/?p=6285'> link</a>
+👉🏿Samurai Shodown will welcome Honor of Kings' Gongsung Li as free DLC next week❗️<a href='https://techblock.club/?p=6305'> link</a>
 
