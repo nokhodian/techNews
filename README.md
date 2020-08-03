@@ -1,20 +1,20 @@
-<b>Technology NEWS on Sunday, August 2nd, 2020</b> 📡📡📡 
+<b>Technology NEWS on Monday, August 3rd, 2020</b> 📡📡📡 
 
-👉Nokia C3 Appears On Geekbench And Here Are The Details Of The Device❗️<a href='https://techblock.club/?p=6349'> link</a>
+👉Sony Hosting New State Of Play This Week, But Don't Expect PS5 News❗️<a href='https://techblock.club/?p=6369'> link</a>
 
-👉🏽Oppo Reno 4 Pro with Snapdragon 720G, quad rear cameras launched in India: price and specs❗️<a href='https://techblock.club/?p=6351'> link</a>
+👉🏽What is UV light and can it kill the coronavirus? Here's everything you need to know❗️<a href='https://techblock.club/?p=6371'> link</a>
 
-👉🏿Apple Watch 6 leak reveals a battery boost❗️<a href='https://techblock.club/?p=6353'> link</a>
+👉🏿When will Grounded be fully released?❗️<a href='https://techblock.club/?p=6373'> link</a>
 
-👉Warframe's Heart Of Deimos Will Add Chaotic Open-World, New Frame Upgrade System❗️<a href='https://techblock.club/?p=6355'> link</a>
+👉Lamborghini Essenza SCV12: stay off the road, this hypercar is purely for the track❗️<a href='https://techblock.club/?p=6375'> link</a>
 
-👉🏽5 Big PS4 Exclusive Games We Would Love to See on PC❗️<a href='https://techblock.club/?p=6357'> link</a>
+👉🏽AirPods Pro flash sale: $199 for a limited time❗️<a href='https://techblock.club/?p=6377'> link</a>
 
-👉🏿Chrome test could discourage websites from abusing push notifications❗️<a href='https://techblock.club/?p=6359'> link</a>
+👉🏿PS5 Pro could be in the works with these big upgrades❗️<a href='https://techblock.club/?p=6379'> link</a>
 
-👉Some Chromebook owners now get three months of Stadia Pro for free❗️<a href='https://techblock.club/?p=6361'> link</a>
+👉JBL UA True Wireless Flash X Review❗️<a href='https://techblock.club/?p=6381'> link</a>
 
-👉🏽BioWare Details Anthem Reboot Loot System, Looks Similar to Destiny❗️<a href='https://techblock.club/?p=6363'> link</a>
+👉🏽Amazon to launch 3000 internet satellites into orbit❗️<a href='https://techblock.club/?p=6383'> link</a>
 
-👉🏿Bag a 2019 MacBook Pro for as little as $899.99 today only❗️<a href='https://techblock.club/?p=6365'> link</a>
+👉🏿Asus ROG Strix G15 review: The gaming laptop that glows❗️<a href='https://techblock.club/?p=6385'> link</a>
 
