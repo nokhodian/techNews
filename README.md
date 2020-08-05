@@ -1,20 +1,20 @@
-<b>Technology NEWS on Tuesday, August 4th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Wednesday, August 5th, 2020</b> 📡📡📡 
 
-👉Huawei unleashes P40+ Pro 5G smartphone in Australia❗️<a href='https://techblock.club/?p=6389'> link</a>
+👉Samsung announces Galaxy Watch 3: Thinner, lighter, and built to take on the Apple Watch❗️<a href='https://techblock.club/?p=6409'> link</a>
 
-👉🏽Akai Releases MPK mini Mk3❗️<a href='https://techblock.club/?p=6391'> link</a>
+👉🏽Note 20 and Note 20 Ultra: Siren or cyclops? First impressions of Samsung's new power phones❗️<a href='https://techblock.club/?p=6411'> link</a>
 
-👉🏿Starfinder is an interactive Alexa voice game starring Laura Bailey❗️<a href='https://techblock.club/?p=6393'> link</a>
+👉🏿Microsoft Flags Windows 10 Host File Telemetry Data Blocking As Security Threat❗️<a href='https://techblock.club/?p=6413'> link</a>
 
-👉Anti-Gravity Racer 'PACER' Is Nearly Here–And Looks Like A Classic Already❗️<a href='https://techblock.club/?p=6395'> link</a>
+👉Get Google's Nest WiFi router and one access point for $199❗️<a href='https://techblock.club/?p=6415'> link</a>
 
-👉🏽Here's What Samsung's New Convertible Wireless Charger Looks Like❗️<a href='https://techblock.club/?p=6397'> link</a>
+👉🏽Hunting bugs for Microsoft could make for a seriously lucrative career❗️<a href='https://techblock.club/?p=6417'> link</a>
 
-👉🏿New 'Warzone,' 'Modern Warfare' Season 5 Trailer Released, Patch Still Massive❗️<a href='https://techblock.club/?p=6399'> link</a>
+👉🏿NVIDIA GeForce RTX 2070 Super Reportedly Discontinued As Ampere Ramps For September Launch❗️<a href='https://techblock.club/?p=6419'> link</a>
 
-👉Grounded combat guide: How to kill spiders❗️<a href='https://techblock.club/?p=6401'> link</a>
+👉Final Fantasy VII HD is coming to Xbox Game Pass this month❗️<a href='https://techblock.club/?p=6421'> link</a>
 
-👉🏽Olympus Announces OM-D E-M10 IV with New 20MP Sensor❗️<a href='https://techblock.club/?p=6403'> link</a>
+👉🏽Nintendo Official UK Store Gets A Switch Restock, Including The Elusive Coral Switch Lite❗️<a href='https://techblock.club/?p=6423'> link</a>
 
-👉🏿Does your MacBook say it's 'Not charging?' — Here's why❗️<a href='https://techblock.club/?p=6405'> link</a>
+👉🏿Detroit: Become Human Exceeds 5 Million Copies Sold Following Steam Release❗️<a href='https://techblock.club/?p=6425'> link</a>
 
