@@ -1,20 +1,20 @@
-<b>Technology NEWS on Wednesday, August 5th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Thursday, August 6th, 2020</b> 📡📡📡 
 
-👉Samsung announces Galaxy Watch 3: Thinner, lighter, and built to take on the Apple Watch❗️<a href='https://techblock.club/?p=6409'> link</a>
+👉Galaxy Tab S7 Plus first look: The business device to buy for S Pen use❗️<a href='https://techblock.club/?p=6429'> link</a>
 
-👉🏽Note 20 and Note 20 Ultra: Siren or cyclops? First impressions of Samsung's new power phones❗️<a href='https://techblock.club/?p=6411'> link</a>
+👉🏽Samsung Galaxy Buds Live review: cool beans❗️<a href='https://techblock.club/?p=6431'> link</a>
 
-👉🏿Microsoft Flags Windows 10 Host File Telemetry Data Blocking As Security Threat❗️<a href='https://techblock.club/?p=6413'> link</a>
+👉🏿Horizon Zero Dawn On PC Is Magical❗️<a href='https://techblock.club/?p=6433'> link</a>
 
-👉Get Google's Nest WiFi router and one access point for $199❗️<a href='https://techblock.club/?p=6415'> link</a>
+👉Timex brings back the 80s with the TM80 PAC-MAN❗️<a href='https://techblock.club/?p=6435'> link</a>
 
-👉🏽Hunting bugs for Microsoft could make for a seriously lucrative career❗️<a href='https://techblock.club/?p=6417'> link</a>
+👉🏽The best Roku of 2020❗️<a href='https://techblock.club/?p=6437'> link</a>
 
-👉🏿NVIDIA GeForce RTX 2070 Super Reportedly Discontinued As Ampere Ramps For September Launch❗️<a href='https://techblock.club/?p=6419'> link</a>
+👉🏿Tasker 5.9.3 Brings Contact Via App, Dialogs, Sensor Actions, And More❗️<a href='https://techblock.club/?p=6439'> link</a>
 
-👉Final Fantasy VII HD is coming to Xbox Game Pass this month❗️<a href='https://techblock.club/?p=6421'> link</a>
+👉Core Meditation Trainer Review❗️<a href='https://techblock.club/?p=6441'> link</a>
 
-👉🏽Nintendo Official UK Store Gets A Switch Restock, Including The Elusive Coral Switch Lite❗️<a href='https://techblock.club/?p=6423'> link</a>
+👉🏽OWC Quick-Change Wheel Kit for 2019 Mac Pro Available for Pre-Order for Just $199❗️<a href='https://techblock.club/?p=6443'> link</a>
 
-👉🏿Detroit: Become Human Exceeds 5 Million Copies Sold Following Steam Release❗️<a href='https://techblock.club/?p=6425'> link</a>
+👉🏿'Fortnite' Maker Epic Games Announces $1.78 Billion Funding, Including $250 Million From Sony❗️<a href='https://techblock.club/?p=6445'> link</a>
 
