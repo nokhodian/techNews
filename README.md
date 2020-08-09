@@ -1,20 +1,20 @@
-<b>Technology NEWS on Saturday, August 8th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Sunday, August 9th, 2020</b> 📡📡📡 
 
-👉Apple Glass leak just revealed a killer feature❗️<a href='https://techblock.club/?p=6469'> link</a>
+👉15 new Android games from the week of August 3, 2020❗️<a href='https://techblock.club/?p=6489'> link</a>
 
-👉🏽Remedy's Next Game Will Be Connected To Control And Alan Wake❗️<a href='https://techblock.club/?p=6471'> link</a>
+👉🏽Scientists develop biodegradable flip-flops made from algae❗️<a href='https://techblock.club/?p=6491'> link</a>
 
-👉🏿MSI Gaming Laptop Is One Of The Best Platform To Buy Quality Gaming Gears❗️<a href='https://techblock.club/?p=6473'> link</a>
+👉🏿WarnerMedia Shares Update on Warner Bros. Interactive Entertainment❗️<a href='https://techblock.club/?p=6493'> link</a>
 
-👉PlayStation just made a big TV commercial push for Ghost of Tsushima❗️<a href='https://techblock.club/?p=6475'> link</a>
+👉AMD Patent Outlines big.LITTLE-Style Architecture For Future Hybrid CPU Designs❗️<a href='https://techblock.club/?p=6495'> link</a>
 
-👉🏽Top Stories: New 27-Inch iMac, macOS Big Sur Public Beta, No Microsoft xCloud for iOS❗️<a href='https://techblock.club/?p=6477'> link</a>
+👉🏽Huawei says it's running out of chips for its smartphones because of US sanctions❗️<a href='https://techblock.club/?p=6497'> link</a>
 
-👉🏿Sicko stomps on teen in disturbing video of Bronx sidewalk assault❗️<a href='https://techblock.club/?p=6479'> link</a>
+👉🏿Microsoft Flight Simulator Has a Massive File Size of 127 GB❗️<a href='https://techblock.club/?p=6499'> link</a>
 
-👉Keep your grooming game together during quarantine with these tools❗️<a href='https://techblock.club/?p=6481'> link</a>
+👉Taylor Swift, Dua Lipa, J. Cole, Bad Bunny And J Balvin: 5 Important Moves On This Week's Hot 100❗️<a href='https://techblock.club/?p=6501'> link</a>
 
-👉🏽Surface Duo renders fully reveal Samsung Galaxy Z Fold 2 rival❗️<a href='https://techblock.club/?p=6483'> link</a>
+👉🏽Marvel's Avengers creative director keeps door open for addition of X-Men❗️<a href='https://techblock.club/?p=6503'> link</a>
 
-👉🏿macOS Big Sur public beta is out for download now, but does your MacBook support❗️<a href='https://techblock.club/?p=6485'> link</a>
+👉🏿PlayStation 5 to outsell Xbox Series X by 2-to-1 margin, predicts research firm❗️<a href='https://techblock.club/?p=6505'> link</a>
 
