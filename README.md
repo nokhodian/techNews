@@ -1,20 +1,20 @@
-<b>Technology NEWS on Sunday, August 9th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Monday, August 10th, 2020</b> 📡📡📡 
 
-👉15 new Android games from the week of August 3, 2020❗️<a href='https://techblock.club/?p=6489'> link</a>
+👉Fall Guys: Ultimate Knockout review: A ton of fun, but does it have lasting appeal?❗️<a href='https://techblock.club/?p=6509'> link</a>
 
-👉🏽Scientists develop biodegradable flip-flops made from algae❗️<a href='https://techblock.club/?p=6491'> link</a>
+👉🏽Surface Duo launch could be days away: What we know so far❗️<a href='https://techblock.club/?p=6511'> link</a>
 
-👉🏿WarnerMedia Shares Update on Warner Bros. Interactive Entertainment❗️<a href='https://techblock.club/?p=6493'> link</a>
+👉🏿Michael Kors Watches At Upto 50% Off At Amazon Freedom Sale❗️<a href='https://techblock.club/?p=6513'> link</a>
 
-👉AMD Patent Outlines big.LITTLE-Style Architecture For Future Hybrid CPU Designs❗️<a href='https://techblock.club/?p=6495'> link</a>
+👉Meet Fawkes, the AI Engine That Is Blocking Face Recognition Systems From Spotting You❗️<a href='https://techblock.club/?p=6515'> link</a>
 
-👉🏽Huawei says it's running out of chips for its smartphones because of US sanctions❗️<a href='https://techblock.club/?p=6497'> link</a>
+👉🏽Ocarina Of Time Might Be Getting A Nintendo Switch Remake❗️<a href='https://techblock.club/?p=6517'> link</a>
 
-👉🏿Microsoft Flight Simulator Has a Massive File Size of 127 GB❗️<a href='https://techblock.club/?p=6499'> link</a>
+👉🏿OnePlus Nord Update Improves Camera, Display & Brings Fixes❗️<a href='https://techblock.club/?p=6519'> link</a>
 
-👉Taylor Swift, Dua Lipa, J. Cole, Bad Bunny And J Balvin: 5 Important Moves On This Week's Hot 100❗️<a href='https://techblock.club/?p=6501'> link</a>
+👉Maserati Ghibli, Quattroporte to Get Trofeo Trims with V-8 Engine❗️<a href='https://techblock.club/?p=6521'> link</a>
 
-👉🏽Marvel's Avengers creative director keeps door open for addition of X-Men❗️<a href='https://techblock.club/?p=6503'> link</a>
+👉🏽Xbox Series S Leak: New Evidence Of The Cheaper Next-Gen Xbox Emerges❗️<a href='https://techblock.club/?p=6523'> link</a>
 
-👉🏿PlayStation 5 to outsell Xbox Series X by 2-to-1 margin, predicts research firm❗️<a href='https://techblock.club/?p=6505'> link</a>
+👉🏿How to Watch the Cyberpunk 2077 Night City Wire Event❗️<a href='https://techblock.club/?p=6525'> link</a>
 
