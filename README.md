@@ -1,20 +1,20 @@
-<b>Technology NEWS on Monday, August 10th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Tuesday, August 11th, 2020</b> 📡📡📡 
 
-👉Fall Guys: Ultimate Knockout review: A ton of fun, but does it have lasting appeal?❗️<a href='https://techblock.club/?p=6509'> link</a>
+👉Sony's WH-1000XM3 wireless noise-canceling headphones are $100 off❗️<a href='https://techblock.club/?p=6529'> link</a>
 
-👉🏽Surface Duo launch could be days away: What we know so far❗️<a href='https://techblock.club/?p=6511'> link</a>
+👉🏽Xiaomi's Mi 10 Ultra promises an absurd 120x hybrid zoom❗️<a href='https://techblock.club/?p=6531'> link</a>
 
-👉🏿Michael Kors Watches At Upto 50% Off At Amazon Freedom Sale❗️<a href='https://techblock.club/?p=6513'> link</a>
+👉🏿The Last of Us Part 2 Is Getting a Grounded and Permadeath Mode❗️<a href='https://techblock.club/?p=6533'> link</a>
 
-👉Meet Fawkes, the AI Engine That Is Blocking Face Recognition Systems From Spotting You❗️<a href='https://techblock.club/?p=6515'> link</a>
+👉Moto Power Touch & Multi-Volume Apps Introduced With Moto G 5G Plus❗️<a href='https://techblock.club/?p=6535'> link</a>
 
-👉🏽Ocarina Of Time Might Be Getting A Nintendo Switch Remake❗️<a href='https://techblock.club/?p=6517'> link</a>
+👉🏽Google tests new profile cards that let you add yourself to search results❗️<a href='https://techblock.club/?p=6537'> link</a>
 
-👉🏿OnePlus Nord Update Improves Camera, Display & Brings Fixes❗️<a href='https://techblock.club/?p=6519'> link</a>
+👉🏿Nvidia announces GeForce event for September 1st with RTX 3080 rumors abound❗️<a href='https://techblock.club/?p=6539'> link</a>
 
-👉Maserati Ghibli, Quattroporte to Get Trofeo Trims with V-8 Engine❗️<a href='https://techblock.club/?p=6521'> link</a>
+👉S2G Ventures Launches Oceans and Seafood Strategy; Adds Kate Danaher and Larsen Mettler as Managing Directors❗️<a href='https://techblock.club/?p=6541'> link</a>
 
-👉🏽Xbox Series S Leak: New Evidence Of The Cheaper Next-Gen Xbox Emerges❗️<a href='https://techblock.club/?p=6523'> link</a>
+👉🏽How (and Why) to Create a Separate Windows Account Just for School❗️<a href='https://techblock.club/?p=6543'> link</a>
 
-👉🏿How to Watch the Cyberpunk 2077 Night City Wire Event❗️<a href='https://techblock.club/?p=6525'> link</a>
+👉🏿Hyper Scape Is Out Now: Season 1 Patch Notes Add Story Content❗️<a href='https://techblock.club/?p=6545'> link</a>
 
