@@ -1,20 +1,20 @@
-<b>Technology NEWS on Tuesday, August 11th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Wednesday, August 12th, 2020</b> 📡📡📡 
 
-👉Sony's WH-1000XM3 wireless noise-canceling headphones are $100 off❗️<a href='https://techblock.club/?p=6529'> link</a>
+👉Xiaomi Redmi G gaming laptop officially launches on August 14❗️<a href='https://techblock.club/?p=6549'> link</a>
 
-👉🏽Xiaomi's Mi 10 Ultra promises an absurd 120x hybrid zoom❗️<a href='https://techblock.club/?p=6531'> link</a>
+👉🏽Microsoft Surface Duo's design is winning me over, even without turning it on❗️<a href='https://techblock.club/?p=6551'> link</a>
 
-👉🏿The Last of Us Part 2 Is Getting a Grounded and Permadeath Mode❗️<a href='https://techblock.club/?p=6533'> link</a>
+👉🏿Is Fall Guys Coming To Xbox, Switch, Or Mobile?❗️<a href='https://techblock.club/?p=6553'> link</a>
 
-👉Moto Power Touch & Multi-Volume Apps Introduced With Moto G 5G Plus❗️<a href='https://techblock.club/?p=6535'> link</a>
+👉Omega Seamaster Diver 300M: James Bond watch gets platinum upgrade❗️<a href='https://techblock.club/?p=6555'> link</a>
 
-👉🏽Google tests new profile cards that let you add yourself to search results❗️<a href='https://techblock.club/?p=6537'> link</a>
+👉🏽Vivaldi 3.2 for Android launches with improved tracker and ad blocking❗️<a href='https://techblock.club/?p=6557'> link</a>
 
-👉🏿Nvidia announces GeForce event for September 1st with RTX 3080 rumors abound❗️<a href='https://techblock.club/?p=6539'> link</a>
+👉🏿Review in Progress: A Total War Saga: Troy❗️<a href='https://techblock.club/?p=6559'> link</a>
 
-👉S2G Ventures Launches Oceans and Seafood Strategy; Adds Kate Danaher and Larsen Mettler as Managing Directors❗️<a href='https://techblock.club/?p=6541'> link</a>
+👉Samsung Teams Up With AMD & ARM For Its Future Exynos Chipsets❗️<a href='https://techblock.club/?p=6561'> link</a>
 
-👉🏽How (and Why) to Create a Separate Windows Account Just for School❗️<a href='https://techblock.club/?p=6543'> link</a>
+👉🏽Control's New Ultimate Edition Is The Only Version With Free PS5/Xbox Series X Upgrades❗️<a href='https://techblock.club/?p=6563'> link</a>
 
-👉🏿Hyper Scape Is Out Now: Season 1 Patch Notes Add Story Content❗️<a href='https://techblock.club/?p=6545'> link</a>
+👉🏿Cyberpunk 2077: Dev Says It's A “Much Deeper Roleplaying Experience” Than The Witcher 3❗️<a href='https://techblock.club/?p=6565'> link</a>
 
