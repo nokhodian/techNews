@@ -1,20 +1,20 @@
-<b>Technology NEWS on Wednesday, August 12th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Thursday, August 13th, 2020</b> 📡📡📡 
 
-👉Xiaomi Redmi G gaming laptop officially launches on August 14❗️<a href='https://techblock.club/?p=6549'> link</a>
+👉LEGO Art Set Pre-Orders Are Live on Amazon❗️<a href='https://techblock.club/?p=6569'> link</a>
 
-👉🏽Microsoft Surface Duo's design is winning me over, even without turning it on❗️<a href='https://techblock.club/?p=6551'> link</a>
+👉🏽Tony Hawk's Pro Skater 1 + 2 Renames Trick To Properly Honor Its Deaf Creator❗️<a href='https://techblock.club/?p=6571'> link</a>
 
-👉🏿Is Fall Guys Coming To Xbox, Switch, Or Mobile?❗️<a href='https://techblock.club/?p=6553'> link</a>
+👉🏿Insurgency: Sandstorm Now Expected to Hit Consoles in the First Half of 2021❗️<a href='https://techblock.club/?p=6573'> link</a>
 
-👉Omega Seamaster Diver 300M: James Bond watch gets platinum upgrade❗️<a href='https://techblock.club/?p=6555'> link</a>
+👉Frustrated Chrome developers say they feel abandoned and stonewalled by Google❗️<a href='https://techblock.club/?p=6575'> link</a>
 
-👉🏽Vivaldi 3.2 for Android launches with improved tracker and ad blocking❗️<a href='https://techblock.club/?p=6557'> link</a>
+👉🏽The Netherlands has the fastest-growing electric vehicle charging network in the world❗️<a href='https://techblock.club/?p=6577'> link</a>
 
-👉🏿Review in Progress: A Total War Saga: Troy❗️<a href='https://techblock.club/?p=6559'> link</a>
+👉🏿MMO RPG Bless Unleashed Is Officially Coming To PS4, Closed Beta Test Announced❗️<a href='https://techblock.club/?p=6579'> link</a>
 
-👉Samsung Teams Up With AMD & ARM For Its Future Exynos Chipsets❗️<a href='https://techblock.club/?p=6561'> link</a>
+👉Apple Plans to Launch Fitness Subscription Service❗️<a href='https://techblock.club/?p=6581'> link</a>
 
-👉🏽Control's New Ultimate Edition Is The Only Version With Free PS5/Xbox Series X Upgrades❗️<a href='https://techblock.club/?p=6563'> link</a>
+👉🏽NASA receives laser beam back from moon❗️<a href='https://techblock.club/?p=6583'> link</a>
 
-👉🏿Cyberpunk 2077: Dev Says It's A “Much Deeper Roleplaying Experience” Than The Witcher 3❗️<a href='https://techblock.club/?p=6565'> link</a>
+👉🏿Epic offers new direct payment in Fortnite on iOS and Android to get around app store fees❗️<a href='https://techblock.club/?p=6585'> link</a>
 
