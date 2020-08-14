@@ -1,20 +1,20 @@
-<b>Technology NEWS on Thursday, August 13th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Friday, August 14th, 2020</b> 📡📡📡 
 
-👉LEGO Art Set Pre-Orders Are Live on Amazon❗️<a href='https://techblock.club/?p=6569'> link</a>
+👉Fall Guys and the Joy of Failure❗️<a href='https://techblock.club/?p=6589'> link</a>
 
-👉🏽Tony Hawk's Pro Skater 1 + 2 Renames Trick To Properly Honor Its Deaf Creator❗️<a href='https://techblock.club/?p=6571'> link</a>
+👉🏽Xiaomi Redmi 9 review: Entry-level (almost) done right❗️<a href='https://techblock.club/?p=6591'> link</a>
 
-👉🏿Insurgency: Sandstorm Now Expected to Hit Consoles in the First Half of 2021❗️<a href='https://techblock.club/?p=6573'> link</a>
+👉🏿Nintendo Switch was the top-selling console in July❗️<a href='https://techblock.club/?p=6593'> link</a>
 
-👉Frustrated Chrome developers say they feel abandoned and stonewalled by Google❗️<a href='https://techblock.club/?p=6575'> link</a>
+👉Take A Closer Look At OnePlus OxygenOS 11 UI: Gallery❗️<a href='https://techblock.club/?p=6595'> link</a>
 
-👉🏽The Netherlands has the fastest-growing electric vehicle charging network in the world❗️<a href='https://techblock.club/?p=6577'> link</a>
+👉🏽Horizon Zero Dawn Fixes Some Of Its Crashes On PC With Patch 1.01, Available Now❗️<a href='https://techblock.club/?p=6597'> link</a>
 
-👉🏿MMO RPG Bless Unleashed Is Officially Coming To PS4, Closed Beta Test Announced❗️<a href='https://techblock.club/?p=6579'> link</a>
+👉🏿Dying Light Revives An Old Game With Its Latest DLC, And It's Out Now❗️<a href='https://techblock.club/?p=6599'> link</a>
 
-👉Apple Plans to Launch Fitness Subscription Service❗️<a href='https://techblock.club/?p=6581'> link</a>
+👉Online video job are actually the brand-new regular and also LinkedIn possesses suggestions❗️<a href='https://techblock.club/?p=6601'> link</a>
 
-👉🏽NASA receives laser beam back from moon❗️<a href='https://techblock.club/?p=6583'> link</a>
+👉🏽Realme C12 vs Realme C11: Price, Specifications Compared❗️<a href='https://techblock.club/?p=6603'> link</a>
 
-👉🏿Epic offers new direct payment in Fortnite on iOS and Android to get around app store fees❗️<a href='https://techblock.club/?p=6585'> link</a>
+👉🏿Snapchat's latest custom Lenses are designed for dancing videos❗️<a href='https://techblock.club/?p=6605'> link</a>
 
