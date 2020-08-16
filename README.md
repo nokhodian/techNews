@@ -1,20 +1,20 @@
-<b>Technology NEWS on Saturday, August 15th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Sunday, August 16th, 2020</b> 📡📡📡 
 
-👉This PS5-ready cheap QLED mini-LED TV will have OLED TVs quaking on their stands❗️<a href='https://techblock.club/?p=6609'> link</a>
+👉Five changes we'd make to the Pixel 4a❗️<a href='https://techblock.club/?p=6631'> link</a>
 
-👉🏽Google is reportedly replacing Duo with Meet for video calling❗️<a href='https://techblock.club/?p=6611'> link</a>
+👉🏽Games of the Generation: Dragon Age Inquisition and the art of hiding a dragon❗️<a href='https://techblock.club/?p=6633'> link</a>
 
-👉🏿Amazon UK lists Need for Speed: Hot Pursuit Remastered for Xbox One and Switch❗️<a href='https://techblock.club/?p=6613'> link</a>
+👉🏿Endure your Tony Stark hopes along with these classy trendy glasses❗️<a href='https://techblock.club/?p=6635'> link</a>
 
-👉New Windows 10 Build 20190 will bring new post-update & improved graphics settings experiences❗️<a href='https://techblock.club/?p=6615'> link</a>
+👉Alyssa Milano Shares Startling Video of Hair Falling out Following COVID-19 Diagnosis❗️<a href='https://techblock.club/?p=6637'> link</a>
 
-👉🏽Top Stories: Epic Games vs. Apple, iPhone 12 Rumors, 'Apple One' Bundles❗️<a href='https://techblock.club/?p=6617'> link</a>
+👉🏽Review: Fast & Furious Crossroads❗️<a href='https://techblock.club/?p=6639'> link</a>
 
-👉🏿Nvidia RTX 3080 is coming soon – but what will it really be called?❗️<a href='https://techblock.club/?p=6619'> link</a>
+👉🏿iRobot's substantial-finish Roomba i7+ vacuum is again down to its cheapest value❗️<a href='https://techblock.club/?p=6641'> link</a>
 
-👉Save on Genki's Covert Dock, preowned games, and more this weekend❗️<a href='https://techblock.club/?p=6621'> link</a>
+👉Microsoft tells Windows 10 users they can never uninstall Edge. Wait, what?❗️<a href='https://techblock.club/?p=6643'> link</a>
 
-👉🏽Boom ready to roll out its first jet en route to carbon neutral supersonic travel❗️<a href='https://techblock.club/?p=6623'> link</a>
+👉🏽Rival Schools: The Beloved Fighter That Capcom Forgot About, Explained❗️<a href='https://techblock.club/?p=6645'> link</a>
 
-👉🏿Is this the makings of a Ferrari V6 hybrid, new Dino? (video)❗️<a href='https://techblock.club/?p=6625'> link</a>
+👉🏿New Sony VR headset just confirmed — is it for PS5?❗️<a href='https://techblock.club/?p=6647'> link</a>
 
