@@ -1,20 +1,20 @@
-<b>Technology NEWS on Monday, August 17th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Tuesday, August 18th, 2020</b> 📡📡📡 
 
-👉SpaceX plans to launch 11th batch of Starlink satellites Tuesday❗️<a href='https://techblock.club/?p=6651'> link</a>
+👉Ghost Mode Isn't Returning for Hitman 3, Hitman 2's Ghost Mode Servers Shutting Down Soon❗️<a href='https://techblock.club/?p=6671'> link</a>
 
-👉🏽Microsoft Took Two Years To Fix This Critical Zero-Day Windows Security Exploit❗️<a href='https://techblock.club/?p=6653'> link</a>
+👉🏽Valve update Steam rule to stop developers promoting other stores❗️<a href='https://techblock.club/?p=6673'> link</a>
 
-👉🏿5G Smartphones Could Crush Your Home Wi-Fi. So Where's the 5G?❗️<a href='https://techblock.club/?p=6655'> link</a>
+👉🏿Hisense's Ultra-Short Throw Android TV Projector Finally Hits Store Shelves❗️<a href='https://techblock.club/?p=6675'> link</a>
 
-👉Nintendo Indie World Showcase Happening This Week❗️<a href='https://techblock.club/?p=6657'> link</a>
+👉Motorola Razr 5G Battery Life Expected To Disappoint❗️<a href='https://techblock.club/?p=6677'> link</a>
 
-👉🏽2021 Ford GT Heritage Edition is chock full of vintage racing livery❗️<a href='https://techblock.club/?p=6659'> link</a>
+👉🏽Genshin Impact to Launch September 2020 on PC and Mobile with Pre-Registration Ongoing❗️<a href='https://techblock.club/?p=6679'> link</a>
 
-👉🏿Apple's latest Mac Mini drops to its lowest price ever on Amazon❗️<a href='https://techblock.club/?p=6661'> link</a>
+👉🏿Halo Infinite Development Troubles Outlined in New Report❗️<a href='https://techblock.club/?p=6681'> link</a>
 
-👉Google Assistant Features To Tweak For Better Privacy And User Experience❗️<a href='https://techblock.club/?p=6663'> link</a>
+👉Lenovo Yoga 7i, Yoga 6 revealed with Intel 11th Gen and AMD Ryzen CPUs❗️<a href='https://techblock.club/?p=6683'> link</a>
 
-👉🏽Intel's run at the GPU market begins with Tiger Lake onboard graphics❗️<a href='https://techblock.club/?p=6665'> link</a>
+👉🏽Elite: Dangerous Odyssey Doesn't Mean Frontier Is Finished with Elite's Space Exploration❗️<a href='https://techblock.club/?p=6685'> link</a>
 
-👉🏿Epic's Fortnite standoff is putting Apple's cash cow at risk❗️<a href='https://techblock.club/?p=6667'> link</a>
+👉🏿Facebook and NYU researchers discover a way to speed up MRI scans❗️<a href='https://techblock.club/?p=6687'> link</a>
 
