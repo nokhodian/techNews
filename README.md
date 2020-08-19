@@ -1,20 +1,20 @@
-<b>Technology NEWS on Tuesday, August 18th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Wednesday, August 19th, 2020</b> 📡📡📡 
 
-👉Ghost Mode Isn't Returning for Hitman 3, Hitman 2's Ghost Mode Servers Shutting Down Soon❗️<a href='https://techblock.club/?p=6671'> link</a>
+👉NASCAR and Zynga Bring Iconic Race Car to CSR Racing 2❗️<a href='https://techblock.club/?p=6691'> link</a>
 
-👉🏽Valve update Steam rule to stop developers promoting other stores❗️<a href='https://techblock.club/?p=6673'> link</a>
+👉🏽Inside Of Microsoft Surface Duo Shown Off In Video❗️<a href='https://techblock.club/?p=6693'> link</a>
 
-👉🏿Hisense's Ultra-Short Throw Android TV Projector Finally Hits Store Shelves❗️<a href='https://techblock.club/?p=6675'> link</a>
+👉🏿Deals: B&H Photo Offering Previous Generation 12.9-Inch iPad Pro (64GB, Cellular) for $669❗️<a href='https://techblock.club/?p=6695'> link</a>
 
-👉Motorola Razr 5G Battery Life Expected To Disappoint❗️<a href='https://techblock.club/?p=6677'> link</a>
+👉PS5 price and release date leak — but don't get too excited❗️<a href='https://techblock.club/?p=6697'> link</a>
 
-👉🏽Genshin Impact to Launch September 2020 on PC and Mobile with Pre-Registration Ongoing❗️<a href='https://techblock.club/?p=6679'> link</a>
+👉🏽10 Tricks to Make You a Pixel 4 or Pixel 4a Pro❗️<a href='https://techblock.club/?p=6699'> link</a>
 
-👉🏿Halo Infinite Development Troubles Outlined in New Report❗️<a href='https://techblock.club/?p=6681'> link</a>
+👉🏿Flip Camera Making A Comeback With The ASUS ZenFone 7; Details Leak❗️<a href='https://techblock.club/?p=6701'> link</a>
 
-👉Lenovo Yoga 7i, Yoga 6 revealed with Intel 11th Gen and AMD Ryzen CPUs❗️<a href='https://techblock.club/?p=6683'> link</a>
+👉Report: Halo Infinite Delay Partly Due to Focus on TV Show❗️<a href='https://techblock.club/?p=6703'> link</a>
 
-👉🏽Elite: Dangerous Odyssey Doesn't Mean Frontier Is Finished with Elite's Space Exploration❗️<a href='https://techblock.club/?p=6685'> link</a>
+👉🏽Realme X7, Realme X7 Pro launch on September 1: Here's what we know so far❗️<a href='https://techblock.club/?p=6705'> link</a>
 
-👉🏿Facebook and NYU researchers discover a way to speed up MRI scans❗️<a href='https://techblock.club/?p=6687'> link</a>
+👉🏿Baldur's Gate 3 Gives D&D's Avernus Campaign A Canon Ending❗️<a href='https://techblock.club/?p=6707'> link</a>
 
