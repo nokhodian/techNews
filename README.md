@@ -1,20 +1,20 @@
-<b>Technology NEWS on Wednesday, August 19th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Thursday, August 20th, 2020</b> 📡📡📡 
 
-👉NASCAR and Zynga Bring Iconic Race Car to CSR Racing 2❗️<a href='https://techblock.club/?p=6691'> link</a>
+👉Database breach exposes profile data for 235M TikTok, Instagram, and YouTube accounts❗️<a href='https://techblock.club/?p=6711'> link</a>
 
-👉🏽Inside Of Microsoft Surface Duo Shown Off In Video❗️<a href='https://techblock.club/?p=6693'> link</a>
+👉🏽Bluepoint's Demon's Souls Remake for PlayStation 5 Recently Rated in Korea❗️<a href='https://techblock.club/?p=6713'> link</a>
 
-👉🏿Deals: B&H Photo Offering Previous Generation 12.9-Inch iPad Pro (64GB, Cellular) for $669❗️<a href='https://techblock.club/?p=6695'> link</a>
+👉🏿Cadillac's new Blackwing steering wheel puts max performance first❗️<a href='https://techblock.club/?p=6715'> link</a>
 
-👉PS5 price and release date leak — but don't get too excited❗️<a href='https://techblock.club/?p=6697'> link</a>
+👉Gmail outage is over after hours-long service disruption❗️<a href='https://techblock.club/?p=6717'> link</a>
 
-👉🏽10 Tricks to Make You a Pixel 4 or Pixel 4a Pro❗️<a href='https://techblock.club/?p=6699'> link</a>
+👉🏽Marvel's Avengers open beta goes live this weekend❗️<a href='https://techblock.club/?p=6719'> link</a>
 
-👉🏿Flip Camera Making A Comeback With The ASUS ZenFone 7; Details Leak❗️<a href='https://techblock.club/?p=6701'> link</a>
+👉🏿PS5, Xbox Series X's Prices Are Still A Mystery, But It's Not As Weird As You Think❗️<a href='https://techblock.club/?p=6721'> link</a>
 
-👉Report: Halo Infinite Delay Partly Due to Focus on TV Show❗️<a href='https://techblock.club/?p=6703'> link</a>
+👉Sony's first PS5 commercial lists lots of features but no price❗️<a href='https://techblock.club/?p=6723'> link</a>
 
-👉🏽Realme X7, Realme X7 Pro launch on September 1: Here's what we know so far❗️<a href='https://techblock.club/?p=6705'> link</a>
+👉🏽Android 11 Will Enable All Smartphones To Use Wireless Android Auto❗️<a href='https://techblock.club/?p=6725'> link</a>
 
-👉🏿Baldur's Gate 3 Gives D&D's Avernus Campaign A Canon Ending❗️<a href='https://techblock.club/?p=6707'> link</a>
+👉🏿New Valorant Patch 1.06 Nerfs Shotgun, Issues Fixes❗️<a href='https://techblock.club/?p=6727'> link</a>
 
