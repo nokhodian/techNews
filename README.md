@@ -1,20 +1,20 @@
-<b>Technology NEWS on Saturday, August 22nd, 2020</b> 📡📡📡 
+<b>Technology NEWS on Sunday, August 23rd, 2020</b> 📡📡📡 
 
-👉Rocksteady Studios Releases New Statement on Misconduct Allegations❗️<a href='https://techblock.club/?p=6751'> link</a>
+👉Fallout 76 Full Version Free Download For PC❗️<a href='https://techblock.club/?p=6771'> link</a>
 
-👉🏽The Metal Gear Solid Board Game Has Been Delayed Again❗️<a href='https://techblock.club/?p=6753'> link</a>
+👉🏽Adolescent creates his very own wise glasses (Video recording)❗️<a href='https://techblock.club/?p=6773'> link</a>
 
-👉🏿Tech review: Nokia 5.3, the best smartphone you can get for under €200❗️<a href='https://techblock.club/?p=6755'> link</a>
+👉🏿Gotham Knights Announced, Is A Co-Op Game Where Batman Is Dead❗️<a href='https://techblock.club/?p=6775'> link</a>
 
-👉Fall Guys Ultimate Knockout – How To Get The Portal 2 Skin❗️<a href='https://techblock.club/?p=6757'> link</a>
+👉Popular iPhone models get major discounts on Apple Days sale❗️<a href='https://techblock.club/?p=6777'> link</a>
 
-👉🏽Coronavirus: National Trust boss denies expert job cuts would 'dumb down' charity❗️<a href='https://techblock.club/?p=6759'> link</a>
+👉🏽Apple backs down, won't force WordPress app to offer in-app purchases❗️<a href='https://techblock.club/?p=6779'> link</a>
 
-👉🏿Top Stories: Epic vs. Apple Escalates, AAPL Worth $2T, iOS 14 Beta 5 Changes❗️<a href='https://techblock.club/?p=6761'> link</a>
+👉🏿Below's How SpaceX CEO Elon Musk Led Down The Cost Of Reusable Rockets❗️<a href='https://techblock.club/?p=6781'> link</a>
 
-👉Lenovo Chromebook Duet review: A solid choice for college students on a budget❗️<a href='https://techblock.club/?p=6763'> link</a>
+👉I drove the world's first car with Android Automotive for a day — here's what it's like❗️<a href='https://techblock.club/?p=6783'> link</a>
 
-👉🏽This week's top stories: Wireless Android Auto on Android 11, Google Pixel 5 renders, more❗️<a href='https://techblock.club/?p=6765'> link</a>
+👉🏽FAA gets serious about protecting airplanes from rogue drones❗️<a href='https://techblock.club/?p=6785'> link</a>
 
-👉🏿Coronavirus outbreak at B&Q distribution centre after 14 staff test positive❗️<a href='https://techblock.club/?p=6767'> link</a>
+👉🏿How The Tony Hawk: Pro Skater Game Transformed Skateboarding In America❗️<a href='https://techblock.club/?p=6787'> link</a>
 
