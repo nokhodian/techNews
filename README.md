@@ -1,20 +1,20 @@
-<b>Technology NEWS on Sunday, August 23rd, 2020</b> 📡📡📡 
+<b>Technology NEWS on Monday, August 24th, 2020</b> 📡📡📡 
 
-👉Fallout 76 Full Version Free Download For PC❗️<a href='https://techblock.club/?p=6771'> link</a>
+👉New Easter Eggs Discovered For 'The Last of Us Part II' as Part of New Difficulty Options❗️<a href='https://techblock.club/?p=6791'> link</a>
 
-👉🏽Adolescent creates his very own wise glasses (Video recording)❗️<a href='https://techblock.club/?p=6773'> link</a>
+👉🏽Realme C12 Review: Refreshing design, best-in-class battery life & cameras outweigh the cons❗️<a href='https://techblock.club/?p=6793'> link</a>
 
-👉🏿Gotham Knights Announced, Is A Co-Op Game Where Batman Is Dead❗️<a href='https://techblock.club/?p=6775'> link</a>
+👉🏿'Call Of Duty: Black Ops Cold War' Pre-Orders Unlock Woods Operator Pack In 'Warzone'❗️<a href='https://techblock.club/?p=6795'> link</a>
 
-👉Popular iPhone models get major discounts on Apple Days sale❗️<a href='https://techblock.club/?p=6777'> link</a>
+👉The latest Amazon sale means cheap prices on tablets, speakers, consoles and more❗️<a href='https://techblock.club/?p=6797'> link</a>
 
-👉🏽Apple backs down, won't force WordPress app to offer in-app purchases❗️<a href='https://techblock.club/?p=6779'> link</a>
+👉🏽Review: Project Cars 3❗️<a href='https://techblock.club/?p=6799'> link</a>
 
-👉🏿Below's How SpaceX CEO Elon Musk Led Down The Cost Of Reusable Rockets❗️<a href='https://techblock.club/?p=6781'> link</a>
+👉🏿Claim A Free Pokemon In Sword And Shield For A Limited Time❗️<a href='https://techblock.club/?p=6801'> link</a>
 
-👉I drove the world's first car with Android Automotive for a day — here's what it's like❗️<a href='https://techblock.club/?p=6783'> link</a>
+👉DualSense Controller Could Reportedly Allow PS5 To ID Players❗️<a href='https://techblock.club/?p=6803'> link</a>
 
-👉🏽FAA gets serious about protecting airplanes from rogue drones❗️<a href='https://techblock.club/?p=6785'> link</a>
+👉🏽Dr Disrespect apologises for 'mobile gamers aren't real gamers' tweet❗️<a href='https://techblock.club/?p=6805'> link</a>
 
-👉🏿How The Tony Hawk: Pro Skater Game Transformed Skateboarding In America❗️<a href='https://techblock.club/?p=6787'> link</a>
+👉🏿Elon Musk is once again making (brain)waves❗️<a href='https://techblock.club/?p=6807'> link</a>
 
