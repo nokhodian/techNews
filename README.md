@@ -1,20 +1,20 @@
-<b>Technology NEWS on Monday, August 24th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Tuesday, August 25th, 2020</b> 📡📡📡 
 
-👉New Easter Eggs Discovered For 'The Last of Us Part II' as Part of New Difficulty Options❗️<a href='https://techblock.club/?p=6791'> link</a>
+👉Mortal Shell review for PS4, Xbox One, PC❗️<a href='https://techblock.club/?p=6811'> link</a>
 
-👉🏽Realme C12 Review: Refreshing design, best-in-class battery life & cameras outweigh the cons❗️<a href='https://techblock.club/?p=6793'> link</a>
+👉🏽Netgear Launches a 15.6-Inch Meural Digital Photo Frame❗️<a href='https://techblock.club/?p=6813'> link</a>
 
-👉🏿'Call Of Duty: Black Ops Cold War' Pre-Orders Unlock Woods Operator Pack In 'Warzone'❗️<a href='https://techblock.club/?p=6795'> link</a>
+👉🏿Hisense Dual Cell TVs are here, but will they fare better than the O8B OLED?❗️<a href='https://techblock.club/?p=6815'> link</a>
 
-👉The latest Amazon sale means cheap prices on tablets, speakers, consoles and more❗️<a href='https://techblock.club/?p=6797'> link</a>
+👉Borderlands 3's fourth story add-on goes inside Psycho Krieg's demented mind❗️<a href='https://techblock.club/?p=6817'> link</a>
 
-👉🏽Review: Project Cars 3❗️<a href='https://techblock.club/?p=6799'> link</a>
+👉🏽Ooblets Roadmap Reveals A Year Of New Content And Release Date Window❗️<a href='https://techblock.club/?p=6819'> link</a>
 
-👉🏿Claim A Free Pokemon In Sword And Shield For A Limited Time❗️<a href='https://techblock.club/?p=6801'> link</a>
+👉🏿August and Yale smart locks gain added security with biometric verification❗️<a href='https://techblock.club/?p=6821'> link</a>
 
-👉DualSense Controller Could Reportedly Allow PS5 To ID Players❗️<a href='https://techblock.club/?p=6803'> link</a>
+👉Microsoft made three limited-edition Wonder Woman Xbox One X consoles❗️<a href='https://techblock.club/?p=6823'> link</a>
 
-👉🏽Dr Disrespect apologises for 'mobile gamers aren't real gamers' tweet❗️<a href='https://techblock.club/?p=6805'> link</a>
+👉🏽Safari Web Share API Bug Lets Local Files be Stolen❗️<a href='https://techblock.club/?p=6825'> link</a>
 
-👉🏿Elon Musk is once again making (brain)waves❗️<a href='https://techblock.club/?p=6807'> link</a>
+👉🏿Epic judge will protect Unreal Engine — but not Fortnite❗️<a href='https://techblock.club/?p=6827'> link</a>
 
