@@ -1,20 +1,20 @@
-<b>Technology NEWS on Tuesday, August 25th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Wednesday, August 26th, 2020</b> 📡📡📡 
 
-👉Mortal Shell review for PS4, Xbox One, PC❗️<a href='https://techblock.club/?p=6811'> link</a>
+👉Apple AirPods Pro are back down to $199, their lowest price yet❗️<a href='https://techblock.club/?p=6831'> link</a>
 
-👉🏽Netgear Launches a 15.6-Inch Meural Digital Photo Frame❗️<a href='https://techblock.club/?p=6813'> link</a>
+👉🏽The rumored August Nintendo Direct is real and it's another Partner Showcase❗️<a href='https://techblock.club/?p=6833'> link</a>
 
-👉🏿Hisense Dual Cell TVs are here, but will they fare better than the O8B OLED?❗️<a href='https://techblock.club/?p=6815'> link</a>
+👉🏿Fall Guys Is Now the Most Downloaded PS Plus Game Ever❗️<a href='https://techblock.club/?p=6835'> link</a>
 
-👉Borderlands 3's fourth story add-on goes inside Psycho Krieg's demented mind❗️<a href='https://techblock.club/?p=6817'> link</a>
+👉Deals: AirPods With Wired Charging Case Return to Low Price of $129.00 on Amazon ($30 Off)❗️<a href='https://techblock.club/?p=6837'> link</a>
 
-👉🏽Ooblets Roadmap Reveals A Year Of New Content And Release Date Window❗️<a href='https://techblock.club/?p=6819'> link</a>
+👉🏽Review in Progress: Final Fantasy Crystal Chronicles Remastered Edition❗️<a href='https://techblock.club/?p=6839'> link</a>
 
-👉🏿August and Yale smart locks gain added security with biometric verification❗️<a href='https://techblock.club/?p=6821'> link</a>
+👉🏿Global mobile sales declined by 20% last quarter, reports Gartner❗️<a href='https://techblock.club/?p=6841'> link</a>
 
-👉Microsoft made three limited-edition Wonder Woman Xbox One X consoles❗️<a href='https://techblock.club/?p=6823'> link</a>
+👉Nintendo Switches are finally back in stock—here's where to get one❗️<a href='https://techblock.club/?p=6843'> link</a>
 
-👉🏽Safari Web Share API Bug Lets Local Files be Stolen❗️<a href='https://techblock.club/?p=6825'> link</a>
+👉🏽New 992 Porsche 911 GT3 RS Spotted in Traffic, the Wing Game Is Insane❗️<a href='https://techblock.club/?p=6845'> link</a>
 
-👉🏿Epic judge will protect Unreal Engine — but not Fortnite❗️<a href='https://techblock.club/?p=6827'> link</a>
+👉🏿Apple Maps is becoming business critical❗️<a href='https://techblock.club/?p=6847'> link</a>
 
