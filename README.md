@@ -1,20 +1,20 @@
-<b>Technology NEWS on Wednesday, August 26th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Thursday, August 27th, 2020</b> 📡📡📡 
 
-👉Apple AirPods Pro are back down to $199, their lowest price yet❗️<a href='https://techblock.club/?p=6831'> link</a>
+👉Samsung will share more Galaxy Z Fold 2 info on Sept 1 instead of attending IFA❗️<a href='https://techblock.club/?p=6851'> link</a>
 
-👉🏽The rumored August Nintendo Direct is real and it's another Partner Showcase❗️<a href='https://techblock.club/?p=6833'> link</a>
+👉🏽Amazon's Halo fitness tracker will measure your body fat... and tone of voice?❗️<a href='https://techblock.club/?p=6853'> link</a>
 
-👉🏿Fall Guys Is Now the Most Downloaded PS Plus Game Ever❗️<a href='https://techblock.club/?p=6835'> link</a>
+👉🏿Claims of an Upcoming 4K Switch Should Be Treated With a Grain of Salt❗️<a href='https://techblock.club/?p=6855'> link</a>
 
-👉Deals: AirPods With Wired Charging Case Return to Low Price of $129.00 on Amazon ($30 Off)❗️<a href='https://techblock.club/?p=6837'> link</a>
+👉Boost your Nintendo Switch storage with this $30 256GB microSD card❗️<a href='https://techblock.club/?p=6857'> link</a>
 
-👉🏽Review in Progress: Final Fantasy Crystal Chronicles Remastered Edition❗️<a href='https://techblock.club/?p=6839'> link</a>
+👉🏽Android Auto Is Going To Make It Easier To Connect To A Car❗️<a href='https://techblock.club/?p=6859'> link</a>
 
-👉🏿Global mobile sales declined by 20% last quarter, reports Gartner❗️<a href='https://techblock.club/?p=6841'> link</a>
+👉🏿Algoriddim debuts Neural Mix Pro app for Mac to separate, play, and remix tracks in real-time❗️<a href='https://techblock.club/?p=6861'> link</a>
 
-👉Nintendo Switches are finally back in stock—here's where to get one❗️<a href='https://techblock.club/?p=6843'> link</a>
+👉Bitkraft Ventures raises $165 million to invest in games❗️<a href='https://techblock.club/?p=6863'> link</a>
 
-👉🏽New 992 Porsche 911 GT3 RS Spotted in Traffic, the Wing Game Is Insane❗️<a href='https://techblock.club/?p=6845'> link</a>
+👉🏽Pokemon Go Mega Evolution Details: How To Mega Evolve Your Pokemon❗️<a href='https://techblock.club/?p=6865'> link</a>
 
-👉🏿Apple Maps is becoming business critical❗️<a href='https://techblock.club/?p=6847'> link</a>
+👉🏿Gamescom Opening Night Live 2020 stream: Start time and how to watch❗️<a href='https://techblock.club/?p=6867'> link</a>
 
