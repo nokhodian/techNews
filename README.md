@@ -1,20 +1,20 @@
-<b>Technology NEWS on Thursday, August 27th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Friday, August 28th, 2020</b> 📡📡📡 
 
-👉Samsung will share more Galaxy Z Fold 2 info on Sept 1 instead of attending IFA❗️<a href='https://techblock.club/?p=6851'> link</a>
+👉Everything we know about Storm Ground – release date, platforms, gameplay❗️<a href='https://techblock.club/?p=6871'> link</a>
 
-👉🏽Amazon's Halo fitness tracker will measure your body fat... and tone of voice?❗️<a href='https://techblock.club/?p=6853'> link</a>
+👉🏽How to Know if Signing a Recording Contract Is Right For You❗️<a href='https://techblock.club/?p=6873'> link</a>
 
-👉🏿Claims of an Upcoming 4K Switch Should Be Treated With a Grain of Salt❗️<a href='https://techblock.club/?p=6855'> link</a>
+👉🏿Xbox Games With Gold Games (September 2020)❗️<a href='https://techblock.club/?p=6875'> link</a>
 
-👉Boost your Nintendo Switch storage with this $30 256GB microSD card❗️<a href='https://techblock.club/?p=6857'> link</a>
+👉Japan's New 'Lunar Cruiser' Moon Rover Is Named After the Toyota Land Cruiser❗️<a href='https://techblock.club/?p=6877'> link</a>
 
-👉🏽Android Auto Is Going To Make It Easier To Connect To A Car❗️<a href='https://techblock.club/?p=6859'> link</a>
+👉🏽Call of Duty: Black Ops Cold War Has A Massive Download Size❗️<a href='https://techblock.club/?p=6879'> link</a>
 
-👉🏿Algoriddim debuts Neural Mix Pro app for Mac to separate, play, and remix tracks in real-time❗️<a href='https://techblock.club/?p=6861'> link</a>
+👉🏿Bungie Shows Off More Of Destiny 2: Beyond Light❗️<a href='https://techblock.club/?p=6881'> link</a>
 
-👉Bitkraft Ventures raises $165 million to invest in games❗️<a href='https://techblock.club/?p=6863'> link</a>
+👉Apple agrees to pay $9.75M to settle suit over Powerbeats 2❗️<a href='https://techblock.club/?p=6883'> link</a>
 
-👉🏽Pokemon Go Mega Evolution Details: How To Mega Evolve Your Pokemon❗️<a href='https://techblock.club/?p=6865'> link</a>
+👉🏽Fortnite smashing vases locations – She-Hulk's Awakening Challenge❗️<a href='https://techblock.club/?p=6885'> link</a>
 
-👉🏿Gamescom Opening Night Live 2020 stream: Start time and how to watch❗️<a href='https://techblock.club/?p=6867'> link</a>
+👉🏿The Eufy Smart Lock With Fingerprint Scanner Is Down To $189❗️<a href='https://techblock.club/?p=6887'> link</a>
 
