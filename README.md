@@ -1,20 +1,20 @@
-<b>Technology NEWS on Friday, August 28th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Saturday, August 29th, 2020</b> 📡📡📡 
 
-👉Everything we know about Storm Ground – release date, platforms, gameplay❗️<a href='https://techblock.club/?p=6871'> link</a>
+👉5 Common Myths About Artificial Intelligence That Aren't True❗️<a href='https://techblock.club/?p=6891'> link</a>
 
-👉🏽How to Know if Signing a Recording Contract Is Right For You❗️<a href='https://techblock.club/?p=6873'> link</a>
+👉🏽Everything New From the Ratchet and Clank: Rift Apart Gamescom Gameplay❗️<a href='https://techblock.club/?p=6893'> link</a>
 
-👉🏿Xbox Games With Gold Games (September 2020)❗️<a href='https://techblock.club/?p=6875'> link</a>
+👉🏿Open-World Adventure Genshin Impact Will Launch in September, PlayStation-Exclusive Bonuses Detailed❗️<a href='https://techblock.club/?p=6895'> link</a>
 
-👉Japan's New 'Lunar Cruiser' Moon Rover Is Named After the Toyota Land Cruiser❗️<a href='https://techblock.club/?p=6877'> link</a>
+👉Fortnite: How to Plant a Seed For The Groot Awakening Challenge❗️<a href='https://techblock.club/?p=6897'> link</a>
 
-👉🏽Call of Duty: Black Ops Cold War Has A Massive Download Size❗️<a href='https://techblock.club/?p=6879'> link</a>
+👉🏽Call of Duty: Black Ops Cold War Confirms Next-Gen Features PS5 and Xbox Series X Versions Will Have❗️<a href='https://techblock.club/?p=6899'> link</a>
 
-👉🏿Bungie Shows Off More Of Destiny 2: Beyond Light❗️<a href='https://techblock.club/?p=6881'> link</a>
+👉🏿Modder crams Nintendo Wii into a handheld Game Boy Color❗️<a href='https://techblock.club/?p=6901'> link</a>
 
-👉Apple agrees to pay $9.75M to settle suit over Powerbeats 2❗️<a href='https://techblock.club/?p=6883'> link</a>
+👉The Motorola Razr 2 is exposed: 5G and 48 megapixel camera❗️<a href='https://techblock.club/?p=6903'> link</a>
 
-👉🏽Fortnite smashing vases locations – She-Hulk's Awakening Challenge❗️<a href='https://techblock.club/?p=6885'> link</a>
+👉🏽This algorithm can detect abuse against women on Twitter❗️<a href='https://techblock.club/?p=6905'> link</a>
 
-👉🏿The Eufy Smart Lock With Fingerprint Scanner Is Down To $189❗️<a href='https://techblock.club/?p=6887'> link</a>
+👉🏿The Wiiboy Color is one of the most ingenious console mods ever❗️<a href='https://techblock.club/?p=6907'> link</a>
 
