@@ -1,20 +1,20 @@
-<b>Technology NEWS on Sunday, August 30th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Monday, August 31st, 2020</b> 📡📡📡 
 
-👉How to get Call of Duty: Black Ops Cold War beta codes today❗️<a href='https://techblock.club/?p=6911'> link</a>
+👉Pre-Ordered 'Marvel's Avengers'? You Can Play Three Days Early Starting Tomorrow❗️<a href='https://techblock.club/?p=6931'> link</a>
 
-👉🏽eBay down: Web server standing latest, DNS failing as well as solution unavailable error strikes❗️<a href='https://techblock.club/?p=6913'> link</a>
+👉🏽Top Ways to Make Bells in Animal Crossing: New Horizons❗️<a href='https://techblock.club/?p=6933'> link</a>
 
-👉🏿Hennessey Corvette C7 Roll Races Stock C8❗️<a href='https://techblock.club/?p=6915'> link</a>
+👉🏿Apple HomePod smart speaker is back down to $200 at Best Buy❗️<a href='https://techblock.club/?p=6935'> link</a>
 
-👉Kingdom Hearts 3: Best Things to Do After Beating The Game❗️<a href='https://techblock.club/?p=6917'> link</a>
+👉Get 3 months of Tidal for only 50 cents❗️<a href='https://techblock.club/?p=6937'> link</a>
 
-👉🏽Sony looking to release more first-party titles on PC❗️<a href='https://techblock.club/?p=6919'> link</a>
+👉🏽Apple Confirms New App Store Policies on Bug Fix Updates and Challenging Guidelines Are Live❗️<a href='https://techblock.club/?p=6939'> link</a>
 
-👉🏿ZTE may beat Xiaomi with first under-display camera phone❗️<a href='https://techblock.club/?p=6921'> link</a>
+👉🏿Nintendo Switch new games for September 2020❗️<a href='https://techblock.club/?p=6941'> link</a>
 
-👉Mass Effect Trilogy Remaster Currently Planned for October, but Could be Delayed – Rumour❗️<a href='https://techblock.club/?p=6923'> link</a>
+👉New Horizon Zero Dawn Patch Fixes More PC Crashes, Snow Deformation❗️<a href='https://techblock.club/?p=6943'> link</a>
 
-👉🏽From Samsung Galaxy S20 Ultra to Redmi 9 Prime, these are the best smartphone cameras across every budget❗️<a href='https://techblock.club/?p=6925'> link</a>
+👉🏽Disney Continues To Capitalize On Galaxy's Edge With Games, Merchandise, And More❗️<a href='https://techblock.club/?p=6945'> link</a>
 
-👉🏿Fortnite: Where to Emote as Thor on Mountaintop Ruins❗️<a href='https://techblock.club/?p=6927'> link</a>
+👉🏿New GoPro Hero 9 leaks show off a full-color, front-facing display❗️<a href='https://techblock.club/?p=6947'> link</a>
 
