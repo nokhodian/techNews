@@ -1,20 +1,20 @@
-<b>Technology NEWS on Tuesday, September 1st, 2020</b> 📡📡📡 
+<b>Technology NEWS on Wednesday, September 2nd, 2020</b> 📡📡📡 
 
-👉Britain's woeful broadband: UK drops to 47th place in global speed leagues due to slow rollout of pure fibre networks❗️<a href='https://techblock.club/?p=6951'> link</a>
+👉Here's an interesting chart: iPhone unit sales have been declining steadily for 5 years❗️<a href='https://techblock.club/?p=6971'> link</a>
 
-👉🏽Google's new Android TV price just leaked — and Roku should be worried❗️<a href='https://techblock.club/?p=6953'> link</a>
+👉🏽Volvo P1800 Cyan – WTC champions Cyan Racing reveals sensational restomod❗️<a href='https://techblock.club/?p=6973'> link</a>
 
-👉🏿Ecommerce is Booming. Here's How to Take Advantage❗️<a href='https://techblock.club/?p=6955'> link</a>
+👉🏿'Apple Watch Series 6' release won't happen until October, leaker claims❗️<a href='https://techblock.club/?p=6975'> link</a>
 
-👉PUBG Mobile bans over 20 lakh players within a week for cheating❗️<a href='https://techblock.club/?p=6957'> link</a>
+👉PUBG Ban: Here are 6 alternative Battle Royale titles you should try❗️<a href='https://techblock.club/?p=6977'> link</a>
 
-👉🏽Xbox Game Pass Is Adding Resident Evil VII, Crusader Kings III and More❗️<a href='https://techblock.club/?p=6959'> link</a>
+👉🏽Panasonic Lumix S5 review: Incredible video power in a smaller package❗️<a href='https://techblock.club/?p=6979'> link</a>
 
-👉🏿Sennheiser MKE 200 microphone review: A nearly idiot-proof mic❗️<a href='https://techblock.club/?p=6961'> link</a>
+👉🏿The Powerbeats3 Wireless Headphones Can Be Yours For Only $70❗️<a href='https://techblock.club/?p=6981'> link</a>
 
-👉Marvel's Avengers Reveals How Faction And Community Challenges Will Work❗️<a href='https://techblock.club/?p=6963'> link</a>
+👉The Signifier release date announced, gameplay walkthrough revealed❗️<a href='https://techblock.club/?p=6983'> link</a>
 
-👉🏽ZTE's Axon 20 5G phone has a camera under the display❗️<a href='https://techblock.club/?p=6965'> link</a>
+👉🏽Samsung's The Premiere 4K ultra-short-throw laser projector goes up to 130 inches❗️<a href='https://techblock.club/?p=6985'> link</a>
 
-👉🏿Galaxy Z Fold 2 is set to impress: Foldable glass screen, flex hinge, 5 cameras. Every key detail to know❗️<a href='https://techblock.club/?p=6967'> link</a>
+👉🏿2021 Audi RS 6 Avant RS Tribute Edition: US finally gets a Nogaro Blue wagon❗️<a href='https://techblock.club/?p=6987'> link</a>
 
