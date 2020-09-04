@@ -1,20 +1,20 @@
-<b>Technology NEWS on Thursday, September 3rd, 2020</b> 📡📡📡 
+<b>Technology NEWS on Friday, September 4th, 2020</b> 📡📡📡 
 
-👉Mario Kart Live: Home Circuit Turns Mario Kart Into An AR Game With Real Toys❗️<a href='https://techblock.club/?p=6991'> link</a>
+👉KeyStep Pro Review: A near-perfect MIDI controller for hardware synth fans❗️<a href='https://techblock.club/?p=7011'> link</a>
 
-👉🏽Microsoft Flight Simulator already has over a million players, record-breaking launch❗️<a href='https://techblock.club/?p=6993'> link</a>
+👉🏽Rock Band Dev's Fuser DJ Game Releases On PC And Consoles In November❗️<a href='https://techblock.club/?p=7013'> link</a>
 
-👉🏿Vava 4K short-throw projector review: Home theater on a relative budget❗️<a href='https://techblock.club/?p=6995'> link</a>
+👉🏿Pokemon Go Mega Evolution Event: New Shinies, Mega Evolutions, And More❗️<a href='https://techblock.club/?p=7015'> link</a>
 
-👉Nintendo Download: 3rd September (North America)❗️<a href='https://techblock.club/?p=6997'> link</a>
+👉One-off Aston Martin Victor blends heritage and cutting-edge❗️<a href='https://techblock.club/?p=7017'> link</a>
 
-👉🏽iOS 14's major overhaul to the iPhone home screen might not be what you expect❗️<a href='https://techblock.club/?p=6999'> link</a>
+👉🏽A promotion might've just leaked Microsoft's Xbox Series X price❗️<a href='https://techblock.club/?p=7019'> link</a>
 
-👉🏿How Google Maps uses DeepMind's AI tools to predict your arrival time❗️<a href='https://techblock.club/?p=7001'> link</a>
+👉🏿The Winamp Skin Museum is a beautiful homage to an iconic piece of software❗️<a href='https://techblock.club/?p=7021'> link</a>
 
-👉Brabham BT62R road car added to lineup❗️<a href='https://techblock.club/?p=7003'> link</a>
+👉Dead body found wearing t-shirt, underwear, and covered by tarp behind tire shop in Queens❗️<a href='https://techblock.club/?p=7023'> link</a>
 
-👉🏽New iPhone privacy ad takes shots at other smartphones oversharing information❗️<a href='https://techblock.club/?p=7005'> link</a>
+👉🏽How to Raise Power Level Fast in Marvel's Avengers❗️<a href='https://techblock.club/?p=7025'> link</a>
 
-👉🏿Get Wi-Fi everywhere with $70 off this Google Nest Wi-Fi three-pack❗️<a href='https://techblock.club/?p=7007'> link</a>
+👉🏿Vivo demonstrates prototype smartphone capable of changing colors❗️<a href='https://techblock.club/?p=7027'> link</a>
 
