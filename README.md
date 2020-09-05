@@ -1,20 +1,20 @@
-<b>Technology NEWS on Friday, September 4th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Saturday, September 5th, 2020</b> 📡📡📡 
 
-👉KeyStep Pro Review: A near-perfect MIDI controller for hardware synth fans❗️<a href='https://techblock.club/?p=7011'> link</a>
+👉Google Maps Getting Lots of New Features for Electric Vehicles❗️<a href='https://techblock.club/?p=7031'> link</a>
 
-👉🏽Rock Band Dev's Fuser DJ Game Releases On PC And Consoles In November❗️<a href='https://techblock.club/?p=7013'> link</a>
+👉🏽Samsung Galaxy Z Fold 2 5G vs. Galaxy Z Flip 5G: Foldable face-off❗️<a href='https://techblock.club/?p=7033'> link</a>
 
-👉🏿Pokemon Go Mega Evolution Event: New Shinies, Mega Evolutions, And More❗️<a href='https://techblock.club/?p=7015'> link</a>
+👉🏿Starlink satellite train visible in KNP❗️<a href='https://techblock.club/?p=7035'> link</a>
 
-👉One-off Aston Martin Victor blends heritage and cutting-edge❗️<a href='https://techblock.club/?p=7017'> link</a>
+👉50 of the best Labor Day sales and deals you can buy this weekend❗️<a href='https://techblock.club/?p=7037'> link</a>
 
-👉🏽A promotion might've just leaked Microsoft's Xbox Series X price❗️<a href='https://techblock.club/?p=7019'> link</a>
+👉🏽Damwon Stomp DRX in LCK Summer Finals❗️<a href='https://techblock.club/?p=7039'> link</a>
 
-👉🏿The Winamp Skin Museum is a beautiful homage to an iconic piece of software❗️<a href='https://techblock.club/?p=7021'> link</a>
+👉🏿Leaked Sims 4 stuff pack confirmed, but no release date yet❗️<a href='https://techblock.club/?p=7041'> link</a>
 
-👉Dead body found wearing t-shirt, underwear, and covered by tarp behind tire shop in Queens❗️<a href='https://techblock.club/?p=7023'> link</a>
+👉Animal Crossing: The best tips and advice to improve your game❗️<a href='https://techblock.club/?p=7043'> link</a>
 
-👉🏽How to Raise Power Level Fast in Marvel's Avengers❗️<a href='https://techblock.club/?p=7025'> link</a>
+👉🏽Coronavirus tests could be picking up DEAD cells from old infections and 'false positives' exaggerating pandemic❗️<a href='https://techblock.club/?p=7045'> link</a>
 
-👉🏿Vivo demonstrates prototype smartphone capable of changing colors❗️<a href='https://techblock.club/?p=7027'> link</a>
+👉🏿PC's have become more important, we are not done innovating: Intel India MD❗️<a href='https://techblock.club/?p=7047'> link</a>
 
