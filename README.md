@@ -1,20 +1,20 @@
-<b>Technology NEWS on Tuesday, September 8th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Wednesday, September 9th, 2020</b> 📡📡📡 
 
-👉New Hyrule Warriors Is A Zelda: Breath Of The Wild Prequel, Arrives In November❗️<a href='https://techblock.club/?p=7091'> link</a>
+👉Guide: Nintendo Switch Fall/Winter Games - All The Big Games Coming In 2020, And Beyond❗️<a href='https://techblock.club/?p=7111'> link</a>
 
-👉🏽Bloomberg and The Washington Post are betting big on gaming. Here's why❗️<a href='https://techblock.club/?p=7093'> link</a>
+👉🏽Carriers Preparing for Launch of iPhone 12 Models With 5G Support❗️<a href='https://techblock.club/?p=7113'> link</a>
 
-👉🏿Minecraft Dungeons (Version 1.4.3.0): Patch Notes and How to Update the Game❗️<a href='https://techblock.club/?p=7095'> link</a>
+👉🏿Why Jelly Belly Candy Factory Contest Costs $50 To Enter❗️<a href='https://techblock.club/?p=7115'> link</a>
 
-👉Marvel's Avengers Beats THPS and NBA 2K21 to Debut at Number 1 on UK Sales Charts❗️<a href='https://techblock.club/?p=7097'> link</a>
+👉Screenshots and Unofficial Box Art for Demon's Souls Remake and Other PS5 Games Surface on Amazon Australia❗️<a href='https://techblock.club/?p=7117'> link</a>
 
-👉🏽Sonus faber Lumina Lineup Lights Up Your Speaker Options❗️<a href='https://techblock.club/?p=7099'> link</a>
+👉🏽Xbox Series X: Price, Release Date, Pre-Order Date, Backwards Compatibility, And Everything Else❗️<a href='https://techblock.club/?p=7119'> link</a>
 
-👉🏿Official Sega ad claims that Sonic is getting 'new games' in 2021❗️<a href='https://techblock.club/?p=7101'> link</a>
+👉🏿New Microsoft Surface Laptop coming this fall — for a shockingly cheap price❗️<a href='https://techblock.club/?p=7121'> link</a>
 
-👉Best rugged tablets in 2020: Samsung, Panasonic, Getac, Dell and Lenovo❗️<a href='https://techblock.club/?p=7103'> link</a>
+👉Facebook, Twitter Content Feeds Hate, Anger Online, Driving Engineer To Publicly Resign❗️<a href='https://techblock.club/?p=7123'> link</a>
 
-👉🏽Google's Phone app can now give you the reason for a business's call❗️<a href='https://techblock.club/?p=7105'> link</a>
+👉🏽6 easy ways to stay safe on WhatsApp❗️<a href='https://techblock.club/?p=7125'> link</a>
 
-👉🏿Finally The Google Pixel 4a Gets Custom ROM And Kernel❗️<a href='https://techblock.club/?p=7107'> link</a>
+👉🏿Amazfit Bip S review: How good can a $70 running watch be?❗️<a href='https://techblock.club/?p=7127'> link</a>
 
