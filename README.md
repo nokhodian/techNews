@@ -1,20 +1,20 @@
-<b>Technology NEWS on Wednesday, September 9th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Thursday, September 10th, 2020</b> 📡📡📡 
 
-👉Guide: Nintendo Switch Fall/Winter Games - All The Big Games Coming In 2020, And Beyond❗️<a href='https://techblock.club/?p=7111'> link</a>
+👉The Zelda: Breath Of The Wild Champions Amiibo Are Getting A Reprint❗️<a href='https://techblock.club/?p=7131'> link</a>
 
-👉🏽Carriers Preparing for Launch of iPhone 12 Models With 5G Support❗️<a href='https://techblock.club/?p=7113'> link</a>
+👉🏽New Night City Wire Stream to Premiere Next Week, Featuring a Tour Around Cyberpunk 2077's Night City❗️<a href='https://techblock.club/?p=7133'> link</a>
 
-👉🏿Why Jelly Belly Candy Factory Contest Costs $50 To Enter❗️<a href='https://techblock.club/?p=7115'> link</a>
+👉🏿App-Based Contact Tracing Has Been a Bust. Apple Wants to Try Something New.❗️<a href='https://techblock.club/?p=7135'> link</a>
 
-👉Screenshots and Unofficial Box Art for Demon's Souls Remake and Other PS5 Games Surface on Amazon Australia❗️<a href='https://techblock.club/?p=7117'> link</a>
+👉Can 5G Save the Smartphone Market?❗️<a href='https://techblock.club/?p=7137'> link</a>
 
-👉🏽Xbox Series X: Price, Release Date, Pre-Order Date, Backwards Compatibility, And Everything Else❗️<a href='https://techblock.club/?p=7119'> link</a>
+👉🏽SpaceX's Dark Satellites Are Still Too Bright for Astronomers❗️<a href='https://techblock.club/?p=7139'> link</a>
 
-👉🏿New Microsoft Surface Laptop coming this fall — for a shockingly cheap price❗️<a href='https://techblock.club/?p=7121'> link</a>
+👉🏿Minoria Console Review – Now for All to Enjoy❗️<a href='https://techblock.club/?p=7141'> link</a>
 
-👉Facebook, Twitter Content Feeds Hate, Anger Online, Driving Engineer To Publicly Resign❗️<a href='https://techblock.club/?p=7123'> link</a>
+👉How to stop annoying robocalls on your iPhone or Android phone❗️<a href='https://techblock.club/?p=7143'> link</a>
 
-👉🏽6 easy ways to stay safe on WhatsApp❗️<a href='https://techblock.club/?p=7125'> link</a>
+👉🏽iPhone 12 is Coming Later Than You Think❗️<a href='https://techblock.club/?p=7145'> link</a>
 
-👉🏿Amazfit Bip S review: How good can a $70 running watch be?❗️<a href='https://techblock.club/?p=7127'> link</a>
+👉🏿Huawei's Harmony OS is coming to smartphones with next upgrade❗️<a href='https://techblock.club/?p=7147'> link</a>
 
