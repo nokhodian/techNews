@@ -1,20 +1,20 @@
-<b>Technology NEWS on Thursday, September 10th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Friday, September 11th, 2020</b> 📡📡📡 
 
-👉The Zelda: Breath Of The Wild Champions Amiibo Are Getting A Reprint❗️<a href='https://techblock.club/?p=7131'> link</a>
+👉Zoom's mobile and desktop apps now support two-factor authentication❗️<a href='https://techblock.club/?p=7151'> link</a>
 
-👉🏽New Night City Wire Stream to Premiere Next Week, Featuring a Tour Around Cyberpunk 2077's Night City❗️<a href='https://techblock.club/?p=7133'> link</a>
+👉🏽Best Windows 10 apps this week❗️<a href='https://techblock.club/?p=7153'> link</a>
 
-👉🏿App-Based Contact Tracing Has Been a Bust. Apple Wants to Try Something New.❗️<a href='https://techblock.club/?p=7135'> link</a>
+👉🏿4 Ways To Celebrate Mario's 35th Anniversary❗️<a href='https://techblock.club/?p=7155'> link</a>
 
-👉Can 5G Save the Smartphone Market?❗️<a href='https://techblock.club/?p=7137'> link</a>
+👉The Zelda: Breath Of The Wild Champion Amiibo Are Getting A Reprint❗️<a href='https://techblock.club/?p=7157'> link</a>
 
-👉🏽SpaceX's Dark Satellites Are Still Too Bright for Astronomers❗️<a href='https://techblock.club/?p=7139'> link</a>
+👉🏽Huawei May Pair Its First Under-Display Camera With Five Rear Cameras❗️<a href='https://techblock.club/?p=7159'> link</a>
 
-👉🏿Minoria Console Review – Now for All to Enjoy❗️<a href='https://techblock.club/?p=7141'> link</a>
+👉🏿Panzer Dragoon: Remake “Coming Soon” for PS4 and PC via Steam & GOG❗️<a href='https://techblock.club/?p=7161'> link</a>
 
-👉How to stop annoying robocalls on your iPhone or Android phone❗️<a href='https://techblock.club/?p=7143'> link</a>
+👉NVIDIA GeForce RTX 3060 Ti Ampere Now Rumored For October Launch With 14Gbps GDDR6❗️<a href='https://techblock.club/?p=7163'> link</a>
 
-👉🏽iPhone 12 is Coming Later Than You Think❗️<a href='https://techblock.club/?p=7145'> link</a>
+👉🏽'Apex Legends' brings back King's Canyon: After Dark map❗️<a href='https://techblock.club/?p=7165'> link</a>
 
-👉🏿Huawei's Harmony OS is coming to smartphones with next upgrade❗️<a href='https://techblock.club/?p=7147'> link</a>
+👉🏿England and Wales' Contact-Tracing App With Apple and Google API to Launch September 24❗️<a href='https://techblock.club/?p=7167'> link</a>
 
