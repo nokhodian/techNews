@@ -1,20 +1,20 @@
-<b>Technology NEWS on Friday, September 11th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Saturday, September 12th, 2020</b> 📡📡📡 
 
-👉Zoom's mobile and desktop apps now support two-factor authentication❗️<a href='https://techblock.club/?p=7151'> link</a>
+👉10 Changes In Tony Hawk's Pro Skater 1+2 Remake Only True Fans Noticed❗️<a href='https://techblock.club/?p=7171'> link</a>
 
-👉🏽Best Windows 10 apps this week❗️<a href='https://techblock.club/?p=7153'> link</a>
+👉🏽How to Force Close Apps on Android TV❗️<a href='https://techblock.club/?p=7173'> link</a>
 
-👉🏿4 Ways To Celebrate Mario's 35th Anniversary❗️<a href='https://techblock.club/?p=7155'> link</a>
+👉🏿'Fortnite' season 4 week 3 challenge guide: Visit Panther's Prowl❗️<a href='https://techblock.club/?p=7175'> link</a>
 
-👉The Zelda: Breath Of The Wild Champion Amiibo Are Getting A Reprint❗️<a href='https://techblock.club/?p=7157'> link</a>
+👉You Can Get A Refurbished Ring Video Doorbell Pro For $95 – Today Only❗️<a href='https://techblock.club/?p=7177'> link</a>
 
-👉🏽Huawei May Pair Its First Under-Display Camera With Five Rear Cameras❗️<a href='https://techblock.club/?p=7159'> link</a>
+👉🏽Mafia: Definitive Edition gameplay revealed❗️<a href='https://techblock.club/?p=7179'> link</a>
 
-👉🏿Panzer Dragoon: Remake “Coming Soon” for PS4 and PC via Steam & GOG❗️<a href='https://techblock.club/?p=7161'> link</a>
+👉🏿Best Google Assistant enabled home smart speakers 2020❗️<a href='https://techblock.club/?p=7181'> link</a>
 
-👉NVIDIA GeForce RTX 3060 Ti Ampere Now Rumored For October Launch With 14Gbps GDDR6❗️<a href='https://techblock.club/?p=7163'> link</a>
+👉Apex Legends devs are removing a single tree because everyone hates it❗️<a href='https://techblock.club/?p=7183'> link</a>
 
-👉🏽'Apex Legends' brings back King's Canyon: After Dark map❗️<a href='https://techblock.club/?p=7165'> link</a>
+👉🏽Apple's Face Masks Are Only for Its Employees and Retail Partners❗️<a href='https://techblock.club/?p=7185'> link</a>
 
-👉🏿England and Wales' Contact-Tracing App With Apple and Google API to Launch September 24❗️<a href='https://techblock.club/?p=7167'> link</a>
+👉🏿Internet connection and key concepts: things you should know❗️<a href='https://techblock.club/?p=7187'> link</a>
 
