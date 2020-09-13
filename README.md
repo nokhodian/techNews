@@ -1,20 +1,20 @@
-<b>Technology NEWS on Saturday, September 12th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Sunday, September 13th, 2020</b> 📡📡📡 
 
-👉10 Changes In Tony Hawk's Pro Skater 1+2 Remake Only True Fans Noticed❗️<a href='https://techblock.club/?p=7171'> link</a>
+👉Did you know PUBG Mobile India follows 'a propagandist masquerading as a comedian' on Twitter?❗️<a href='https://techblock.club/?p=7191'> link</a>
 
-👉🏽How to Force Close Apps on Android TV❗️<a href='https://techblock.club/?p=7173'> link</a>
+👉🏽Final Fantasy 16 at the PS5 event on date and price? Square Enix powers the rumors❗️<a href='https://techblock.club/?p=7193'> link</a>
 
-👉🏿'Fortnite' season 4 week 3 challenge guide: Visit Panther's Prowl❗️<a href='https://techblock.club/?p=7175'> link</a>
+👉🏿Borderlands 3 Is Headed to Next-Gen Consoles, Current-Gen Game Owners Get the Upgrade for Free❗️<a href='https://techblock.club/?p=7195'> link</a>
 
-👉You Can Get A Refurbished Ring Video Doorbell Pro For $95 – Today Only❗️<a href='https://techblock.club/?p=7177'> link</a>
+👉'Hyrule Warriors Age of Calamity': Who are the other characters joining Link and Zelda?❗️<a href='https://techblock.club/?p=7197'> link</a>
 
-👉🏽Mafia: Definitive Edition gameplay revealed❗️<a href='https://techblock.club/?p=7179'> link</a>
+👉🏽35 Years Ago: 'Super Mario Bros.' Becomes Gaming's Biggest Hit❗️<a href='https://techblock.club/?p=7199'> link</a>
 
-👉🏿Best Google Assistant enabled home smart speakers 2020❗️<a href='https://techblock.club/?p=7181'> link</a>
+👉🏿Bose launches QuietComfort and Sport Earbuds: Here's everything you must know❗️<a href='https://techblock.club/?p=7201'> link</a>
 
-👉Apex Legends devs are removing a single tree because everyone hates it❗️<a href='https://techblock.club/?p=7183'> link</a>
+👉Prince of Persia is back: Ubisoft announced a 'Sands of Time' remake❗️<a href='https://techblock.club/?p=7203'> link</a>
 
-👉🏽Apple's Face Masks Are Only for Its Employees and Retail Partners❗️<a href='https://techblock.club/?p=7185'> link</a>
+👉🏽Aiden Pearce returns in Watch Dogs: Legion as playable character❗️<a href='https://techblock.club/?p=7205'> link</a>
 
-👉🏿Internet connection and key concepts: things you should know❗️<a href='https://techblock.club/?p=7187'> link</a>
+👉🏿Divinity Original Sin 2: Everything you need to know about the game❗️<a href='https://techblock.club/?p=7207'> link</a>
 
