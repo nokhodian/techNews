@@ -1,20 +1,20 @@
-<b>Technology NEWS on Sunday, September 13th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Monday, September 14th, 2020</b> 📡📡📡 
 
-👉Did you know PUBG Mobile India follows 'a propagandist masquerading as a comedian' on Twitter?❗️<a href='https://techblock.club/?p=7191'> link</a>
+👉Microsoft will have more than 150 xCloud games when it launches tomorrow❗️<a href='https://techblock.club/?p=7211'> link</a>
 
-👉🏽Final Fantasy 16 at the PS5 event on date and price? Square Enix powers the rumors❗️<a href='https://techblock.club/?p=7193'> link</a>
+👉🏽HMD Global Announces Launch Event for 'New Nokia Phones' on September 22❗️<a href='https://techblock.club/?p=7213'> link</a>
 
-👉🏿Borderlands 3 Is Headed to Next-Gen Consoles, Current-Gen Game Owners Get the Upgrade for Free❗️<a href='https://techblock.club/?p=7195'> link</a>
+👉🏿Amazon is selling the AirPods Pro for the same price as the AirPods❗️<a href='https://techblock.club/?p=7215'> link</a>
 
-👉'Hyrule Warriors Age of Calamity': Who are the other characters joining Link and Zelda?❗️<a href='https://techblock.club/?p=7197'> link</a>
+👉Sega Sammy : REUNITES THE WORLDS OF PUYO PUYO AND TETRIS IN NEW ADVENTURE MODE FOR PUYO ...❗️<a href='https://techblock.club/?p=7217'> link</a>
 
-👉🏽35 Years Ago: 'Super Mario Bros.' Becomes Gaming's Biggest Hit❗️<a href='https://techblock.club/?p=7199'> link</a>
+👉🏽Samsung Galaxy Z Fold 2 review: A fully functional foldable❗️<a href='https://techblock.club/?p=7219'> link</a>
 
-👉🏿Bose launches QuietComfort and Sport Earbuds: Here's everything you must know❗️<a href='https://techblock.club/?p=7201'> link</a>
+👉🏿The surprising reason Nintendo made Super Mario a plumber 35 years ago❗️<a href='https://techblock.club/?p=7221'> link</a>
 
-👉Prince of Persia is back: Ubisoft announced a 'Sands of Time' remake❗️<a href='https://techblock.club/?p=7203'> link</a>
+👉How to Broadcast Messages on Google Assistant Speakers and Displays❗️<a href='https://techblock.club/?p=7223'> link</a>
 
-👉🏽Aiden Pearce returns in Watch Dogs: Legion as playable character❗️<a href='https://techblock.club/?p=7205'> link</a>
+👉🏽Halo: The Master Chief Collection for PC – Halo 3: ODST launches September 22❗️<a href='https://techblock.club/?p=7225'> link</a>
 
-👉🏿Divinity Original Sin 2: Everything you need to know about the game❗️<a href='https://techblock.club/?p=7207'> link</a>
+👉🏿Heritage Jewelry Label Mikimoto Launches First-Ever Perfume❗️<a href='https://techblock.club/?p=7227'> link</a>
 
