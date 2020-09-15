@@ -1,20 +1,20 @@
-<b>Technology NEWS on Monday, September 14th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Tuesday, September 15th, 2020</b> 📡📡📡 
 
-👉Microsoft will have more than 150 xCloud games when it launches tomorrow❗️<a href='https://techblock.club/?p=7211'> link</a>
+👉Nasty Windows 10 bug causes Start Menu to act up: What to do❗️<a href='https://techblock.club/?p=7231'> link</a>
 
-👉🏽HMD Global Announces Launch Event for 'New Nokia Phones' on September 22❗️<a href='https://techblock.club/?p=7213'> link</a>
+👉🏽Nintendo Switch In Stock At Best Buy--Switch Lite In Stock At Amazon, Target, And More❗️<a href='https://techblock.club/?p=7233'> link</a>
 
-👉🏿Amazon is selling the AirPods Pro for the same price as the AirPods❗️<a href='https://techblock.club/?p=7215'> link</a>
+👉🏿Apple event 2020: Will we finally get Apple AirTags trackers?❗️<a href='https://techblock.club/?p=7235'> link</a>
 
-👉Sega Sammy : REUNITES THE WORLDS OF PUYO PUYO AND TETRIS IN NEW ADVENTURE MODE FOR PUYO ...❗️<a href='https://techblock.club/?p=7217'> link</a>
+👉Fitbit Sense ECG Sensor Gets FDA Approval, To Be Available in October❗️<a href='https://techblock.club/?p=7237'> link</a>
 
-👉🏽Samsung Galaxy Z Fold 2 review: A fully functional foldable❗️<a href='https://techblock.club/?p=7219'> link</a>
+👉🏽Conan Exiles 'Isle of Siptah' Expansion Out Today in Early Access❗️<a href='https://techblock.club/?p=7239'> link</a>
 
-👉🏿The surprising reason Nintendo made Super Mario a plumber 35 years ago❗️<a href='https://techblock.club/?p=7221'> link</a>
+👉🏿Prime Day just came early thanks to Amazon's 16-inch MacBook Pro blowout sale❗️<a href='https://techblock.club/?p=7241'> link</a>
 
-👉How to Broadcast Messages on Google Assistant Speakers and Displays❗️<a href='https://techblock.club/?p=7223'> link</a>
+👉LG Wing 5G Phone Goes Official – What To Know About Quirky New Device❗️<a href='https://techblock.club/?p=7243'> link</a>
 
-👉🏽Halo: The Master Chief Collection for PC – Halo 3: ODST launches September 22❗️<a href='https://techblock.club/?p=7225'> link</a>
+👉🏽A first look at Samsung's Android 11-based One UI 3.0 update❗️<a href='https://techblock.club/?p=7245'> link</a>
 
-👉🏿Heritage Jewelry Label Mikimoto Launches First-Ever Perfume❗️<a href='https://techblock.club/?p=7227'> link</a>
+👉🏿Fall Guys: Mid-Season Update to Bring Random Level Variations, Big Yeetus, and More❗️<a href='https://techblock.club/?p=7247'> link</a>
 
