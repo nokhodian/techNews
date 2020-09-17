@@ -1,20 +1,20 @@
-<b>Technology NEWS on Wednesday, September 16th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Thursday, September 17th, 2020</b> 📡📡📡 
 
-👉Xiaomi Mi Band 5 set to launch on September 29 during Smarter Living event❗️<a href='https://techblock.club/?p=7251'> link</a>
+👉Google Shopping lets you look for products in nearby stores❗️<a href='https://techblock.club/?p=7271'> link</a>
 
-👉🏽Tony Hawk's Pro Skater 1 and 2 are pure classics : review❗️<a href='https://techblock.club/?p=7253'> link</a>
+👉🏽Microsoft Flight Simulator Patch Addresses "in-sim" Issues❗️<a href='https://techblock.club/?p=7273'> link</a>
 
-👉🏿Singapore To Give Free Apple Watch and iPhone App to Those Who Can Hit Health Goals❗️<a href='https://techblock.club/?p=7255'> link</a>
+👉🏿(Update) Monster Hunter Rise for Switch could be revealed as early as today❗️<a href='https://techblock.club/?p=7275'> link</a>
 
-👉Apple Watch SE & Family Setup aims for a slice of the kids GPS tracker market❗️<a href='https://techblock.club/?p=7257'> link</a>
+👉Galaxy S20 FE 5G leaks on Samsung website❗️<a href='https://techblock.club/?p=7277'> link</a>
 
-👉🏽Opera GX becomes the world's first browser with dynamic background music❗️<a href='https://techblock.club/?p=7259'> link</a>
+👉🏽Games Can Be 30% Smaller For Xbox Series S, Saving SSD Space On Install Sizes❗️<a href='https://techblock.club/?p=7279'> link</a>
 
-👉🏿Nintendo Direct Mini Partner Showcase: Start Time & How to Watch Online❗️<a href='https://techblock.club/?p=7261'> link</a>
+👉🏿iPhone 12 killer feature revealed — and it's bad news for Android phones❗️<a href='https://techblock.club/?p=7281'> link</a>
 
-👉Everything Fall Guys' Mid-Season Update Changes❗️<a href='https://techblock.club/?p=7263'> link</a>
+👉Our favorite SSD just hit its best price yet--but only for today❗️<a href='https://techblock.club/?p=7283'> link</a>
 
-👉🏽Windows 10 developers: Microsoft's Project Reunion just gained this new tool❗️<a href='https://techblock.club/?p=7265'> link</a>
+👉🏽Nintendo ends production of its Nintendo 3DS line❗️<a href='https://techblock.club/?p=7285'> link</a>
 
-👉🏿Razer Kishi Controller Launches for iPhone❗️<a href='https://techblock.club/?p=7267'> link</a>
+👉🏿Google Drive will start to delete trashed files after 30 days starting on October 13th❗️<a href='https://techblock.club/?p=7287'> link</a>
 
