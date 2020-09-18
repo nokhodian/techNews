@@ -1,20 +1,20 @@
-<b>Technology NEWS on Thursday, September 17th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Friday, September 18th, 2020</b> 📡📡📡 
 
-👉Google Shopping lets you look for products in nearby stores❗️<a href='https://techblock.club/?p=7271'> link</a>
+👉Hands On With the LG Wing: The Most Useful Dual-Screen Phone?❗️<a href='https://techblock.club/?p=7291'> link</a>
 
-👉🏽Microsoft Flight Simulator Patch Addresses "in-sim" Issues❗️<a href='https://techblock.club/?p=7273'> link</a>
+👉🏽Xbox Series X And S Preorders: Date, Time, And Everything You Need To Know❗️<a href='https://techblock.club/?p=7293'> link</a>
 
-👉🏿(Update) Monster Hunter Rise for Switch could be revealed as early as today❗️<a href='https://techblock.club/?p=7275'> link</a>
+👉🏿Xiaomi Mi Band 5 review: Bang-up budget band❗️<a href='https://techblock.club/?p=7295'> link</a>
 
-👉Galaxy S20 FE 5G leaks on Samsung website❗️<a href='https://techblock.club/?p=7277'> link</a>
+👉Apple Watch Series 6 Begins Arriving to Customers Around the World❗️<a href='https://techblock.club/?p=7297'> link</a>
 
-👉🏽Games Can Be 30% Smaller For Xbox Series S, Saving SSD Space On Install Sizes❗️<a href='https://techblock.club/?p=7279'> link</a>
+👉🏽PUBG unban in India? Know more about possibility of ban being lifted❗️<a href='https://techblock.club/?p=7299'> link</a>
 
-👉🏿iPhone 12 killer feature revealed — and it's bad news for Android phones❗️<a href='https://techblock.club/?p=7281'> link</a>
+👉🏿WhatsApp features coming soon: Fingerprint access for web, and more❗️<a href='https://techblock.club/?p=7301'> link</a>
 
-👉Our favorite SSD just hit its best price yet--but only for today❗️<a href='https://techblock.club/?p=7283'> link</a>
+👉Emmy Prediction: Widespread Apathy, Record Low Ratings❗️<a href='https://techblock.club/?p=7303'> link</a>
 
-👉🏽Nintendo ends production of its Nintendo 3DS line❗️<a href='https://techblock.club/?p=7285'> link</a>
+👉🏽The Ring Alarm Security Kit Now Comes With Verizon LTE Connectivity❗️<a href='https://techblock.club/?p=7305'> link</a>
 
-👉🏿Google Drive will start to delete trashed files after 30 days starting on October 13th❗️<a href='https://techblock.club/?p=7287'> link</a>
+👉🏿Nike Run Club Update Brings a New Modular Watch Face, 'Twilight Mode,' and 'Streaks'❗️<a href='https://techblock.club/?p=7307'> link</a>
 
