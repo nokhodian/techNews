@@ -1,20 +1,20 @@
-<b>Technology NEWS on Saturday, September 19th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Sunday, September 20th, 2020</b> 📡📡📡 
 
-👉What to expect from Amazon's September 2020 event❗️<a href='https://techblock.club/?p=7311'> link</a>
+👉6 Reasons The Legend of Zelda: Breath of the Wild is Still Riveting in 2020❗️<a href='https://techblock.club/?p=7331'> link</a>
 
-👉🏽Top Stories: Apple Event Recap, Apple Watch Series 6, Redesigned iPad Air, and More❗️<a href='https://techblock.club/?p=7313'> link</a>
+👉🏽Here's a new look at The World Ends with You anime❗️<a href='https://techblock.club/?p=7333'> link</a>
 
-👉🏿Car detective tracks mysterious disappearances of these classic cars❗️<a href='https://techblock.club/?p=7315'> link</a>
+👉🏿Red Dead Online Could Be Adding Zombies For Halloween❗️<a href='https://techblock.club/?p=7335'> link</a>
 
-👉Procreate 5X gains Pencil Features, AR facemasks on Monday❗️<a href='https://techblock.club/?p=7317'> link</a>
+👉Hands on with the new features of Apple Watch Series 6❗️<a href='https://techblock.club/?p=7337'> link</a>
 
-👉🏽How to use Triller, in case TikTok actually gets banned❗️<a href='https://techblock.club/?p=7319'> link</a>
+👉🏽Iranian Hacker Group Develops Malware to Bypass Google's Two-Factor Authentication on Android Devices❗️<a href='https://techblock.club/?p=7339'> link</a>
 
-👉🏿September is the start of spring bulb planting season❗️<a href='https://techblock.club/?p=7321'> link</a>
+👉🏿'Welcome To Elk' Review, Release Date & Other Details❗️<a href='https://techblock.club/?p=7341'> link</a>
 
-👉Traditional 1977 Norton Commando nonetheless in its authentic transport crate to be auctioned❗️<a href='https://techblock.club/?p=7323'> link</a>
+👉Pokemon GO Community Day: Trainers Leak Decoding Porygon's Full Set of Tasks; Is It Worth Purchasing?❗️<a href='https://techblock.club/?p=7343'> link</a>
 
-👉🏽Call of Duty: Black Ops Cold War Trailer, Plot, Release Date & News to Know❗️<a href='https://techblock.club/?p=7325'> link</a>
+👉🏽NEWS: BONES, Director Hiroko Utsumi Reveal SK8 the Infinity Original Anime❗️<a href='https://techblock.club/?p=7345'> link</a>
 
-👉🏿'Tony Hawk's Pro Skater 1 + 2' provides the perfect amount of nostalgia❗️<a href='https://techblock.club/?p=7327'> link</a>
+👉🏿Elder Scrolls 6 needs to do 1 counterintuitive thing to match Skyrim❗️<a href='https://techblock.club/?p=7347'> link</a>
 
