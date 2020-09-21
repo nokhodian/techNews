@@ -1,20 +1,20 @@
-<b>Technology NEWS on Sunday, September 20th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Monday, September 21st, 2020</b> 📡📡📡 
 
-👉6 Reasons The Legend of Zelda: Breath of the Wild is Still Riveting in 2020❗️<a href='https://techblock.club/?p=7331'> link</a>
+👉Rumour: Advert Suggests Smash Ultimate's Next DLC Fighter Could Be Revealed By Early October❗️<a href='https://techblock.club/?p=7351'> link</a>
 
-👉🏽Here's a new look at The World Ends with You anime❗️<a href='https://techblock.club/?p=7333'> link</a>
+👉🏽Another retailer has listed the Mass Effect Trilogy for Switch, PS4 and Xbox One❗️<a href='https://techblock.club/?p=7353'> link</a>
 
-👉🏿Red Dead Online Could Be Adding Zombies For Halloween❗️<a href='https://techblock.club/?p=7335'> link</a>
+👉🏿Microsoft acquires ZeniMax Media and Fallout maker Bethesda for $7.5 billion❗️<a href='https://techblock.club/?p=7355'> link</a>
 
-👉Hands on with the new features of Apple Watch Series 6❗️<a href='https://techblock.club/?p=7337'> link</a>
+👉Ten years in, the iPad is still capable of surprising us—and Apple❗️<a href='https://techblock.club/?p=7357'> link</a>
 
-👉🏽Iranian Hacker Group Develops Malware to Bypass Google's Two-Factor Authentication on Android Devices❗️<a href='https://techblock.club/?p=7339'> link</a>
+👉🏽High-VRAM Variants of RTX 3080, 3070, Upcoming 3060 Confirmed❗️<a href='https://techblock.club/?p=7359'> link</a>
 
-👉🏿'Welcome To Elk' Review, Release Date & Other Details❗️<a href='https://techblock.club/?p=7341'> link</a>
+👉🏿This simple coronavirus test gives results in 90 minutes❗️<a href='https://techblock.club/?p=7361'> link</a>
 
-👉Pokemon GO Community Day: Trainers Leak Decoding Porygon's Full Set of Tasks; Is It Worth Purchasing?❗️<a href='https://techblock.club/?p=7343'> link</a>
+👉SEE IT: Spirit Airlines defends flight attendant who told passenger neck gaiter won't cut it❗️<a href='https://techblock.club/?p=7363'> link</a>
 
-👉🏽NEWS: BONES, Director Hiroko Utsumi Reveal SK8 the Infinity Original Anime❗️<a href='https://techblock.club/?p=7345'> link</a>
+👉🏽CDPR shortened Cyberpunk 2077 campaign following Witcher 3 length complaints❗️<a href='https://techblock.club/?p=7365'> link</a>
 
-👉🏿Elder Scrolls 6 needs to do 1 counterintuitive thing to match Skyrim❗️<a href='https://techblock.club/?p=7347'> link</a>
+👉🏿WWE 2K Battlegrounds❗️<a href='https://techblock.club/?p=7367'> link</a>
 
