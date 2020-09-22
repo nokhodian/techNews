@@ -1,20 +1,20 @@
-<b>Technology NEWS on Monday, September 21st, 2020</b> 📡📡📡 
+<b>Technology NEWS on Tuesday, September 22nd, 2020</b> 📡📡📡 
 
-👉Rumour: Advert Suggests Smash Ultimate's Next DLC Fighter Could Be Revealed By Early October❗️<a href='https://techblock.club/?p=7351'> link</a>
+👉Nintendo Switch In Stock At Amazon, Best Buy, And Target❗️<a href='https://techblock.club/?p=7371'> link</a>
 
-👉🏽Another retailer has listed the Mass Effect Trilogy for Switch, PS4 and Xbox One❗️<a href='https://techblock.club/?p=7353'> link</a>
+👉🏽Google may soon redesign Gmail logo❗️<a href='https://techblock.club/?p=7373'> link</a>
 
-👉🏿Microsoft acquires ZeniMax Media and Fallout maker Bethesda for $7.5 billion❗️<a href='https://techblock.club/?p=7355'> link</a>
+👉🏿Is Hades Coming to PS4?❗️<a href='https://techblock.club/?p=7375'> link</a>
 
-👉Ten years in, the iPad is still capable of surprising us—and Apple❗️<a href='https://techblock.club/?p=7357'> link</a>
+👉Samsung SSD 980 Pro Review❗️<a href='https://techblock.club/?p=7377'> link</a>
 
-👉🏽High-VRAM Variants of RTX 3080, 3070, Upcoming 3060 Confirmed❗️<a href='https://techblock.club/?p=7359'> link</a>
+👉🏽Here's What's New In Android 11 For Android TV❗️<a href='https://techblock.club/?p=7379'> link</a>
 
-👉🏿This simple coronavirus test gives results in 90 minutes❗️<a href='https://techblock.club/?p=7361'> link</a>
+👉🏿OnePlus 8T will have a 120Hz display that ditches those awful curved sides❗️<a href='https://techblock.club/?p=7381'> link</a>
 
-👉SEE IT: Spirit Airlines defends flight attendant who told passenger neck gaiter won't cut it❗️<a href='https://techblock.club/?p=7363'> link</a>
+👉Xbox Series X And S Preorder: Where To Buy The Consoles Today❗️<a href='https://techblock.club/?p=7383'> link</a>
 
-👉🏽CDPR shortened Cyberpunk 2077 campaign following Witcher 3 length complaints❗️<a href='https://techblock.club/?p=7365'> link</a>
+👉🏽Dubbing in Ukrainian to become available to Netflix users❗️<a href='https://techblock.club/?p=7385'> link</a>
 
-👉🏿WWE 2K Battlegrounds❗️<a href='https://techblock.club/?p=7367'> link</a>
+👉🏿GoQuest to take Rats around globe❗️<a href='https://techblock.club/?p=7387'> link</a>
 
