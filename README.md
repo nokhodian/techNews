@@ -1,20 +1,20 @@
-<b>Technology NEWS on Tuesday, September 22nd, 2020</b> 📡📡📡 
+<b>Technology NEWS on Wednesday, September 23rd, 2020</b> 📡📡📡 
 
-👉Nintendo Switch In Stock At Amazon, Best Buy, And Target❗️<a href='https://techblock.club/?p=7371'> link</a>
+👉Konami Gets Old Metal Gear, Castlevania, and Contra Games Rated for PC❗️<a href='https://techblock.club/?p=7391'> link</a>
 
-👉🏽Google may soon redesign Gmail logo❗️<a href='https://techblock.club/?p=7373'> link</a>
+👉🏽This airline offers coronavirus-free flights to convince people to fly❗️<a href='https://techblock.club/?p=7393'> link</a>
 
-👉🏿Is Hades Coming to PS4?❗️<a href='https://techblock.club/?p=7375'> link</a>
+👉🏿Fortnite Wolverine Boss Location & How to Get Wolverine Claws❗️<a href='https://techblock.club/?p=7395'> link</a>
 
-👉Samsung SSD 980 Pro Review❗️<a href='https://techblock.club/?p=7377'> link</a>
+👉EU regulators extend Google, Fitbit deal probe to December 23❗️<a href='https://techblock.club/?p=7397'> link</a>
 
-👉🏽Here's What's New In Android 11 For Android TV❗️<a href='https://techblock.club/?p=7379'> link</a>
+👉🏽Realme Narzo 20, Narzo 20A & Narzo 20 Pro Specifications & Features Check Price In India❗️<a href='https://techblock.club/?p=7399'> link</a>
 
-👉🏿OnePlus 8T will have a 120Hz display that ditches those awful curved sides❗️<a href='https://techblock.club/?p=7381'> link</a>
+👉🏿Amazon Fire TV Stick Lite just leaked — and Chromecast should be worried❗️<a href='https://techblock.club/?p=7401'> link</a>
 
-👉Xbox Series X And S Preorder: Where To Buy The Consoles Today❗️<a href='https://techblock.club/?p=7383'> link</a>
+👉Here's how to watch the Resident Evil 8 presentation at Tokyo Game Show❗️<a href='https://techblock.club/?p=7403'> link</a>
 
-👉🏽Dubbing in Ukrainian to become available to Netflix users❗️<a href='https://techblock.club/?p=7385'> link</a>
+👉🏽Android 11 puts its game on with expanded gamepad support❗️<a href='https://techblock.club/?p=7405'> link</a>
 
-👉🏿GoQuest to take Rats around globe❗️<a href='https://techblock.club/?p=7387'> link</a>
+👉🏿Tesla begins taking orders for the $140000 Model S 'Plaid' that'll reach customers late next year❗️<a href='https://techblock.club/?p=7407'> link</a>
 
