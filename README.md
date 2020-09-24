@@ -1,20 +1,20 @@
-<b>Technology NEWS on Wednesday, September 23rd, 2020</b> 📡📡📡 
+<b>Technology NEWS on Thursday, September 24th, 2020</b> 📡📡📡 
 
-👉Konami Gets Old Metal Gear, Castlevania, and Contra Games Rated for PC❗️<a href='https://techblock.club/?p=7391'> link</a>
+👉Roli Lumi keyboard teaches you piano with an iPad or iPhone❗️<a href='https://techblock.club/?p=7411'> link</a>
 
-👉🏽This airline offers coronavirus-free flights to convince people to fly❗️<a href='https://techblock.club/?p=7393'> link</a>
+👉🏽Epic Games, Spotify, and Tile Form 'Coalition for App Fairness' to 'Fight Back' Against Apple❗️<a href='https://techblock.club/?p=7413'> link</a>
 
-👉🏿Fortnite Wolverine Boss Location & How to Get Wolverine Claws❗️<a href='https://techblock.club/?p=7395'> link</a>
+👉🏿Using Gamification For User Engagement❗️<a href='https://techblock.club/?p=7415'> link</a>
 
-👉EU regulators extend Google, Fitbit deal probe to December 23❗️<a href='https://techblock.club/?p=7397'> link</a>
+👉'Nier' remaster heads to the West on April 23rd, 2021❗️<a href='https://techblock.club/?p=7417'> link</a>
 
-👉🏽Realme Narzo 20, Narzo 20A & Narzo 20 Pro Specifications & Features Check Price In India❗️<a href='https://techblock.club/?p=7399'> link</a>
+👉🏽Google's best Pixel 5 model just leaked – and it isn't actually a Pixel 5 at all❗️<a href='https://techblock.club/?p=7419'> link</a>
 
-👉🏿Amazon Fire TV Stick Lite just leaked — and Chromecast should be worried❗️<a href='https://techblock.club/?p=7401'> link</a>
+👉🏿Transformers: Battlegrounds Gets Its First Gameplay Trailer, Digital Deluxe Edition Revealed❗️<a href='https://techblock.club/?p=7421'> link</a>
 
-👉Here's how to watch the Resident Evil 8 presentation at Tokyo Game Show❗️<a href='https://techblock.club/?p=7403'> link</a>
+👉VLC For Android Update Adds Black Theme, Redesigned Video Player & More❗️<a href='https://techblock.club/?p=7423'> link</a>
 
-👉🏽Android 11 puts its game on with expanded gamepad support❗️<a href='https://techblock.club/?p=7405'> link</a>
+👉🏽2021 BMW M3 and M4 gets bevy of M Performance parts including stacked exhaust❗️<a href='https://techblock.club/?p=7425'> link</a>
 
-👉🏿Tesla begins taking orders for the $140000 Model S 'Plaid' that'll reach customers late next year❗️<a href='https://techblock.club/?p=7407'> link</a>
+👉🏿New games are coming for Xbox Series X, PS5 and Switch. Here's when you can get them❗️<a href='https://techblock.club/?p=7427'> link</a>
 
