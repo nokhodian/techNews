@@ -1,20 +1,20 @@
-<b>Technology NEWS on Thursday, September 24th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Friday, September 25th, 2020</b> 📡📡📡 
 
-👉Roli Lumi keyboard teaches you piano with an iPad or iPhone❗️<a href='https://techblock.club/?p=7411'> link</a>
+👉Apple Fitness Plus' biggest competitor isn't Peloton — it's your gym❗️<a href='https://techblock.club/?p=7431'> link</a>
 
-👉🏽Epic Games, Spotify, and Tile Form 'Coalition for App Fairness' to 'Fight Back' Against Apple❗️<a href='https://techblock.club/?p=7413'> link</a>
+👉🏽Apple's in a war for the future of the App Store. Here's what's at stake❗️<a href='https://techblock.club/?p=7433'> link</a>
 
-👉🏿Using Gamification For User Engagement❗️<a href='https://techblock.club/?p=7415'> link</a>
+👉🏿Amber Rose joins Taiga on a beach vacation and wows in a plumbing black swimsuit❗️<a href='https://techblock.club/?p=7435'> link</a>
 
-👉'Nier' remaster heads to the West on April 23rd, 2021❗️<a href='https://techblock.club/?p=7417'> link</a>
+👉SpaceX Starship: incredible video shows the vacuum Raptor engine's power❗️<a href='https://techblock.club/?p=7437'> link</a>
 
-👉🏽Google's best Pixel 5 model just leaked – and it isn't actually a Pixel 5 at all❗️<a href='https://techblock.club/?p=7419'> link</a>
+👉🏽POSTAL Redux is about to pay a visit to Nintendo Switch❗️<a href='https://techblock.club/?p=7439'> link</a>
 
-👉🏿Transformers: Battlegrounds Gets Its First Gameplay Trailer, Digital Deluxe Edition Revealed❗️<a href='https://techblock.club/?p=7421'> link</a>
+👉🏿Kingdom Hearts: Melody of Memory Demo Will Become Available in Mid-October❗️<a href='https://techblock.club/?p=7441'> link</a>
 
-👉VLC For Android Update Adds Black Theme, Redesigned Video Player & More❗️<a href='https://techblock.club/?p=7423'> link</a>
+👉Here's What The Nest Audio Smart Speaker Looks Like❗️<a href='https://techblock.club/?p=7443'> link</a>
 
-👉🏽2021 BMW M3 and M4 gets bevy of M Performance parts including stacked exhaust❗️<a href='https://techblock.club/?p=7425'> link</a>
+👉🏽It's About To Get Spooky In Animal Crossing: New Horizons❗️<a href='https://techblock.club/?p=7445'> link</a>
 
-👉🏿New games are coming for Xbox Series X, PS5 and Switch. Here's when you can get them❗️<a href='https://techblock.club/?p=7427'> link</a>
+👉🏿Resident Evil Village Gets New Video Introducing its Terrifying World & Atmosphere❗️<a href='https://techblock.club/?p=7447'> link</a>
 
