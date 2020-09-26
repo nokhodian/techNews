@@ -1,20 +1,20 @@
-<b>Technology NEWS on Friday, September 25th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Saturday, September 26th, 2020</b> 📡📡📡 
 
-👉Apple Fitness Plus' biggest competitor isn't Peloton — it's your gym❗️<a href='https://techblock.club/?p=7431'> link</a>
+👉Amazon Luna Isn't Solving Cloud Gaming's Biggest Problems❗️<a href='https://techblock.club/?p=7451'> link</a>
 
-👉🏽Apple's in a war for the future of the App Store. Here's what's at stake❗️<a href='https://techblock.club/?p=7433'> link</a>
+👉🏽Xbox Series S preorders are sold out: Check inventory at Amazon, Walmart, GameStop and more❗️<a href='https://techblock.club/?p=7453'> link</a>
 
-👉🏿Amber Rose joins Taiga on a beach vacation and wows in a plumbing black swimsuit❗️<a href='https://techblock.club/?p=7435'> link</a>
+👉🏿Deathsmiles I & II Announced for PS4, XB1, and Switch❗️<a href='https://techblock.club/?p=7455'> link</a>
 
-👉SpaceX Starship: incredible video shows the vacuum Raptor engine's power❗️<a href='https://techblock.club/?p=7437'> link</a>
+👉New Hyrule Warriors: Age of Calamity trailer unites the four Champions from Breath of the Wild❗️<a href='https://techblock.club/?p=7457'> link</a>
 
-👉🏽POSTAL Redux is about to pay a visit to Nintendo Switch❗️<a href='https://techblock.club/?p=7439'> link</a>
+👉🏽PlayStation 5 DualSense controller spotted on Travis Scott's Instagram❗️<a href='https://techblock.club/?p=7459'> link</a>
 
-👉🏿Kingdom Hearts: Melody of Memory Demo Will Become Available in Mid-October❗️<a href='https://techblock.club/?p=7441'> link</a>
+👉🏿Windows XP had secret theme that looked like Apple's Aqua❗️<a href='https://techblock.club/?p=7461'> link</a>
 
-👉Here's What The Nest Audio Smart Speaker Looks Like❗️<a href='https://techblock.club/?p=7443'> link</a>
+👉The Last of Us: The Board Game Creators Promise a 'Unique and Compelling' Experience❗️<a href='https://techblock.club/?p=7463'> link</a>
 
-👉🏽It's About To Get Spooky In Animal Crossing: New Horizons❗️<a href='https://techblock.club/?p=7445'> link</a>
+👉🏽Apple Watch Series 6 review: More health data but not much to do with it❗️<a href='https://techblock.club/?p=7465'> link</a>
 
-👉🏿Resident Evil Village Gets New Video Introducing its Terrifying World & Atmosphere❗️<a href='https://techblock.club/?p=7447'> link</a>
+👉🏿Top Stories: iOS 14 Feature Tour, 'iPhone 12 mini' Rumors, Apple Watch Band Controversy❗️<a href='https://techblock.club/?p=7467'> link</a>
 
