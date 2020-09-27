@@ -1,20 +1,20 @@
-<b>Technology NEWS on Saturday, September 26th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Sunday, September 27th, 2020</b> 📡📡📡 
 
-👉Amazon Luna Isn't Solving Cloud Gaming's Biggest Problems❗️<a href='https://techblock.club/?p=7451'> link</a>
+👉How Square Enix Is Managing Hype Expectations For Final Fantasy XVI❗️<a href='https://techblock.club/?p=7471'> link</a>
 
-👉🏽Xbox Series S preorders are sold out: Check inventory at Amazon, Walmart, GameStop and more❗️<a href='https://techblock.club/?p=7453'> link</a>
+👉🏽Jio launches in-flight data and voice calling plans for Postpaid Plus users❗️<a href='https://techblock.club/?p=7473'> link</a>
 
-👉🏿Deathsmiles I & II Announced for PS4, XB1, and Switch❗️<a href='https://techblock.club/?p=7455'> link</a>
+👉🏿Fight of the $350 laptop computers: Acer Swift 1 vs. Portal Ryzen 3 3200 U❗️<a href='https://techblock.club/?p=7475'> link</a>
 
-👉New Hyrule Warriors: Age of Calamity trailer unites the four Champions from Breath of the Wild❗️<a href='https://techblock.club/?p=7457'> link</a>
+👉Leaked images reportedly reveal first look at Bethesda's Starfield❗️<a href='https://techblock.club/?p=7477'> link</a>
 
-👉🏽PlayStation 5 DualSense controller spotted on Travis Scott's Instagram❗️<a href='https://techblock.club/?p=7459'> link</a>
+👉🏽Fortnite Birthday Bash officially arrives: Everything you need to know❗️<a href='https://techblock.club/?p=7479'> link</a>
 
-👉🏿Windows XP had secret theme that looked like Apple's Aqua❗️<a href='https://techblock.club/?p=7461'> link</a>
+👉🏿AirPods Pro Are Even Better One Year Later❗️<a href='https://techblock.club/?p=7481'> link</a>
 
-👉The Last of Us: The Board Game Creators Promise a 'Unique and Compelling' Experience❗️<a href='https://techblock.club/?p=7463'> link</a>
+👉Blink Indoor Security Camera review: Can't handle the great indoors❗️<a href='https://techblock.club/?p=7483'> link</a>
 
-👉🏽Apple Watch Series 6 review: More health data but not much to do with it❗️<a href='https://techblock.club/?p=7465'> link</a>
+👉🏽laptop flashes, power led flashes, does not turn on❗️<a href='https://techblock.club/?p=7485'> link</a>
 
-👉🏿Top Stories: iOS 14 Feature Tour, 'iPhone 12 mini' Rumors, Apple Watch Band Controversy❗️<a href='https://techblock.club/?p=7467'> link</a>
+👉🏿Samsung phone price drop: Check new prices of Galaxy M31s, M11, and M01❗️<a href='https://techblock.club/?p=7487'> link</a>
 
