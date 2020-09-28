@@ -1,20 +1,20 @@
-<b>Technology NEWS on Sunday, September 27th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Monday, September 28th, 2020</b> 📡📡📡 
 
-👉How Square Enix Is Managing Hype Expectations For Final Fantasy XVI❗️<a href='https://techblock.club/?p=7471'> link</a>
+👉Realme C15 review: Yet another entrant in Rs 10000 smartphone segment❗️<a href='https://techblock.club/?p=7491'> link</a>
 
-👉🏽Jio launches in-flight data and voice calling plans for Postpaid Plus users❗️<a href='https://techblock.club/?p=7473'> link</a>
+👉🏽NBA 2K21 Update Adjusts Dribbling Controls, Full Patch Notes Detailed❗️<a href='https://techblock.club/?p=7493'> link</a>
 
-👉🏿Fight of the $350 laptop computers: Acer Swift 1 vs. Portal Ryzen 3 3200 U❗️<a href='https://techblock.club/?p=7475'> link</a>
+👉🏿Pokemon Sword & Shield DLC Crown Tundra Gets A Livestream Tomorrow❗️<a href='https://techblock.club/?p=7495'> link</a>
 
-👉Leaked images reportedly reveal first look at Bethesda's Starfield❗️<a href='https://techblock.club/?p=7477'> link</a>
+👉Marvel's Avengers brings together Earth's Mightiest Heroes for a slam-bang action game : review❗️<a href='https://techblock.club/?p=7497'> link</a>
 
-👉🏽Fortnite Birthday Bash officially arrives: Everything you need to know❗️<a href='https://techblock.club/?p=7479'> link</a>
+👉🏽Flying car race dubbed 'F1 of the skies' coming in 2021 thanks to Star Wars loving Aussie millionaire❗️<a href='https://techblock.club/?p=7499'> link</a>
 
-👉🏿AirPods Pro Are Even Better One Year Later❗️<a href='https://techblock.club/?p=7481'> link</a>
+👉🏿Video Gaming Is Ready for Its "Netflix Moment": Analyst❗️<a href='https://techblock.club/?p=7501'> link</a>
 
-👉Blink Indoor Security Camera review: Can't handle the great indoors❗️<a href='https://techblock.club/?p=7483'> link</a>
+👉Scarlet Nexus for PS5, Xbox Series X, PS4, Xbox One, & PC Gets English Story Trailer❗️<a href='https://techblock.club/?p=7503'> link</a>
 
-👉🏽laptop flashes, power led flashes, does not turn on❗️<a href='https://techblock.club/?p=7485'> link</a>
+👉🏽AirPlay 2 and HomeKit Coming to Select 4K Roku TVs and Devices Later This Year❗️<a href='https://techblock.club/?p=7505'> link</a>
 
-👉🏿Samsung phone price drop: Check new prices of Galaxy M31s, M11, and M01❗️<a href='https://techblock.club/?p=7487'> link</a>
+👉🏿The original FarmVille on Facebook is shutting down at the end of the year❗️<a href='https://techblock.club/?p=7507'> link</a>
 
