@@ -1,20 +1,20 @@
-<b>Technology NEWS on Monday, September 28th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Tuesday, September 29th, 2020</b> 📡📡📡 
 
-👉Realme C15 review: Yet another entrant in Rs 10000 smartphone segment❗️<a href='https://techblock.club/?p=7491'> link</a>
+👉AMD Zen 3 CPUs listed as Ryzen 5000-series chips in benchmark leak❗️<a href='https://techblock.club/?p=7511'> link</a>
 
-👉🏽NBA 2K21 Update Adjusts Dribbling Controls, Full Patch Notes Detailed❗️<a href='https://techblock.club/?p=7493'> link</a>
+👉🏽Motorola Razr arrives Oct. 2 with discounts up to $700 off❗️<a href='https://techblock.club/?p=7513'> link</a>
 
-👉🏿Pokemon Sword & Shield DLC Crown Tundra Gets A Livestream Tomorrow❗️<a href='https://techblock.club/?p=7495'> link</a>
+👉🏿OnePlus 8T Pro is officially not happening — and that's a good thing❗️<a href='https://techblock.club/?p=7515'> link</a>
 
-👉Marvel's Avengers brings together Earth's Mightiest Heroes for a slam-bang action game : review❗️<a href='https://techblock.club/?p=7497'> link</a>
+👉Google Meet Gets AI-Powered Noise Cancellation Feature❗️<a href='https://techblock.club/?p=7517'> link</a>
 
-👉🏽Flying car race dubbed 'F1 of the skies' coming in 2021 thanks to Star Wars loving Aussie millionaire❗️<a href='https://techblock.club/?p=7499'> link</a>
+👉🏽Slack Slowdown Frustrates Remote Workers❗️<a href='https://techblock.club/?p=7519'> link</a>
 
-👉🏿Video Gaming Is Ready for Its "Netflix Moment": Analyst❗️<a href='https://techblock.club/?p=7501'> link</a>
+👉🏿Pokemon Sword And Shield Players Can Get A Free Ash's Pikachu❗️<a href='https://techblock.club/?p=7521'> link</a>
 
-👉Scarlet Nexus for PS5, Xbox Series X, PS4, Xbox One, & PC Gets English Story Trailer❗️<a href='https://techblock.club/?p=7503'> link</a>
+👉Microsoft thinks remote workers need a 'virtual commute'❗️<a href='https://techblock.club/?p=7523'> link</a>
 
-👉🏽AirPlay 2 and HomeKit Coming to Select 4K Roku TVs and Devices Later This Year❗️<a href='https://techblock.club/?p=7505'> link</a>
+👉🏽iOS 14 review: Finally rid of the grid❗️<a href='https://techblock.club/?p=7525'> link</a>
 
-👉🏿The original FarmVille on Facebook is shutting down at the end of the year❗️<a href='https://techblock.club/?p=7507'> link</a>
+👉🏿Bluetooth speakers and true wireless earbuds hit all-time low prices, today only❗️<a href='https://techblock.club/?p=7527'> link</a>
 
