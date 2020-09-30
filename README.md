@@ -1,20 +1,20 @@
-<b>Technology NEWS on Tuesday, September 29th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Wednesday, September 30th, 2020</b> 📡📡📡 
 
-👉AMD Zen 3 CPUs listed as Ryzen 5000-series chips in benchmark leak❗️<a href='https://techblock.club/?p=7511'> link</a>
+👉'Genshin Impact' tries an interesting live service trick: Make a good game at launch❗️<a href='https://techblock.club/?p=7531'> link</a>
 
-👉🏽Motorola Razr arrives Oct. 2 with discounts up to $700 off❗️<a href='https://techblock.club/?p=7513'> link</a>
+👉🏽Asus ZenBook 14 UX425EA review: a standard step ahead❗️<a href='https://techblock.club/?p=7533'> link</a>
 
-👉🏿OnePlus 8T Pro is officially not happening — and that's a good thing❗️<a href='https://techblock.club/?p=7515'> link</a>
+👉🏿Nintendo Switch News: 'Jump Rope Challenge' Isn't Leaving The eShop❗️<a href='https://techblock.club/?p=7535'> link</a>
 
-👉Google Meet Gets AI-Powered Noise Cancellation Feature❗️<a href='https://techblock.club/?p=7517'> link</a>
+👉Feature Request: Offer more iOS themes than just Light and Dark❗️<a href='https://techblock.club/?p=7537'> link</a>
 
-👉🏽Slack Slowdown Frustrates Remote Workers❗️<a href='https://techblock.club/?p=7519'> link</a>
+👉🏽SanDisk Extreme Portable SSD v2 and WD My Passport SSD (2020) Review❗️<a href='https://techblock.club/?p=7539'> link</a>
 
-👉🏿Pokemon Sword And Shield Players Can Get A Free Ash's Pikachu❗️<a href='https://techblock.club/?p=7521'> link</a>
+👉🏿HP G2 Omnicept: Enterprise-grade VR whose sensors can read “cognitive load”❗️<a href='https://techblock.club/?p=7541'> link</a>
 
-👉Microsoft thinks remote workers need a 'virtual commute'❗️<a href='https://techblock.club/?p=7523'> link</a>
+👉Google Duo's auto-framing feature comes to Samsung devices, no longer a Pixel 4 exclusive❗️<a href='https://techblock.club/?p=7543'> link</a>
 
-👉🏽iOS 14 review: Finally rid of the grid❗️<a href='https://techblock.club/?p=7525'> link</a>
+👉🏽Bethesda's Starfield screenshot leaks but will it be an Xbox exclusive?❗️<a href='https://techblock.club/?p=7545'> link</a>
 
-👉🏿Bluetooth speakers and true wireless earbuds hit all-time low prices, today only❗️<a href='https://techblock.club/?p=7527'> link</a>
+👉🏿Facebook Messenger, Instagram will let you chat with your friends without switching apps❗️<a href='https://techblock.club/?p=7547'> link</a>
 
