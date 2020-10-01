@@ -1,20 +1,20 @@
-<b>Technology NEWS on Wednesday, September 30th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Thursday, October 1st, 2020</b> 📡📡📡 
 
-👉'Genshin Impact' tries an interesting live service trick: Make a good game at launch❗️<a href='https://techblock.club/?p=7531'> link</a>
+👉Apple Watch Series 6 review: minute improvements❗️<a href='https://techblock.club/?p=7551'> link</a>
 
-👉🏽Asus ZenBook 14 UX425EA review: a standard step ahead❗️<a href='https://techblock.club/?p=7533'> link</a>
+👉🏽The Biggest PS5 Games You Can Preorder Now❗️<a href='https://techblock.club/?p=7553'> link</a>
 
-👉🏿Nintendo Switch News: 'Jump Rope Challenge' Isn't Leaving The eShop❗️<a href='https://techblock.club/?p=7535'> link</a>
+👉🏿You can play Fifa 21 early - here's how❗️<a href='https://techblock.club/?p=7555'> link</a>
 
-👉Feature Request: Offer more iOS themes than just Light and Dark❗️<a href='https://techblock.club/?p=7537'> link</a>
+👉Crash Bandicoot 4: It's About Time: The Kotaku Review❗️<a href='https://techblock.club/?p=7557'> link</a>
 
-👉🏽SanDisk Extreme Portable SSD v2 and WD My Passport SSD (2020) Review❗️<a href='https://techblock.club/?p=7539'> link</a>
+👉🏽GTA 6 release news: Grand Theft Auto tease as Rockstar Games drop major hint❗️<a href='https://techblock.club/?p=7559'> link</a>
 
-👉🏿HP G2 Omnicept: Enterprise-grade VR whose sensors can read “cognitive load”❗️<a href='https://techblock.club/?p=7541'> link</a>
+👉🏿EU Plans to Ban Tech Companies From Pre-Installing Apps, Force Them to Share Data With Competitors❗️<a href='https://techblock.club/?p=7561'> link</a>
 
-👉Google Duo's auto-framing feature comes to Samsung devices, no longer a Pixel 4 exclusive❗️<a href='https://techblock.club/?p=7543'> link</a>
+👉Animal Crossing: New Horizons Is Getting Another Update In November❗️<a href='https://techblock.club/?p=7563'> link</a>
 
-👉🏽Bethesda's Starfield screenshot leaks but will it be an Xbox exclusive?❗️<a href='https://techblock.club/?p=7545'> link</a>
+👉🏽Smash Bros. Ultimate's DLC Character Reveal: How To Watch And Start Time❗️<a href='https://techblock.club/?p=7565'> link</a>
 
-👉🏿Facebook Messenger, Instagram will let you chat with your friends without switching apps❗️<a href='https://techblock.club/?p=7547'> link</a>
+👉🏿Xiaomi Mi 10T series launched with impressive specs and pricing❗️<a href='https://techblock.club/?p=7567'> link</a>
 
