@@ -1,20 +1,20 @@
-<b>Technology NEWS on Thursday, October 1st, 2020</b> 📡📡📡 
+<b>Technology NEWS on Friday, October 2nd, 2020</b> 📡📡📡 
 
-👉Apple Watch Series 6 review: minute improvements❗️<a href='https://techblock.club/?p=7551'> link</a>
+👉Crash Bandicoot 4 is a charming, challenging throwback❗️<a href='https://techblock.club/?p=7571'> link</a>
 
-👉🏽The Biggest PS5 Games You Can Preorder Now❗️<a href='https://techblock.club/?p=7553'> link</a>
+👉🏽Samsung's Galaxy Tab S7 makes the best of a bad situation among Android tablets❗️<a href='https://techblock.club/?p=7573'> link</a>
 
-👉🏿You can play Fifa 21 early - here's how❗️<a href='https://techblock.club/?p=7555'> link</a>
+👉🏿Will Nintendo's Switch Be Buried by Sony's PS5 and Microsoft's Xbox Series X?❗️<a href='https://techblock.club/?p=7575'> link</a>
 
-👉Crash Bandicoot 4: It's About Time: The Kotaku Review❗️<a href='https://techblock.club/?p=7557'> link</a>
+👉Silent Hill 4 PC Release Arrives After Metal Gear, Castlevania & Contra❗️<a href='https://techblock.club/?p=7577'> link</a>
 
-👉🏽GTA 6 release news: Grand Theft Auto tease as Rockstar Games drop major hint❗️<a href='https://techblock.club/?p=7559'> link</a>
+👉🏽Process Ingredients Genshin Impact❗️<a href='https://techblock.club/?p=7579'> link</a>
 
-👉🏿EU Plans to Ban Tech Companies From Pre-Installing Apps, Force Them to Share Data With Competitors❗️<a href='https://techblock.club/?p=7561'> link</a>
+👉🏿WhatsApp beta brings permanent mute feature, new Storage Usage UI❗️<a href='https://techblock.club/?p=7581'> link</a>
 
-👉Animal Crossing: New Horizons Is Getting Another Update In November❗️<a href='https://techblock.club/?p=7563'> link</a>
+👉Haus Laboratories' New Face Duos Are Kicking Off A New Category For The Brand — Here's When They Launch❗️<a href='https://techblock.club/?p=7583'> link</a>
 
-👉🏽Smash Bros. Ultimate's DLC Character Reveal: How To Watch And Start Time❗️<a href='https://techblock.club/?p=7565'> link</a>
+👉🏽Steam Page Suggests People Can Fly's Outriders May Be Pushed to Early 2021❗️<a href='https://techblock.club/?p=7585'> link</a>
 
-👉🏿Xiaomi Mi 10T series launched with impressive specs and pricing❗️<a href='https://techblock.club/?p=7567'> link</a>
+👉🏿Apple removes more RSS apps from Chinese App Store, likely at government behest❗️<a href='https://techblock.club/?p=7587'> link</a>
 
