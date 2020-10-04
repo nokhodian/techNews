@@ -1,20 +1,20 @@
-<b>Technology NEWS on Saturday, October 3rd, 2020</b> 📡📡📡 
+<b>Technology NEWS on Sunday, October 4th, 2020</b> 📡📡📡 
 
-👉Watch: Super Smash Bros. Ultimate director reveals Steve from Minecraft's release date❗️<a href='https://techblock.club/?p=7591'> link</a>
+👉Poll: Are You Happy With Your PS Plus Games for October 2020?❗️<a href='https://techblock.club/?p=7611'> link</a>
 
-👉🏽Need for Speed Twitter Account Seems to Be Teasing Something for October 5th❗️<a href='https://techblock.club/?p=7593'> link</a>
+👉🏽The woman claims that serum made from wild MUSTARD extract helped improve her acne in just two weeks❗️<a href='https://techblock.club/?p=7613'> link</a>
 
-👉🏿This week's top stories: Pixel 5 formally announced, Google TV unveiled, OxygenOS 10.0.8, more❗️<a href='https://techblock.club/?p=7595'> link</a>
+👉🏿Crash Bandicoot 4 : It's About Time review: Best of the best❗️<a href='https://techblock.club/?p=7615'> link</a>
 
-👉Top Stories: iPhone 12 Mini Rumors, New iPad Air Soon, iOS 14.2 Beta 2❗️<a href='https://techblock.club/?p=7597'> link</a>
+👉Why Tech Geniuses Alan Gokoglu and Fotios Tsiouklas Made The Move To SaaS Businesses❗️<a href='https://techblock.club/?p=7617'> link</a>
 
-👉🏽Save on the OnePlus 8 and PlayStation Plus this weekend❗️<a href='https://techblock.club/?p=7599'> link</a>
+👉🏽iPhone battery bad after installing iOS 14? Apple offers some help❗️<a href='https://techblock.club/?p=7619'> link</a>
 
-👉🏿This Samsung Phone Lets Users Control it With Just Waving in the Air❗️<a href='https://techblock.club/?p=7601'> link</a>
+👉🏿Genshin Impact: How To Increase Your Adventurer Rank❗️<a href='https://techblock.club/?p=7621'> link</a>
 
-👉No, AMD isn't discontinuing the Radeon RX 5700 series❗️<a href='https://techblock.club/?p=7603'> link</a>
+👉'World Of Warcraft: Shadowlands' Delayed To Later This Year❗️<a href='https://techblock.club/?p=7623'> link</a>
 
-👉🏽What Is Androxene Price?❗️<a href='https://techblock.club/?p=7605'> link</a>
+👉🏽OPPO Reno4 5G – Reno4 Pro 5G – Reno4 Z 5G , Starting From €369, launched in Europe❗️<a href='https://techblock.club/?p=7625'> link</a>
 
-👉🏿Xiaomi Mi Smart Band 5 Review | A budget fitness band that gets the basics right❗️<a href='https://techblock.club/?p=7607'> link</a>
+👉🏿Google Calendar mobile apps can finally create and view tasks❗️<a href='https://techblock.club/?p=7627'> link</a>
 
