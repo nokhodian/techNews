@@ -1,20 +1,20 @@
-<b>Technology NEWS on Sunday, October 4th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Monday, October 5th, 2020</b> 📡📡📡 
 
-👉Poll: Are You Happy With Your PS Plus Games for October 2020?❗️<a href='https://techblock.club/?p=7611'> link</a>
+👉CD Projekt Red Reveals Cyberpunk 2077 Has Gone Gold❗️<a href='https://techblock.club/?p=7631'> link</a>
 
-👉🏽The woman claims that serum made from wild MUSTARD extract helped improve her acne in just two weeks❗️<a href='https://techblock.club/?p=7613'> link</a>
+👉🏽Google vs Paytm: Why Paytm 'Mini App Store' is not the real deal❗️<a href='https://techblock.club/?p=7633'> link</a>
 
-👉🏿Crash Bandicoot 4 : It's About Time review: Best of the best❗️<a href='https://techblock.club/?p=7615'> link</a>
+👉🏿Xiaomi Poco C3 Flipkart listing reveals key specifications, could be a rebranded Redmi 9C❗️<a href='https://techblock.club/?p=7635'> link</a>
 
-👉Why Tech Geniuses Alan Gokoglu and Fotios Tsiouklas Made The Move To SaaS Businesses❗️<a href='https://techblock.club/?p=7617'> link</a>
+👉An iPhone 12 to please everyone -- well, except Android fans❗️<a href='https://techblock.club/?p=7637'> link</a>
 
-👉🏽iPhone battery bad after installing iOS 14? Apple offers some help❗️<a href='https://techblock.club/?p=7619'> link</a>
+👉🏽Google Is Creating A New Security Team To Find Bugs In Android Apps❗️<a href='https://techblock.club/?p=7639'> link</a>
 
-👉🏿Genshin Impact: How To Increase Your Adventurer Rank❗️<a href='https://techblock.club/?p=7621'> link</a>
+👉🏿Ghost of Tsushima Update 1.1 and Legends Multiplayer Get Release Date & New Trailer; New Game+ Coming❗️<a href='https://techblock.club/?p=7641'> link</a>
 
-👉'World Of Warcraft: Shadowlands' Delayed To Later This Year❗️<a href='https://techblock.club/?p=7623'> link</a>
+👉Xfinity Customers Can Sign Up for Early Access to Call of Duty: Black Ops Cold War Beta❗️<a href='https://techblock.club/?p=7643'> link</a>
 
-👉🏽OPPO Reno4 5G – Reno4 Pro 5G – Reno4 Z 5G , Starting From €369, launched in Europe❗️<a href='https://techblock.club/?p=7625'> link</a>
+👉🏽Every Game Needs A Dedicated Pass-And-Play Mode❗️<a href='https://techblock.club/?p=7645'> link</a>
 
-👉🏿Google Calendar mobile apps can finally create and view tasks❗️<a href='https://techblock.club/?p=7627'> link</a>
+👉🏿Nvidia says its AI can fix some of the biggest problems in video calls❗️<a href='https://techblock.club/?p=7647'> link</a>
 
