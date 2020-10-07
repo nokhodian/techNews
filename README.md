@@ -1,20 +1,20 @@
-<b>Technology NEWS on Tuesday, October 6th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Wednesday, October 7th, 2020</b> 📡📡📡 
 
-👉New Hyrule Warriors: Age of Calamity Trailer Showcases a Younger Doctor Robbie and Purah❗️<a href='https://techblock.club/?p=7651'> link</a>
+👉New Destiny 2: Beyond Light gear revealed, includes new exotics❗️<a href='https://techblock.club/?p=7671'> link</a>
 
-👉🏽iPhone 12 wish list: 5 features Apple should borrow from Samsung's Galaxy Note 20❗️<a href='https://techblock.club/?p=7653'> link</a>
+👉🏽'NBA 2K21' Next-Gen Gets New Shot Meter, Shot Arc Aim, Dribble Moves & More❗️<a href='https://techblock.club/?p=7673'> link</a>
 
-👉🏿T-Mobile boosts 5G speeds by combining mid band downloads, low band uploads❗️<a href='https://techblock.club/?p=7655'> link</a>
+👉🏿Best products for this year's virtual marathon❗️<a href='https://techblock.club/?p=7675'> link</a>
 
-👉Grado's first true wireless earbuds promise the brand's 'signature sound'❗️<a href='https://techblock.club/?p=7657'> link</a>
+👉Apple tops COVID-19 brand intimacy survey, iPhone leads among teen smartphone users❗️<a href='https://techblock.club/?p=7677'> link</a>
 
-👉🏽Switch Can Break The Traditional Hardware Cycle And Become Nintendo's iPhone, Says Analyst❗️<a href='https://techblock.club/?p=7659'> link</a>
+👉🏽Global Smartphone Shipments To Witness Double-Digit Growth In 2021❗️<a href='https://techblock.club/?p=7679'> link</a>
 
-👉🏿Zoom calls can be too formal. These alternatives encourage casual chatting❗️<a href='https://techblock.club/?p=7661'> link</a>
+👉🏿iOS 14 gives your iPhone's Shortcuts app superpowers. Here are 11 things it can do❗️<a href='https://techblock.club/?p=7681'> link</a>
 
-👉Dell's first mini-LED monitor is bright, accurate and $5000❗️<a href='https://techblock.club/?p=7663'> link</a>
+👉Newzoo: Esports Revenue Estimate at $950 million globally in 2020❗️<a href='https://techblock.club/?p=7683'> link</a>
 
-👉🏽Teracube's latest phone is cheaper, more eco-friendly and easier to repair❗️<a href='https://techblock.club/?p=7665'> link</a>
+👉🏽Netflix Is Testing A Feature That Switches Off 'Still Watching?' Pop-Up❗️<a href='https://techblock.club/?p=7685'> link</a>
 
-👉🏿NBA 2K21 Next-Gen Trailer And Screens Show Off Balling On PS5 And Xbox Series X❗️<a href='https://techblock.club/?p=7667'> link</a>
+👉🏿Steam Shows CPU Core Counts Slowly, Finally, Creeping Upwards❗️<a href='https://techblock.club/?p=7687'> link</a>
 
