@@ -1,20 +1,20 @@
-<b>Technology NEWS on Wednesday, October 7th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Thursday, October 8th, 2020</b> 📡📡📡 
 
-👉New Destiny 2: Beyond Light gear revealed, includes new exotics❗️<a href='https://techblock.club/?p=7671'> link</a>
+👉Prime Day 2020 deals you can get right now: $1 Amazon Music, $25 Blink Mini, $45 Echo Show and more❗️<a href='https://techblock.club/?p=7691'> link</a>
 
-👉🏽'NBA 2K21' Next-Gen Gets New Shot Meter, Shot Arc Aim, Dribble Moves & More❗️<a href='https://techblock.club/?p=7673'> link</a>
+👉🏽Next episode of Cyberpunk 2077's Night City Wire announced, will focus on vehicles❗️<a href='https://techblock.club/?p=7693'> link</a>
 
-👉🏿Best products for this year's virtual marathon❗️<a href='https://techblock.club/?p=7675'> link</a>
+👉🏿What we think we know about Apple Silicon Macs❗️<a href='https://techblock.club/?p=7695'> link</a>
 
-👉Apple tops COVID-19 brand intimacy survey, iPhone leads among teen smartphone users❗️<a href='https://techblock.club/?p=7677'> link</a>
+👉How to Disable Steam's Chat Filter (or Customize It)❗️<a href='https://techblock.club/?p=7697'> link</a>
 
-👉🏽Global Smartphone Shipments To Witness Double-Digit Growth In 2021❗️<a href='https://techblock.club/?p=7679'> link</a>
+👉🏽CORSAIR Launches MP400, a New M.2 NVMe SSD with High-Density 3D QLC NAND❗️<a href='https://techblock.club/?p=7699'> link</a>
 
-👉🏿iOS 14 gives your iPhone's Shortcuts app superpowers. Here are 11 things it can do❗️<a href='https://techblock.club/?p=7681'> link</a>
+👉🏿Sonic the Hedgehog twitter teasing something with the number “3”❗️<a href='https://techblock.club/?p=7701'> link</a>
 
-👉Newzoo: Esports Revenue Estimate at $950 million globally in 2020❗️<a href='https://techblock.club/?p=7683'> link</a>
+👉Forget AirPods: Galaxy Buds Live just hit lowest price ever before Prime Day❗️<a href='https://techblock.club/?p=7703'> link</a>
 
-👉🏽Netflix Is Testing A Feature That Switches Off 'Still Watching?' Pop-Up❗️<a href='https://techblock.club/?p=7685'> link</a>
+👉🏽Mortal Kombat 11 Gets Rambo, And He's Voiced By Stallone❗️<a href='https://techblock.club/?p=7705'> link</a>
 
-👉🏿Steam Shows CPU Core Counts Slowly, Finally, Creeping Upwards❗️<a href='https://techblock.club/?p=7687'> link</a>
+👉🏿Realme 7 Pro review❗️<a href='https://techblock.club/?p=7707'> link</a>
 
