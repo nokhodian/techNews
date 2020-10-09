@@ -1,20 +1,20 @@
-<b>Technology NEWS on Thursday, October 8th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Friday, October 9th, 2020</b> 📡📡📡 
 
-👉Prime Day 2020 deals you can get right now: $1 Amazon Music, $25 Blink Mini, $45 Echo Show and more❗️<a href='https://techblock.club/?p=7691'> link</a>
+👉Save $40 On The Unlocked TCL 10L Android Smartphone❗️<a href='https://techblock.club/?p=7711'> link</a>
 
-👉🏽Next episode of Cyberpunk 2077's Night City Wire announced, will focus on vehicles❗️<a href='https://techblock.club/?p=7693'> link</a>
+👉🏽Final iPhone 12 rumors: Extensive leak shows price and release date❗️<a href='https://techblock.club/?p=7713'> link</a>
 
-👉🏿What we think we know about Apple Silicon Macs❗️<a href='https://techblock.club/?p=7695'> link</a>
+👉🏿Star Wars Squadrons stays on target to beat Crash Bandicoot | UK Digital Charts❗️<a href='https://techblock.club/?p=7715'> link</a>
 
-👉How to Disable Steam's Chat Filter (or Customize It)❗️<a href='https://techblock.club/?p=7697'> link</a>
+👉Motorola Smart AC, Refrigerator, Washing Machine Models Launched in India by Flipkart❗️<a href='https://techblock.club/?p=7717'> link</a>
 
-👉🏽CORSAIR Launches MP400, a New M.2 NVMe SSD with High-Density 3D QLC NAND❗️<a href='https://techblock.club/?p=7699'> link</a>
+👉🏽Gmail Go is a lighter version of Gmail, now available to all Android users❗️<a href='https://techblock.club/?p=7719'> link</a>
 
-👉🏿Sonic the Hedgehog twitter teasing something with the number “3”❗️<a href='https://techblock.club/?p=7701'> link</a>
+👉🏿Crash Bandicoot 4: It's About Time Has EXACTLY the Right Difficulty❗️<a href='https://techblock.club/?p=7721'> link</a>
 
-👉Forget AirPods: Galaxy Buds Live just hit lowest price ever before Prime Day❗️<a href='https://techblock.club/?p=7703'> link</a>
+👉The Survivalists on Apple Arcade lets you test your skills on a deserted island❗️<a href='https://techblock.club/?p=7723'> link</a>
 
-👉🏽Mortal Kombat 11 Gets Rambo, And He's Voiced By Stallone❗️<a href='https://techblock.club/?p=7705'> link</a>
+👉🏽Destiny 2's Intro Is Getting Overhauled To Make It More Welcoming To New Players❗️<a href='https://techblock.club/?p=7725'> link</a>
 
-👉🏿Realme 7 Pro review❗️<a href='https://techblock.club/?p=7707'> link</a>
+👉🏿Microsoft's first Xbox Series X commercial features a lot of Halo❗️<a href='https://techblock.club/?p=7727'> link</a>
 
