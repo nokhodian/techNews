@@ -1,20 +1,20 @@
-<b>Technology NEWS on Friday, October 9th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Saturday, October 10th, 2020</b> 📡📡📡 
 
-👉Save $40 On The Unlocked TCL 10L Android Smartphone❗️<a href='https://techblock.club/?p=7711'> link</a>
+👉Markiplier Becomes AFK Arena's New Landlord, Of Sorts❗️<a href='https://techblock.club/?p=7731'> link</a>
 
-👉🏽Final iPhone 12 rumors: Extensive leak shows price and release date❗️<a href='https://techblock.club/?p=7713'> link</a>
+👉🏽iPhone 12 last-minute leak reveals huge design upgrade❗️<a href='https://techblock.club/?p=7733'> link</a>
 
-👉🏿Star Wars Squadrons stays on target to beat Crash Bandicoot | UK Digital Charts❗️<a href='https://techblock.club/?p=7715'> link</a>
+👉🏿Elegoo Mars vs Mars Pro vs Mars 2 Pro: The Differences❗️<a href='https://techblock.club/?p=7735'> link</a>
 
-👉Motorola Smart AC, Refrigerator, Washing Machine Models Launched in India by Flipkart❗️<a href='https://techblock.club/?p=7717'> link</a>
+👉AMD Can Do Almost No Wrong, Except for the Horrible Lock Mechanism on Its Mobos❗️<a href='https://techblock.club/?p=7737'> link</a>
 
-👉🏽Gmail Go is a lighter version of Gmail, now available to all Android users❗️<a href='https://techblock.club/?p=7719'> link</a>
+👉🏽Top Stories: October 13 Apple Event, iPhone 12 and HomePod Mini Leaks, and More❗️<a href='https://techblock.club/?p=7739'> link</a>
 
-👉🏿Crash Bandicoot 4: It's About Time Has EXACTLY the Right Difficulty❗️<a href='https://techblock.club/?p=7721'> link</a>
+👉🏿Xbox Series X vs Xbox Series S performance results just revealed❗️<a href='https://techblock.club/?p=7741'> link</a>
 
-👉The Survivalists on Apple Arcade lets you test your skills on a deserted island❗️<a href='https://techblock.club/?p=7723'> link</a>
+👉Sylvester Stallone returning to Rambo in an unexpected way❗️<a href='https://techblock.club/?p=7743'> link</a>
 
-👉🏽Destiny 2's Intro Is Getting Overhauled To Make It More Welcoming To New Players❗️<a href='https://techblock.club/?p=7725'> link</a>
+👉🏽Ben 10 Versus the Universe: The Movie works even if you haven't kept up with the show❗️<a href='https://techblock.club/?p=7745'> link</a>
 
-👉🏿Microsoft's first Xbox Series X commercial features a lot of Halo❗️<a href='https://techblock.club/?p=7727'> link</a>
+👉🏿SpiceJet operates maiden charter flight to Georgia❗️<a href='https://techblock.club/?p=7747'> link</a>
 
