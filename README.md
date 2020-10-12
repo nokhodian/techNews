@@ -1,20 +1,20 @@
-<b>Technology NEWS on Sunday, October 11th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Monday, October 12th, 2020</b> 📡📡📡 
 
-👉Frame Rate And Resolution For Pikmin 3 Deluxe Demo Seemingly Revealed❗️<a href='https://techblock.club/?p=7751'> link</a>
+👉How to Unlock Daredevil in Fortnite Season 4❗️<a href='https://techblock.club/?p=7771'> link</a>
 
-👉🏽PS5 will get this killer performance boost for backwards compatibility❗️<a href='https://techblock.club/?p=7753'> link</a>
+👉🏽4 Anker Nebula projectors are on sale at all-time-low prices, starting at $245❗️<a href='https://techblock.club/?p=7773'> link</a>
 
-👉🏿Fire TV Stick Lite vs Roku Express vs Chromecast: which budget streamer is best?❗️<a href='https://techblock.club/?p=7755'> link</a>
+👉🏿Oculus Quest 2, reviewed: Facebook's $299 VR headset feels too good to be true❗️<a href='https://techblock.club/?p=7775'> link</a>
 
-👉UK child born weighing lower than 2 kilos lastly allowed house❗️<a href='https://techblock.club/?p=7757'> link</a>
+👉TB12 Performance Meals make it easy to follow this nutritional philosophy❗️<a href='https://techblock.club/?p=7777'> link</a>
 
-👉🏽The ripple effect of the Epic Games v. Apple battle royale❗️<a href='https://techblock.club/?p=7759'> link</a>
+👉🏽Gilead's Remdesivir Cuts COVID-19 Recovery Time by Five Days and Death Risk by 70% in “Gold Standard” Trial❗️<a href='https://techblock.club/?p=7779'> link</a>
 
-👉🏿Google Explains How It Automatically Predicts What You Like To Search❗️<a href='https://techblock.club/?p=7761'> link</a>
+👉🏿Amazon Prime Day: The Best Early Apple Discounts❗️<a href='https://techblock.club/?p=7781'> link</a>
 
-👉Android users alerted of new ransomware that could render smartphone useless❗️<a href='https://techblock.club/?p=7763'> link</a>
+👉Google's Nest announces new smart thermostat with simpler design, lower price❗️<a href='https://techblock.club/?p=7783'> link</a>
 
-👉🏽Square Enix Will Share More Information About Bravely Default II Soon❗️<a href='https://techblock.club/?p=7765'> link</a>
+👉🏽OnePlus Nord lineup could arrive in the US on October 26th w/ two smartphones❗️<a href='https://techblock.club/?p=7785'> link</a>
 
-👉🏿Giovanna bringing her super-cool style to Guilty Gear Strive❗️<a href='https://techblock.club/?p=7767'> link</a>
+👉🏿Model Lucky Blue Smith 'so tired' as he welcomes 'little angel' daughter Rumble with wife Nara Pellman❗️<a href='https://techblock.club/?p=7787'> link</a>
 
