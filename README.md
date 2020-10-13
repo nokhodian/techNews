@@ -1,20 +1,20 @@
-<b>Technology NEWS on Monday, October 12th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Tuesday, October 13th, 2020</b> 📡📡📡 
 
-👉How to Unlock Daredevil in Fortnite Season 4❗️<a href='https://techblock.club/?p=7771'> link</a>
+👉Jeff Bezos's Company Is Carrying Cargo to Space. It's Not Amazon.❗️<a href='https://techblock.club/?p=7791'> link</a>
 
-👉🏽4 Anker Nebula projectors are on sale at all-time-low prices, starting at $245❗️<a href='https://techblock.club/?p=7773'> link</a>
+👉🏽This is the cheapest GeForce RTX 3090 PC workstation we've found❗️<a href='https://techblock.club/?p=7793'> link</a>
 
-👉🏿Oculus Quest 2, reviewed: Facebook's $299 VR headset feels too good to be true❗️<a href='https://techblock.club/?p=7775'> link</a>
+👉🏿Here's how 'Hades' makes going back to hell feel fresh❗️<a href='https://techblock.club/?p=7795'> link</a>
 
-👉TB12 Performance Meals make it easy to follow this nutritional philosophy❗️<a href='https://techblock.club/?p=7777'> link</a>
+👉Best Prime Day 2020 Fire tablet deals: Get a Fire HD 8 for $55 or Fire HD 10 for just $80❗️<a href='https://techblock.club/?p=7797'> link</a>
 
-👉🏽Gilead's Remdesivir Cuts COVID-19 Recovery Time by Five Days and Death Risk by 70% in “Gold Standard” Trial❗️<a href='https://techblock.club/?p=7779'> link</a>
+👉🏽Nvidia's new 360Hz monitors are going to have a must-have feature for esports enthusiasts❗️<a href='https://techblock.club/?p=7799'> link</a>
 
-👉🏿Amazon Prime Day: The Best Early Apple Discounts❗️<a href='https://techblock.club/?p=7781'> link</a>
+👉🏿Poll: What's your favorite of the iPhone 12 colors?❗️<a href='https://techblock.club/?p=7801'> link</a>
 
-👉Google's Nest announces new smart thermostat with simpler design, lower price❗️<a href='https://techblock.club/?p=7783'> link</a>
+👉Genshin Impact's Dragonspire Region Will Arrive In December❗️<a href='https://techblock.club/?p=7803'> link</a>
 
-👉🏽OnePlus Nord lineup could arrive in the US on October 26th w/ two smartphones❗️<a href='https://techblock.club/?p=7785'> link</a>
+👉🏽Vivo V20 vs OnePlus Nord: Price in India, Specifications Compared❗️<a href='https://techblock.club/?p=7805'> link</a>
 
-👉🏿Model Lucky Blue Smith 'so tired' as he welcomes 'little angel' daughter Rumble with wife Nara Pellman❗️<a href='https://techblock.club/?p=7787'> link</a>
+👉🏿Xbox Game Pass adds Tales of Vesperia: Definitive Edition, Katana Zero, Supraland, and more in late October❗️<a href='https://techblock.club/?p=7807'> link</a>
 
