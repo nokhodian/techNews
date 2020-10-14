@@ -1,20 +1,20 @@
-<b>Technology NEWS on Tuesday, October 13th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Wednesday, October 14th, 2020</b> 📡📡📡 
 
-👉Jeff Bezos's Company Is Carrying Cargo to Space. It's Not Amazon.❗️<a href='https://techblock.club/?p=7791'> link</a>
+👉Air purifying paint kills strain of coronavirus❗️<a href='https://techblock.club/?p=7811'> link</a>
 
-👉🏽This is the cheapest GeForce RTX 3090 PC workstation we've found❗️<a href='https://techblock.club/?p=7793'> link</a>
+👉🏽Best Microsoft Surface deals during Prime Day❗️<a href='https://techblock.club/?p=7813'> link</a>
 
-👉🏿Here's how 'Hades' makes going back to hell feel fresh❗️<a href='https://techblock.club/?p=7795'> link</a>
+👉🏿How to Use the NHS COVID-19 Contact Tracing App❗️<a href='https://techblock.club/?p=7815'> link</a>
 
-👉Best Prime Day 2020 Fire tablet deals: Get a Fire HD 8 for $55 or Fire HD 10 for just $80❗️<a href='https://techblock.club/?p=7797'> link</a>
+👉OnePlus 8T First Impressions: A really great phone that only has one reason to exist❗️<a href='https://techblock.club/?p=7817'> link</a>
 
-👉🏽Nvidia's new 360Hz monitors are going to have a must-have feature for esports enthusiasts❗️<a href='https://techblock.club/?p=7799'> link</a>
+👉🏽Call of Duty Mobile 1st year anniversary season rolls out❗️<a href='https://techblock.club/?p=7819'> link</a>
 
-👉🏿Poll: What's your favorite of the iPhone 12 colors?❗️<a href='https://techblock.club/?p=7801'> link</a>
+👉🏿'PUBG' PC Update 9.1 Adds Paramo Map & Season 9 - Patch Notes❗️<a href='https://techblock.club/?p=7821'> link</a>
 
-👉Genshin Impact's Dragonspire Region Will Arrive In December❗️<a href='https://techblock.club/?p=7803'> link</a>
+👉Take-Two Interactive's (TTWO) Rockstar Games Acquires Ruffian Games❗️<a href='https://techblock.club/?p=7823'> link</a>
 
-👉🏽Vivo V20 vs OnePlus Nord: Price in India, Specifications Compared❗️<a href='https://techblock.club/?p=7805'> link</a>
+👉🏽Can't find Prime Day Chromebook deals? How about one of these instead❗️<a href='https://techblock.club/?p=7825'> link</a>
 
-👉🏿Xbox Game Pass adds Tales of Vesperia: Definitive Edition, Katana Zero, Supraland, and more in late October❗️<a href='https://techblock.club/?p=7807'> link</a>
+👉🏿Buy a New Apple Device, Get 3 Months of Apple Arcade for Free❗️<a href='https://techblock.club/?p=7827'> link</a>
 
