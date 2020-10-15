@@ -1,20 +1,20 @@
-<b>Technology NEWS on Wednesday, October 14th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Thursday, October 15th, 2020</b> 📡📡📡 
 
-👉Air purifying paint kills strain of coronavirus❗️<a href='https://techblock.club/?p=7811'> link</a>
+👉Leaf peeping with OnePlus 8T's camera: 2 things I loved, and 2 that disappointed❗️<a href='https://techblock.club/?p=7831'> link</a>
 
-👉🏽Best Microsoft Surface deals during Prime Day❗️<a href='https://techblock.club/?p=7813'> link</a>
+👉🏽Xsolla launches Unconventional for game-like virtual events❗️<a href='https://techblock.club/?p=7833'> link</a>
 
-👉🏿How to Use the NHS COVID-19 Contact Tracing App❗️<a href='https://techblock.club/?p=7815'> link</a>
+👉🏿Rogue Company gets new map designed by Dr Disrespect❗️<a href='https://techblock.club/?p=7835'> link</a>
 
-👉OnePlus 8T First Impressions: A really great phone that only has one reason to exist❗️<a href='https://techblock.club/?p=7817'> link</a>
+👉Realme X7 series to launch in India soon, hints company❗️<a href='https://techblock.club/?p=7837'> link</a>
 
-👉🏽Call of Duty Mobile 1st year anniversary season rolls out❗️<a href='https://techblock.club/?p=7819'> link</a>
+👉🏽Best Canada Prime Day 2020 deals still available: Echo Show and Echo Dot for up to 32% off❗️<a href='https://techblock.club/?p=7839'> link</a>
 
-👉🏿'PUBG' PC Update 9.1 Adds Paramo Map & Season 9 - Patch Notes❗️<a href='https://techblock.club/?p=7821'> link</a>
+👉🏿Sony gives in-depth look at PlayStation 5 UI in new video❗️<a href='https://techblock.club/?p=7841'> link</a>
 
-👉Take-Two Interactive's (TTWO) Rockstar Games Acquires Ruffian Games❗️<a href='https://techblock.club/?p=7823'> link</a>
+👉How iPhone 12 compares to its rivals: Galaxy S20, S20 FE, Pixel 5, OnePlus 8T❗️<a href='https://techblock.club/?p=7843'> link</a>
 
-👉🏽Can't find Prime Day Chromebook deals? How about one of these instead❗️<a href='https://techblock.club/?p=7825'> link</a>
+👉🏽Genshin Impact: The Fastest Ways to Level Up❗️<a href='https://techblock.club/?p=7845'> link</a>
 
-👉🏿Buy a New Apple Device, Get 3 Months of Apple Arcade for Free❗️<a href='https://techblock.club/?p=7827'> link</a>
+👉🏿Georgia teen dies after COVID-19 complicates car accident recovery❗️<a href='https://techblock.club/?p=7847'> link</a>
 
