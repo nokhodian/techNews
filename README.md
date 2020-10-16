@@ -1,20 +1,20 @@
-<b>Technology NEWS on Thursday, October 15th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Friday, October 16th, 2020</b> 📡📡📡 
 
-👉Leaf peeping with OnePlus 8T's camera: 2 things I loved, and 2 that disappointed❗️<a href='https://techblock.club/?p=7831'> link</a>
+👉The Pixel 5 is not enough — and way too much❗️<a href='https://techblock.club/?p=7851'> link</a>
 
-👉🏽Xsolla launches Unconventional for game-like virtual events❗️<a href='https://techblock.club/?p=7833'> link</a>
+👉🏽Game Pass first impressions — Age of Empires III: Definitive Edition (Win 10)❗️<a href='https://techblock.club/?p=7853'> link</a>
 
-👉🏿Rogue Company gets new map designed by Dr Disrespect❗️<a href='https://techblock.club/?p=7835'> link</a>
+👉🏿Apple Arcade: The complete list of games for iPhone, iPad, Mac and Apple TV❗️<a href='https://techblock.club/?p=7855'> link</a>
 
-👉Realme X7 series to launch in India soon, hints company❗️<a href='https://techblock.club/?p=7837'> link</a>
+👉The untold truth of Animal Crossing❗️<a href='https://techblock.club/?p=7857'> link</a>
 
-👉🏽Best Canada Prime Day 2020 deals still available: Echo Show and Echo Dot for up to 32% off❗️<a href='https://techblock.club/?p=7839'> link</a>
+👉🏽The best JAK-12 builds for Warzone❗️<a href='https://techblock.club/?p=7859'> link</a>
 
-👉🏿Sony gives in-depth look at PlayStation 5 UI in new video❗️<a href='https://techblock.club/?p=7841'> link</a>
+👉🏿UK to Investigate Apple Music and Spotify Over Fair Pay for Artists❗️<a href='https://techblock.club/?p=7861'> link</a>
 
-👉How iPhone 12 compares to its rivals: Galaxy S20, S20 FE, Pixel 5, OnePlus 8T❗️<a href='https://techblock.club/?p=7843'> link</a>
+👉Google Assistant is rolling out on Samsung's 2020 TVs in the US❗️<a href='https://techblock.club/?p=7863'> link</a>
 
-👉🏽Genshin Impact: The Fastest Ways to Level Up❗️<a href='https://techblock.club/?p=7845'> link</a>
+👉🏽'Pokémon Go' Makes More Changes to Mega Evolution Including Increasing Duration❗️<a href='https://techblock.club/?p=7865'> link</a>
 
-👉🏿Georgia teen dies after COVID-19 complicates car accident recovery❗️<a href='https://techblock.club/?p=7847'> link</a>
+👉🏿First look: See released renderings for massive, lavish new $1.2B casino resort in Biloxi❗️<a href='https://techblock.club/?p=7867'> link</a>
 
