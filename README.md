@@ -1,20 +1,20 @@
-<b>Technology NEWS on Saturday, October 17th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Sunday, October 18th, 2020</b> 📡📡📡 
 
-👉So Bethesda Games Will Be Xbox Exclusive, But Don't Expect Xbox To Say That Out Loud❗️<a href='https://techblock.club/?p=7871'> link</a>
+👉Fall Guys: Twitter Adds Season 2 Emoji❗️<a href='https://techblock.club/?p=7891'> link</a>
 
-👉🏽Top 10 Best Internal Dvd Writers 2020❗️<a href='https://techblock.club/?p=7873'> link</a>
+👉🏽Google Assistant Driving Mode appears to be coming to Android at last❗️<a href='https://techblock.club/?p=7893'> link</a>
 
-👉🏿Improve Your Cognitive Health with This Brain-Training App❗️<a href='https://techblock.club/?p=7875'> link</a>
+👉🏿Black Ops Cold War Beta Extended to Oct 20th, Latest Update Brings Control and Level Cap Increase❗️<a href='https://techblock.club/?p=7895'> link</a>
 
-👉NASA and Nokia Team for 4G on the Moon❗️<a href='https://techblock.club/?p=7877'> link</a>
+👉iPhone 11 Pro to Poco C3: Flipkart Big Billion Days smartphone offers❗️<a href='https://techblock.club/?p=7897'> link</a>
 
-👉🏽Marvel's Avengers: Delaying Kate Bishop Is the Right Choice❗️<a href='https://techblock.club/?p=7879'> link</a>
+👉🏽Last call to enter your pet in Best Halloween Costume photo contest: Deadline 11:59 pm Oct. 18❗️<a href='https://techblock.club/?p=7899'> link</a>
 
-👉🏿Black Friday weeks away — time to consider cheap TVs under $300 from TCL and Insignia?❗️<a href='https://techblock.club/?p=7881'> link</a>
+👉🏿Google Assistant Driving Mode appears for some users and it looks different❗️<a href='https://techblock.club/?p=7901'> link</a>
 
-👉Top Stories: iPhone 12, HomePod Mini, MagSafe Accessories, and More❗️<a href='https://techblock.club/?p=7883'> link</a>
+👉Apple AirPods Studio release date leak just revealed bad news❗️<a href='https://techblock.club/?p=7903'> link</a>
 
-👉🏽iPhone 12 vs. iPhone 11: Every major spec Apple changed in 2020❗️<a href='https://techblock.club/?p=7885'> link</a>
+👉🏽Kingdom Hearts Director Possibly Teasing Future Switch Project❗️<a href='https://techblock.club/?p=7905'> link</a>
 
-👉🏿John Delaney claims over 3000 files 'privileged' as he seeks extra time in FAI probe❗️<a href='https://techblock.club/?p=7887'> link</a>
+👉🏿Elon Musk's SpaceX keeps winning US military contracts — here's why, according to an aerospace expert❗️<a href='https://techblock.club/?p=7907'> link</a>
 
