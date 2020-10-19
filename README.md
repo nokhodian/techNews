@@ -1,20 +1,20 @@
-<b>Technology NEWS on Sunday, October 18th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Monday, October 19th, 2020</b> 📡📡📡 
 
-👉Fall Guys: Twitter Adds Season 2 Emoji❗️<a href='https://techblock.club/?p=7891'> link</a>
+👉Rainbow Six: Siege Coming to Xbox Game Pass Ultimate This Week❗️<a href='https://techblock.club/?p=7911'> link</a>
 
-👉🏽Google Assistant Driving Mode appears to be coming to Android at last❗️<a href='https://techblock.club/?p=7893'> link</a>
+👉🏽Windows 10 update fail is causing some serious problems❗️<a href='https://techblock.club/?p=7913'> link</a>
 
-👉🏿Black Ops Cold War Beta Extended to Oct 20th, Latest Update Brings Control and Level Cap Increase❗️<a href='https://techblock.club/?p=7895'> link</a>
+👉🏿This Gundam-themed PC hardware is so gorgeous we demand it gets released outside of Japan❗️<a href='https://techblock.club/?p=7915'> link</a>
 
-👉iPhone 11 Pro to Poco C3: Flipkart Big Billion Days smartphone offers❗️<a href='https://techblock.club/?p=7897'> link</a>
+👉'Apple Music TV' Launches in US With 24/7 Live Stream of Music Videos, Live Shows, World Premieres, and More❗️<a href='https://techblock.club/?p=7917'> link</a>
 
-👉🏽Last call to enter your pet in Best Halloween Costume photo contest: Deadline 11:59 pm Oct. 18❗️<a href='https://techblock.club/?p=7899'> link</a>
+👉🏽Facebook opens Messenger API to Instagram messaging for businesses❗️<a href='https://techblock.club/?p=7919'> link</a>
 
-👉🏿Google Assistant Driving Mode appears for some users and it looks different❗️<a href='https://techblock.club/?p=7901'> link</a>
+👉🏿PS5 Black Edition Teased With New DualSense Images❗️<a href='https://techblock.club/?p=7921'> link</a>
 
-👉Apple AirPods Studio release date leak just revealed bad news❗️<a href='https://techblock.club/?p=7903'> link</a>
+👉How to Download Unofficial Android Apps on your Phone using ACMarket App❗️<a href='https://techblock.club/?p=7923'> link</a>
 
-👉🏽Kingdom Hearts Director Possibly Teasing Future Switch Project❗️<a href='https://techblock.club/?p=7905'> link</a>
+👉🏽HomePod mini Intercom, new HomeKit cameras & lights, and more on HomeKit Insider❗️<a href='https://techblock.club/?p=7925'> link</a>
 
-👉🏿Elon Musk's SpaceX keeps winning US military contracts — here's why, according to an aerospace expert❗️<a href='https://techblock.club/?p=7907'> link</a>
+👉🏿Amnesia: Rebirth Review❗️<a href='https://techblock.club/?p=7927'> link</a>
 
