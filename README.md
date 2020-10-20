@@ -1,20 +1,20 @@
-<b>Technology NEWS on Monday, October 19th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Tuesday, October 20th, 2020</b> 📡📡📡 
 
-👉Rainbow Six: Siege Coming to Xbox Game Pass Ultimate This Week❗️<a href='https://techblock.club/?p=7911'> link</a>
+👉OnePlus 8T review: 5G, 120Hz display and excellent camera, but the price isn't right❗️<a href='https://techblock.club/?p=7931'> link</a>
 
-👉🏽Windows 10 update fail is causing some serious problems❗️<a href='https://techblock.club/?p=7913'> link</a>
+👉🏽Genies updates its software development kit and partners with Gucci, Giphy❗️<a href='https://techblock.club/?p=7933'> link</a>
 
-👉🏿This Gundam-themed PC hardware is so gorgeous we demand it gets released outside of Japan❗️<a href='https://techblock.club/?p=7915'> link</a>
+👉🏿Google Pixel 5's wimpy camera is driving me to the iPhone 12❗️<a href='https://techblock.club/?p=7935'> link</a>
 
-👉'Apple Music TV' Launches in US With 24/7 Live Stream of Music Videos, Live Shows, World Premieres, and More❗️<a href='https://techblock.club/?p=7917'> link</a>
+👉Yakuza: Like a Dragon 'Next Generation of a Yakuza' trailer❗️<a href='https://techblock.club/?p=7937'> link</a>
 
-👉🏽Facebook opens Messenger API to Instagram messaging for businesses❗️<a href='https://techblock.club/?p=7919'> link</a>
+👉🏽Get the new Xiaomi Mi Band 5 fitness watch for $38❗️<a href='https://techblock.club/?p=7939'> link</a>
 
-👉🏿PS5 Black Edition Teased With New DualSense Images❗️<a href='https://techblock.club/?p=7921'> link</a>
+👉🏿Fall Guys Update 1.10 Patch Notes❗️<a href='https://techblock.club/?p=7941'> link</a>
 
-👉How to Download Unofficial Android Apps on your Phone using ACMarket App❗️<a href='https://techblock.club/?p=7923'> link</a>
+👉Pumpkin Jack and Ghostrunner will launch with ray tracing and Nvidia DLSS support❗️<a href='https://techblock.club/?p=7943'> link</a>
 
-👉🏽HomePod mini Intercom, new HomeKit cameras & lights, and more on HomeKit Insider❗️<a href='https://techblock.club/?p=7925'> link</a>
+👉🏽How Phasmophobia Works: Voice Recognition Explained❗️<a href='https://techblock.club/?p=7945'> link</a>
 
-👉🏿Amnesia: Rebirth Review❗️<a href='https://techblock.club/?p=7927'> link</a>
+👉🏿A3 Printers To Produce Posters, Presentations And More Easily At Home❗️<a href='https://techblock.club/?p=7947'> link</a>
 
