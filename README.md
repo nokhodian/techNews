@@ -1,20 +1,20 @@
-<b>Technology NEWS on Thursday, October 22nd, 2020</b> 📡📡📡 
+<b>Technology NEWS on Friday, October 23rd, 2020</b> 📡📡📡 
 
-👉iPhone vs Android: Who wins speed test? Know here❗️<a href='https://techblock.club/?p=7971'> link</a>
+👉Microsoft Surface Pro X (2020) review: ARM gets more muscle❗️<a href='https://techblock.club/?p=7991'> link</a>
 
-👉🏽New Super Smash Bros. Ultimate Update Fixes Several Minecraft Steve-Related Issues❗️<a href='https://techblock.club/?p=7973'> link</a>
+👉🏽Mortal Kombat 11: Rambo Brings the Fight to Outworld❗️<a href='https://techblock.club/?p=7993'> link</a>
 
-👉🏿DwarfHeim is Now Available on Steam via Early Access❗️<a href='https://techblock.club/?p=7975'> link</a>
+👉🏿Huawei FreeBuds Studio headphones with active noise cancellation launched❗️<a href='https://techblock.club/?p=7995'> link</a>
 
-👉Twitter is adding prompts, hashtags, and emoji to promote early voting in the US❗️<a href='https://techblock.club/?p=7977'> link</a>
+👉Oppo F17 Pro Diwali Edition goes on sale: Check price, specs, offers here❗️<a href='https://techblock.club/?p=7997'> link</a>
 
-👉🏽NVIDIA GeForce RTX 3070 Leaks In Multiple Benchmarks Solidifying Performance Bargain At $499❗️<a href='https://techblock.club/?p=7979'> link</a>
+👉🏽Huawei Mate 40 Pro: Gorgeous design doesn't make up for this phone's biggest problem❗️<a href='https://techblock.club/?p=7999'> link</a>
 
-👉🏿Mortal Kombat 11's Rambo Gameplay Trailer Draws First Blood❗️<a href='https://techblock.club/?p=7981'> link</a>
+👉🏿Xbox Boss Phil Spencer Hints at xCloud Streaming Stick❗️<a href='https://techblock.club/?p=8001'> link</a>
 
-👉WATCH: Delta passenger who refused to wear a mask punches flight attendant❗️<a href='https://techblock.club/?p=7983'> link</a>
+👉VIDEO: 2020 Corvette vs Tesla Model Y❗️<a href='https://techblock.club/?p=8003'> link</a>
 
-👉🏽PS5 and Xbox Series X backward compatibility: Everything we know so far❗️<a href='https://techblock.club/?p=7985'> link</a>
+👉🏽OnePlus 9 release date, price, specs and leaks❗️<a href='https://techblock.club/?p=8005'> link</a>
 
-👉🏿Egregious Post-Launch Content in Video Games is a HUGE Problem❗️<a href='https://techblock.club/?p=7987'> link</a>
+👉🏿30 minutes with 'Little Nightmares II': Building upon the scares of the original❗️<a href='https://techblock.club/?p=8007'> link</a>
 
