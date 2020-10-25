@@ -1,20 +1,20 @@
-<b>Technology NEWS on Saturday, October 24th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Sunday, October 25th, 2020</b> 📡📡📡 
 
-👉Gears 5 Xbox Series X Update Lets Players Replace Marcus Fenix with Batista❗️<a href='https://techblock.club/?p=8011'> link</a>
+👉6 super important questions about Super Mario Sunshine❗️<a href='https://techblock.club/?p=8031'> link</a>
 
-👉🏽The 5 big PlayStation 5 games you should keep an eye on❗️<a href='https://techblock.club/?p=8013'> link</a>
+👉🏽This Early Black Friday Sale Will Save You 43% On Select Garmin Smartwatches❗️<a href='https://techblock.club/?p=8033'> link</a>
 
-👉🏿NASA announces winners of its 'Lunar Loo Challenge 2020'❗️<a href='https://techblock.club/?p=8015'> link</a>
+👉🏿Chrome OS dark mode spotted with sleek-looking interface❗️<a href='https://techblock.club/?p=8035'> link</a>
 
-👉Immortals Fenyx Rising Is Available To Play Now, For Free, With No Download❗️<a href='https://techblock.club/?p=8017'> link</a>
+👉Google Chrome's New Tab May Start Showing Product Recommendations❗️<a href='https://techblock.club/?p=8037'> link</a>
 
-👉🏽Top Stories: iPhone 12, iPhone 12 Pro, MagSafe Charger, and New iPad Air Launch❗️<a href='https://techblock.club/?p=8019'> link</a>
+👉🏽Final Fantasy 7 Remake OST Plus Releasing in December❗️<a href='https://techblock.club/?p=8039'> link</a>
 
-👉🏿Sekiro Game Of The Year Edition Trailer Shows Off The Maddening Bosses❗️<a href='https://techblock.club/?p=8021'> link</a>
+👉🏿WhatsApp new features this week: Always mute option, in-chat shopping, and more❗️<a href='https://techblock.club/?p=8041'> link</a>
 
-👉Amazon Echo Dot (2020) Review: The $50 smart speaker to skip❗️<a href='https://techblock.club/?p=8023'> link</a>
+👉PlayStation leak reveals return to Old Tower in Destiny 2: Beyond Light❗️<a href='https://techblock.club/?p=8043'> link</a>
 
-👉🏽Fortnite Fortnitemares 2020 Event Lets Players Rejoin Match as a Ghost After Dying❗️<a href='https://techblock.club/?p=8025'> link</a>
+👉🏽Sony taps Travis Scott for a PlayStation 5 strategic creative partnership❗️<a href='https://techblock.club/?p=8045'> link</a>
 
-👉🏿NVIDIA's RTX 3070 to sport a cutdown version of GA102❗️<a href='https://techblock.club/?p=8027'> link</a>
+👉🏿Watch a scary movie outside or anywhere with 30% off Vankyo mini projectors today only❗️<a href='https://techblock.club/?p=8047'> link</a>
 
