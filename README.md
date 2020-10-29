@@ -1,20 +1,20 @@
-<b>Technology NEWS on Wednesday, October 28th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Thursday, October 29th, 2020</b> 📡📡📡 
 
-👉The TCL 10 5G UW Is the Cheapest 5G Phone on the Market, But It's Verizon-Only❗️<a href='https://techblock.club/?p=8091'> link</a>
+👉Killer Walmart Black Friday deal: Grab this robot vacuum for $99❗️<a href='https://techblock.club/?p=8111'> link</a>
 
-👉🏽Dying Light Brings Back Its Left 4 Dead 2 Crossover Mode❗️<a href='https://techblock.club/?p=8093'> link</a>
+👉🏽New PS5 trophies are turning heads❗️<a href='https://techblock.club/?p=8113'> link</a>
 
-👉🏿Microsoft goes on the offensive with Edge, showing taskbar ads and redirecting Internet Explorer users❗️<a href='https://techblock.club/?p=8095'> link</a>
+👉🏿Early Black Friday deals on Amazon Echo devices are live now: $19 Dot, $45 Show 5 and more❗️<a href='https://techblock.club/?p=8115'> link</a>
 
-👉No Man's Sky Will Get PS5 And Xbox Series X/S Versions At Launch❗️<a href='https://techblock.club/?p=8097'> link</a>
+👉NBA 2K21 Will Add WNBA MyPlayer Mode, But Only On PS5 And Xbox Series X/S❗️<a href='https://techblock.club/?p=8117'> link</a>
 
-👉🏽ADATA Swordfish Review❗️<a href='https://techblock.club/?p=8099'> link</a>
+👉🏽Intel lifts lid on Rocket Lake's Cypress Cove core architecture❗️<a href='https://techblock.club/?p=8119'> link</a>
 
-👉🏿Insta360 Launches New ONE X2 360-Degree Camera❗️<a href='https://techblock.club/?p=8101'> link</a>
+👉🏿Pokémon Cards Worth $375000 Turned Out To Be Obvious Fakes❗️<a href='https://techblock.club/?p=8121'> link</a>
 
-👉I want my mom! Adorable moment baby alpaca runs over and hugs its mother❗️<a href='https://techblock.club/?p=8103'> link</a>
+👉BBC News' Simon McCoy Has Savage Dig At Family's Covid-Friendly Halloween Solution❗️<a href='https://techblock.club/?p=8123'> link</a>
 
-👉🏽Claire and Leon looking mighty fine in Netflix' Resident Evil Infinite Darkness❗️<a href='https://techblock.club/?p=8105'> link</a>
+👉🏽Todd Howard Says It's "Hard To Imagine" The Elder Scrolls 6 Being An Xbox Exclusive❗️<a href='https://techblock.club/?p=8125'> link</a>
 
-👉🏿Flying sports car takes to the skies in mind-blowing test flight footage❗️<a href='https://techblock.club/?p=8107'> link</a>
+👉🏿Destiny 2: Beyond Light – Launch Trailer Premieres Today❗️<a href='https://techblock.club/?p=8127'> link</a>
 
