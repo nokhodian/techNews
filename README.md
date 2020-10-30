@@ -1,20 +1,20 @@
-<b>Technology NEWS on Thursday, October 29th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Friday, October 30th, 2020</b> 📡📡📡 
 
-👉Killer Walmart Black Friday deal: Grab this robot vacuum for $99❗️<a href='https://techblock.club/?p=8111'> link</a>
+👉Browsing from the coffee shop? You might want to try Google's new VPN service❗️<a href='https://techblock.club/?p=8131'> link</a>
 
-👉🏽New PS5 trophies are turning heads❗️<a href='https://techblock.club/?p=8113'> link</a>
+👉🏽PlayStation Now November 2020 Games Include Injustice 2, Rage 2, And More❗️<a href='https://techblock.club/?p=8133'> link</a>
 
-👉🏿Early Black Friday deals on Amazon Echo devices are live now: $19 Dot, $45 Show 5 and more❗️<a href='https://techblock.club/?p=8115'> link</a>
+👉🏿New scenes are on the way for Microsoft Teams Together mode❗️<a href='https://techblock.club/?p=8135'> link</a>
 
-👉NBA 2K21 Will Add WNBA MyPlayer Mode, But Only On PS5 And Xbox Series X/S❗️<a href='https://techblock.club/?p=8117'> link</a>
+👉Marvel's Spider-Man: Miles Morales pre-orders include 'Spider-Man: Into the Spider-Verse' suit❗️<a href='https://techblock.club/?p=8137'> link</a>
 
-👉🏽Intel lifts lid on Rocket Lake's Cypress Cove core architecture❗️<a href='https://techblock.club/?p=8119'> link</a>
+👉🏽It looks like AMD may have just ended Nvidia's long-running graphics dominance❗️<a href='https://techblock.club/?p=8139'> link</a>
 
-👉🏿Pokémon Cards Worth $375000 Turned Out To Be Obvious Fakes❗️<a href='https://techblock.club/?p=8121'> link</a>
+👉🏿Xbox Games with Gold for November 2020 revealed❗️<a href='https://techblock.club/?p=8141'> link</a>
 
-👉BBC News' Simon McCoy Has Savage Dig At Family's Covid-Friendly Halloween Solution❗️<a href='https://techblock.club/?p=8123'> link</a>
+👉Ross Video Develops LUCID Platform to Configure, Control Virtual Solutions❗️<a href='https://techblock.club/?p=8143'> link</a>
 
-👉🏽Todd Howard Says It's "Hard To Imagine" The Elder Scrolls 6 Being An Xbox Exclusive❗️<a href='https://techblock.club/?p=8125'> link</a>
+👉🏽iRobot Roomba i3 Plus review: Self-emptying that makes life easier❗️<a href='https://techblock.club/?p=8145'> link</a>
 
-👉🏿Destiny 2: Beyond Light – Launch Trailer Premieres Today❗️<a href='https://techblock.club/?p=8127'> link</a>
+👉🏿OnePlus 8T 5G shows off its video recording features, shoots entire short film featuring Kalki❗️<a href='https://techblock.club/?p=8147'> link</a>
 
