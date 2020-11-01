@@ -1,20 +1,20 @@
-<b>Technology NEWS on Saturday, October 31st, 2020</b> 📡📡📡 
+<b>Technology NEWS on Sunday, November 1st, 2020</b> 📡📡📡 
 
-👉LG's rollable phone to arrive in March 2021❗️<a href='https://techblock.club/?p=8151'> link</a>
+👉Facebook starts rolling out dark mode on its mobile app❗️<a href='https://techblock.club/?p=8171'> link</a>
 
-👉🏽PlayStation Now Reveals November's New Games❗️<a href='https://techblock.club/?p=8153'> link</a>
+👉🏽Sucker Punch Productions Shares Impressive Player Count For Ghost Of Tsushima: Legends❗️<a href='https://techblock.club/?p=8173'> link</a>
 
-👉🏿Google shares details of a Windows Kernel Cryptography Driver security flaw that's being exploited by hackers❗️<a href='https://techblock.club/?p=8155'> link</a>
+👉🏿The Secrets to Success as an Audiobook Narrator❗️<a href='https://techblock.club/?p=8175'> link</a>
 
-👉Google Meet will now let you use custom backgrounds on video calls❗️<a href='https://techblock.club/?p=8157'> link</a>
+👉How Should You Prepare For Destiny 2: Beyond Light In This Final Week?❗️<a href='https://techblock.club/?p=8177'> link</a>
 
-👉🏽Snapdragon 875 Might Be 25% Faster Than Expected, Appearance in AnTuTu for the First Time!❗️<a href='https://techblock.club/?p=8159'> link</a>
+👉🏽VR Support On PS5 Requires PS4 Versions Of Games❗️<a href='https://techblock.club/?p=8179'> link</a>
 
-👉🏿Bigin by Zoho CRM Review❗️<a href='https://techblock.club/?p=8161'> link</a>
+👉🏿Biden Campaign Launches 'Fortnite' Custom Map, Complete With 'No Malarkey' Train Station❗️<a href='https://techblock.club/?p=8181'> link</a>
 
-👉British PM to hold press conference at 4 pm Saturday as national lockdown looms❗️<a href='https://techblock.club/?p=8163'> link</a>
+👉Nvidia RTX 3060 Ti GPU could be unleashed on November 17❗️<a href='https://techblock.club/?p=8183'> link</a>
 
-👉🏽Windows 10 Your Phone app getting three new features❗️<a href='https://techblock.club/?p=8165'> link</a>
+👉🏽Best tech gifts for 2020: These top-rated electronics from Amazon Canada are perfect for Christmas❗️<a href='https://techblock.club/?p=8185'> link</a>
 
-👉🏿Global phone shipments climbed in Q3, with Samsung leading the pack once again❗️<a href='https://techblock.club/?p=8167'> link</a>
+👉🏿Original Content podcast: Bill Murray's charm can't hide the sadness of 'On the Rocks'❗️<a href='https://techblock.club/?p=8187'> link</a>
 
