@@ -1,20 +1,20 @@
-<b>Technology NEWS on Monday, November 2nd, 2020</b> 📡📡📡 
+<b>Technology NEWS on Tuesday, November 3rd, 2020</b> 📡📡📡 
 
-👉Facebook is testing dark mode for iOS and Android. Here's how to try it out❗️<a href='https://techblock.club/?p=8191'> link</a>
+👉Niko Partners: Nintendo Switch gaining ground in China as console demand grows❗️<a href='https://techblock.club/?p=8211'> link</a>
 
-👉🏽Secret Stone Gate Treasure Cave Location in Genshin Impact❗️<a href='https://techblock.club/?p=8193'> link</a>
+👉🏽Samsung's Galaxy Buds Live wireless earbuds are $30 off❗️<a href='https://techblock.club/?p=8213'> link</a>
 
-👉🏿How to sign up for Apple One❗️<a href='https://techblock.club/?p=8195'> link</a>
+👉🏿Devil May Cry 5 Special Edition PS5 hands-on preview – next gen Vergil❗️<a href='https://techblock.club/?p=8215'> link</a>
 
-👉Middle-earth: Shadow of Mordor is losing features six years after release❗️<a href='https://techblock.club/?p=8197'> link</a>
+👉Xbox Series X|S to launch with Apple TV, Netflix, Disney+, HBO Max, Spotify, more❗️<a href='https://techblock.club/?p=8217'> link</a>
 
-👉🏽Leaked Spider-Man: Miles Morales video shows a big PS5 advantage❗️<a href='https://techblock.club/?p=8199'> link</a>
+👉🏽Samsung's 1TB 970 EVO SSD is $40 cheaper than it was just days ago❗️<a href='https://techblock.club/?p=8219'> link</a>
 
-👉🏿Here's how to save $10 instantly during Black Friday at Amazon❗️<a href='https://techblock.club/?p=8201'> link</a>
+👉🏿Black Friday 2020 deals: The best Lenovo sales❗️<a href='https://techblock.club/?p=8221'> link</a>
 
-👉UK Charts: Pikmin 3 Deluxe Scores Top Ten Debut In Another Solid Week For Nintendo❗️<a href='https://techblock.club/?p=8203'> link</a>
+👉Google Store running 'Pixel 5 $5G' sweepstakes with $5000 Google Pay prizes❗️<a href='https://techblock.club/?p=8223'> link</a>
 
-👉🏽Computer and phone accessories that make great gifts❗️<a href='https://techblock.club/?p=8205'> link</a>
+👉🏽Mass Effect Cast to Reunite for N7 Day Event❗️<a href='https://techblock.club/?p=8225'> link</a>
 
-👉🏿Upgrade Any Zoom Meeting Or Google Hangout With This High-End Webcam, Now Over 30% Off!❗️<a href='https://techblock.club/?p=8207'> link</a>
+👉🏿How to Get More Essence in Ghost of Tsushima: Legends❗️<a href='https://techblock.club/?p=8227'> link</a>
 
