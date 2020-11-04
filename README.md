@@ -1,20 +1,20 @@
-<b>Technology NEWS on Tuesday, November 3rd, 2020</b> 📡📡📡 
+<b>Technology NEWS on Wednesday, November 4th, 2020</b> 📡📡📡 
 
-👉Niko Partners: Nintendo Switch gaining ground in China as console demand grows❗️<a href='https://techblock.club/?p=8211'> link</a>
+👉Samsung Galaxy F12 Set To Come With An Unbelievably Large Battery❗️<a href='https://techblock.club/?p=8231'> link</a>
 
-👉🏽Samsung's Galaxy Buds Live wireless earbuds are $30 off❗️<a href='https://techblock.club/?p=8213'> link</a>
+👉🏽The Elder Scrolls 6 Will Hit Xbox Game Pass Day One, Bethesda Confirms❗️<a href='https://techblock.club/?p=8233'> link</a>
 
-👉🏿Devil May Cry 5 Special Edition PS5 hands-on preview – next gen Vergil❗️<a href='https://techblock.club/?p=8215'> link</a>
+👉🏿Windows 10 is killing this beloved feature — what you need to know❗️<a href='https://techblock.club/?p=8235'> link</a>
 
-👉Xbox Series X|S to launch with Apple TV, Netflix, Disney+, HBO Max, Spotify, more❗️<a href='https://techblock.club/?p=8217'> link</a>
+👉Destiny 2 Update Prepares For Beyond Light Expansion Next Week❗️<a href='https://techblock.club/?p=8237'> link</a>
 
-👉🏽Samsung's 1TB 970 EVO SSD is $40 cheaper than it was just days ago❗️<a href='https://techblock.club/?p=8219'> link</a>
+👉🏽Developers on who can move to Apple Silicon - and who should wait❗️<a href='https://techblock.club/?p=8239'> link</a>
 
-👉🏿Black Friday 2020 deals: The best Lenovo sales❗️<a href='https://techblock.club/?p=8221'> link</a>
+👉🏿A Banner Year for "Pokemon Go" Proves Nintendo Should Stay Committed to Mobile❗️<a href='https://techblock.club/?p=8241'> link</a>
 
-👉Google Store running 'Pixel 5 $5G' sweepstakes with $5000 Google Pay prizes❗️<a href='https://techblock.club/?p=8223'> link</a>
+👉Microsoft Teams to get multi-account sign-in support in December❗️<a href='https://techblock.club/?p=8243'> link</a>
 
-👉🏽Mass Effect Cast to Reunite for N7 Day Event❗️<a href='https://techblock.club/?p=8225'> link</a>
+👉🏽The next Nokia classics said to get an HMD reboot are retro luxury icons❗️<a href='https://techblock.club/?p=8245'> link</a>
 
-👉🏿How to Get More Essence in Ghost of Tsushima: Legends❗️<a href='https://techblock.club/?p=8227'> link</a>
+👉🏿2K Unveils The City for NBA 2K21 for MyPLAYER❗️<a href='https://techblock.club/?p=8247'> link</a>
 
