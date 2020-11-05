@@ -1,20 +1,20 @@
-<b>Technology NEWS on Wednesday, November 4th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Thursday, November 5th, 2020</b> 📡📡📡 
 
-👉Samsung Galaxy F12 Set To Come With An Unbelievably Large Battery❗️<a href='https://techblock.club/?p=8231'> link</a>
+👉Adidas has announced Cyberpunk 2077 shoes, the sneakerheads are not impressed❗️<a href='https://techblock.club/?p=8251'> link</a>
 
-👉🏽The Elder Scrolls 6 Will Hit Xbox Game Pass Day One, Bethesda Confirms❗️<a href='https://techblock.club/?p=8233'> link</a>
+👉🏽Japanese Charts: Pikmin 3 Deluxe Takes Top Spot As Switch Sales Reach 13 Million❗️<a href='https://techblock.club/?p=8253'> link</a>
 
-👉🏿Windows 10 is killing this beloved feature — what you need to know❗️<a href='https://techblock.club/?p=8235'> link</a>
+👉🏿'Drawn to Life: Two Realms' Is Coming to iOS, Android, Nintendo Switch, and PC next Month❗️<a href='https://techblock.club/?p=8255'> link</a>
 
-👉Destiny 2 Update Prepares For Beyond Light Expansion Next Week❗️<a href='https://techblock.club/?p=8237'> link</a>
+👉Marvel's Spider-Man: Miles Morales TV Spot Released❗️<a href='https://techblock.club/?p=8257'> link</a>
 
-👉🏽Developers on who can move to Apple Silicon - and who should wait❗️<a href='https://techblock.club/?p=8239'> link</a>
+👉🏽Today's Top 5 From Purdue University❗️<a href='https://techblock.club/?p=8259'> link</a>
 
-👉🏿A Banner Year for "Pokemon Go" Proves Nintendo Should Stay Committed to Mobile❗️<a href='https://techblock.club/?p=8241'> link</a>
+👉🏿Ayar Labs raises $35 million to develop light-based chip interconnects❗️<a href='https://techblock.club/?p=8261'> link</a>
 
-👉Microsoft Teams to get multi-account sign-in support in December❗️<a href='https://techblock.club/?p=8243'> link</a>
+👉Monster Hunter Rise Gameplay; Wirebug Actions, Palamute Customization, and More❗️<a href='https://techblock.club/?p=8263'> link</a>
 
-👉🏽The next Nokia classics said to get an HMD reboot are retro luxury icons❗️<a href='https://techblock.club/?p=8245'> link</a>
+👉🏽iPhone 12 Mini, Pro Max preorders tomorrow: When, where, how to buy Apple's new phones❗️<a href='https://techblock.club/?p=8265'> link</a>
 
-👉🏿2K Unveils The City for NBA 2K21 for MyPLAYER❗️<a href='https://techblock.club/?p=8247'> link</a>
+👉🏿The 'XCOM 2' saga is now available on your iPhone or iPad❗️<a href='https://techblock.club/?p=8267'> link</a>
 
