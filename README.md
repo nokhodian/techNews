@@ -1,20 +1,20 @@
-<b>Technology NEWS on Friday, November 6th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Saturday, November 7th, 2020</b> 📡📡📡 
 
-👉Cybercriminals are using Google forms to steal the credential: What do you need to know to mitigate it❗️<a href='https://techblock.club/?p=8271'> link</a>
+👉Thunderbolt NVMe SSDs are causing problems in Windows 10❗️<a href='https://techblock.club/?p=undefined'> link</a>
 
-👉🏽PCIe 6.0 specs released by PCI SIG❗️<a href='https://techblock.club/?p=8273'> link</a>
+👉🏽This week's top stories: 'Pixel 5 $5G' sweepstakes, Google One VPN, more❗️<a href='https://techblock.club/?p=undefined'> link</a>
 
-👉🏿PS5 smash-em-up 'Destruction AllStars' will include a battle royale mode❗️<a href='https://techblock.club/?p=8275'> link</a>
+👉🏿Xiaomi shows a new camera lens that captures 300% more light and clicks 20% sharper images❗️<a href='https://techblock.club/?p=undefined'> link</a>
 
-👉PS5 backwards compatibility boosts Sekiro and Dark Souls 3 to 60FPS❗️<a href='https://techblock.club/?p=8277'> link</a>
+👉Home Depot's early Black Friday sale is on: See all the best deals❗️<a href='https://techblock.club/?p=undefined'> link</a>
 
-👉🏽Killer Black Friday TV deal: 50-inch 4K Android TV now just $229❗️<a href='https://techblock.club/?p=8279'> link</a>
+👉🏽The best Amazon Echo device of 2020❗️<a href='https://techblock.club/?p=undefined'> link</a>
 
-👉🏿Fittingly, Tropico 6 Has Just Launched On Nintendo Switch❗️<a href='https://techblock.club/?p=8281'> link</a>
+👉🏿Fortnite players who make in-game purchases can get two months of Disney Plus for free❗️<a href='https://techblock.club/?p=undefined'> link</a>
 
-👉PS5 review: Sony built a space-age game console for your next-gen dreams❗️<a href='https://techblock.club/?p=8283'> link</a>
+👉One of PS5's first great games is absolutely free❗️<a href='https://techblock.club/?p=undefined'> link</a>
 
-👉🏽Shenmue 3 finally hits Steam later this month❗️<a href='https://techblock.club/?p=8285'> link</a>
+👉🏽Top Stories: Apple Event Next Week, iPhone Pre-Orders, iOS 14.2 Released❗️<a href='https://techblock.club/?p=undefined'> link</a>
 
-👉🏿Device Review: Huawei Mate 40 Pro❗️<a href='https://techblock.club/?p=8287'> link</a>
+👉🏿The Best VR Headsets You Can Get Right Now❗️<a href='https://techblock.club/?p=undefined'> link</a>
 
