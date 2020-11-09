@@ -1,20 +1,20 @@
-<b>Technology NEWS on Sunday, November 8th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Monday, November 9th, 2020</b> 📡📡📡 
 
-👉Here are the accessories you'll need for your PlayStation 5❗️<a href='https://techblock.club/?p=undefined'> link</a>
+👉Older Android phones will start failing on some secure websites in 2021❗️<a href='https://techblock.club/?p=undefined'> link</a>
 
-👉🏽Spotify could be considering a subscription package for podcasts❗️<a href='https://techblock.club/?p=undefined'> link</a>
+👉🏽Nintendo rolling out Switch Mario Kart 8 Deluxe, Online Membership Holiday bundle❗️<a href='https://techblock.club/?p=undefined'> link</a>
 
-👉🏿Apex Legends - Season 7 Battle Pass Trailer❗️<a href='https://techblock.club/?p=undefined'> link</a>
+👉🏿Sony clarifies when to expect some of the PS5's biggest 2021 games❗️<a href='https://techblock.club/?p=undefined'> link</a>
 
-👉ICYMI: Mass Effect Legendary Edition Officially Confirmed, New Mass Effect Also in Development❗️<a href='https://techblock.club/?p=undefined'> link</a>
+👉Samsung Galaxy Tab E 9.6 down to just $100 at Best Buy for Black Friday❗️<a href='https://techblock.club/?p=undefined'> link</a>
 
-👉🏽Fortnite adds a special Disney Plus promo for players who buy stuff❗️<a href='https://techblock.club/?p=undefined'> link</a>
+👉🏽iPhone 12 Mini Reviews: The Best Small Smartphone but Battery Life 'Leaves Much to Be Desired'❗️<a href='https://techblock.club/?p=undefined'> link</a>
 
-👉🏿Here are some must-have accessories for your Xbox Series X or Series S❗️<a href='https://techblock.club/?p=undefined'> link</a>
+👉🏿Early Black Friday headphones deal: Save 60% on these JBL wireless Bluetooth headphones❗️<a href='https://techblock.club/?p=undefined'> link</a>
 
-👉Apple releases iOS 14.2 with tons of new features❗️<a href='https://techblock.club/?p=undefined'> link</a>
+👉November brings mushrooms and maple leaves to Animal Crossing: New Horizons❗️<a href='https://techblock.club/?p=undefined'> link</a>
 
-👉🏽Square Enix has reportedly lost $48million following 'Marvel's Avengers' release❗️<a href='https://techblock.club/?p=undefined'> link</a>
+👉🏽Borderlands 3: Patch Notes, Zane Nerfs, Weapon Buffs, Arms Race & more!❗️<a href='https://techblock.club/?p=undefined'> link</a>
 
-👉🏿This CarPlay Widget Is an iPhone Feature Apple Itself Should Launch❗️<a href='https://techblock.club/?p=undefined'> link</a>
+👉🏿Destiny 2: Beyond Light Pre-Load Begins Tonight, Make Sure You've Got Enough Storage❗️<a href='https://techblock.club/?p=undefined'> link</a>
 
