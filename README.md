@@ -1,20 +1,20 @@
-<b>Technology NEWS on Monday, November 9th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Tuesday, November 10th, 2020</b> 📡📡📡 
 
-👉Older Android phones will start failing on some secure websites in 2021❗️<a href='https://techblock.club/?p=undefined'> link</a>
+👉(Update) Take-Two Interactive in negotiations to purchase Codemasters❗️<a href='https://techblock.club/?p=undefined'> link</a>
 
-👉🏽Nintendo rolling out Switch Mario Kart 8 Deluxe, Online Membership Holiday bundle❗️<a href='https://techblock.club/?p=undefined'> link</a>
+👉🏽Nintendo Switch Black Friday deals: save on bundles with Animal Crossing and Just Dance 2021❗️<a href='https://techblock.club/?p=undefined'> link</a>
 
-👉🏿Sony clarifies when to expect some of the PS5's biggest 2021 games❗️<a href='https://techblock.club/?p=undefined'> link</a>
+👉🏿Samsung Finally Joins The Android Enterprise Recommended Program❗️<a href='https://techblock.club/?p=undefined'> link</a>
 
-👉Samsung Galaxy Tab E 9.6 down to just $100 at Best Buy for Black Friday❗️<a href='https://techblock.club/?p=undefined'> link</a>
+👉Many websites won't be supported by older Androids in 2021❗️<a href='https://techblock.club/?p=undefined'> link</a>
 
-👉🏽iPhone 12 Mini Reviews: The Best Small Smartphone but Battery Life 'Leaves Much to Be Desired'❗️<a href='https://techblock.club/?p=undefined'> link</a>
+👉🏽The Witcher Production on Season 2 Halted Due to Multiple COVID-19 Diagnoses❗️<a href='https://techblock.club/?p=undefined'> link</a>
 
-👉🏿Early Black Friday headphones deal: Save 60% on these JBL wireless Bluetooth headphones❗️<a href='https://techblock.club/?p=undefined'> link</a>
+👉🏿Amazon cuts up to 30 percent off hard drives, SSDs and removable storage❗️<a href='https://techblock.club/?p=undefined'> link</a>
 
-👉November brings mushrooms and maple leaves to Animal Crossing: New Horizons❗️<a href='https://techblock.club/?p=undefined'> link</a>
+👉Sam & Max Save the World Remastered Announced❗️<a href='https://techblock.club/?p=undefined'> link</a>
 
-👉🏽Borderlands 3: Patch Notes, Zane Nerfs, Weapon Buffs, Arms Race & more!❗️<a href='https://techblock.club/?p=undefined'> link</a>
+👉🏽Former Vertu employees want to step into the same river twice❗️<a href='https://techblock.club/?p=undefined'> link</a>
 
-👉🏿Destiny 2: Beyond Light Pre-Load Begins Tonight, Make Sure You've Got Enough Storage❗️<a href='https://techblock.club/?p=undefined'> link</a>
+👉🏿Fans aren't sold on 'Apex Legends' Season 7 Battle Pass❗️<a href='https://techblock.club/?p=undefined'> link</a>
 
