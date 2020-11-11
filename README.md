@@ -1,20 +1,20 @@
-<b>Technology NEWS on Tuesday, November 10th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Wednesday, November 11th, 2020</b> 📡📡📡 
 
-👉(Update) Take-Two Interactive in negotiations to purchase Codemasters❗️<a href='https://techblock.club/?p=undefined'> link</a>
+👉Assassin's Creed Valhalla - Ravensthorpe Guide❗️<a href='https://techblock.club/?p=undefined'> link</a>
 
-👉🏽Nintendo Switch Black Friday deals: save on bundles with Animal Crossing and Just Dance 2021❗️<a href='https://techblock.club/?p=undefined'> link</a>
+👉🏽Sony Thinks PS4 to PS5 Transition Will Take About Three Years❗️<a href='https://techblock.club/?p=undefined'> link</a>
 
-👉🏿Samsung Finally Joins The Android Enterprise Recommended Program❗️<a href='https://techblock.club/?p=undefined'> link</a>
+👉🏿Devil May Cry 5 Special Edition PS5 review – next gen style❗️<a href='https://techblock.club/?p=undefined'> link</a>
 
-👉Many websites won't be supported by older Androids in 2021❗️<a href='https://techblock.club/?p=undefined'> link</a>
+👉Metroid: Samus Returns possibly coming to the Switch makes a whole lot of sense❗️<a href='https://techblock.club/?p=undefined'> link</a>
 
-👉🏽The Witcher Production on Season 2 Halted Due to Multiple COVID-19 Diagnoses❗️<a href='https://techblock.club/?p=undefined'> link</a>
+👉🏽Halo TV show marks return to filming with first look at Master Chief helmet❗️<a href='https://techblock.club/?p=undefined'> link</a>
 
-👉🏿Amazon cuts up to 30 percent off hard drives, SSDs and removable storage❗️<a href='https://techblock.club/?p=undefined'> link</a>
+👉🏿MacBooks with M1 is a leap forward for PCs. Now bring on the 5G❗️<a href='https://techblock.club/?p=undefined'> link</a>
 
-👉Sam & Max Save the World Remastered Announced❗️<a href='https://techblock.club/?p=undefined'> link</a>
+👉What Is Xbox Game Pass (Ultimate, Xbox One, Series X/S, PC): Pricing, Game List, And More❗️<a href='https://techblock.club/?p=undefined'> link</a>
 
-👉🏽Former Vertu employees want to step into the same river twice❗️<a href='https://techblock.club/?p=undefined'> link</a>
+👉🏽Tesco launches early Black Friday deals with up to 40% off Paw Patrol and Babyliss❗️<a href='https://techblock.club/?p=undefined'> link</a>
 
-👉🏿Fans aren't sold on 'Apex Legends' Season 7 Battle Pass❗️<a href='https://techblock.club/?p=undefined'> link</a>
+👉🏿NVIDIA GeForce RTX 3080 Ti Gets 20GB Memory! Can This Compete with AMD Radeon RX 6800 XT?❗️<a href='https://techblock.club/?p=undefined'> link</a>
 
