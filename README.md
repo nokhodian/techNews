@@ -1,20 +1,20 @@
-<b>Technology NEWS on Saturday, November 14th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Sunday, November 15th, 2020</b> 📡📡📡 
 
-👉Black Friday 2020 deals: The best Newegg sales❗️<a href='https://techblock.club/?p=undefined'> link</a>
+👉'Call Of Duty: Black Ops Cold War' On PS5 Changes What It's Like To Play A First-Person Shooter Forever❗️<a href='https://techblock.club/?p=undefined'> link</a>
 
-👉🏽Spider-Man: Miles Morales: 10 amazing tips❗️<a href='https://techblock.club/?p=undefined'> link</a>
+👉🏽Discover who you are — this Ancestry DNA deal is perfect for the history buff in your family❗️<a href='https://techblock.club/?p=undefined'> link</a>
 
-👉🏿Steam updated to support Next-Gen Controllers❗️<a href='https://techblock.club/?p=undefined'> link</a>
+👉🏿Best Black Friday Apple Watch deals available now: Save $49 on Apple Watch SE, Series 6❗️<a href='https://techblock.club/?p=undefined'> link</a>
 
-👉OnePlus Nord N10 5G review: A disappointment at any price❗️<a href='https://techblock.club/?p=undefined'> link</a>
+👉Life Is Hellish Enough — That's Why I Had To Stop Playing 'Hades'❗️<a href='https://techblock.club/?p=undefined'> link</a>
 
-👉🏽Top Stories: Apple Silicon Macs, macOS Big Sur, iPhone 12 Mini and 12 Pro Max Launch❗️<a href='https://techblock.club/?p=undefined'> link</a>
+👉🏽Pokemon Go Fans Not Thrilled By Electabuzz's Alleged Low Catch Rate❗️<a href='https://techblock.club/?p=undefined'> link</a>
 
-👉🏿Spider-Man: Miles Morales: 10 amazing tips❗️<a href='https://techblock.club/?p=undefined'> link</a>
+👉🏿Deathloop to release in May, according to PS Store listing❗️<a href='https://techblock.club/?p=undefined'> link</a>
 
-👉Why The Fitbit Charge 4 Is The Best Fitness Tech Gift In 2020❗️<a href='https://techblock.club/?p=undefined'> link</a>
+👉Leaker teases holiday Apple 'surprise' is on the way❗️<a href='https://techblock.club/?p=undefined'> link</a>
 
-👉🏽This week's top stories: Google Photos drops free storage, OnePlus Nord N10 5G hands on, more❗️<a href='https://techblock.club/?p=undefined'> link</a>
+👉🏽Should I buy a BenQ projector? A look at the budget DLP projector brand❗️<a href='https://techblock.club/?p=undefined'> link</a>
 
-👉🏿How to Change Android's Wallpaper Based on the Time of Day❗️<a href='https://techblock.club/?p=undefined'> link</a>
+👉🏿XIII Remake Team Apologizes For Game's Current State, Pledges To Fix It❗️<a href='https://techblock.club/?p=undefined'> link</a>
 
