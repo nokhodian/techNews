@@ -1,20 +1,20 @@
-<b>Technology NEWS on Sunday, November 15th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Monday, November 16th, 2020</b> 📡📡📡 
 
-👉'Call Of Duty: Black Ops Cold War' On PS5 Changes What It's Like To Play A First-Person Shooter Forever❗️<a href='https://techblock.club/?p=undefined'> link</a>
+👉Puyo Puyo Tetris 2 brings the puzzle mash-up back for another zany adventure❗️<a href='https://techblock.club/?p=8291'> link</a>
 
-👉🏽Discover who you are — this Ancestry DNA deal is perfect for the history buff in your family❗️<a href='https://techblock.club/?p=undefined'> link</a>
+👉🏽'Mortal Kombat 11' Ultimate Release Date Time: When Can You Download Latest Update?❗️<a href='https://techblock.club/?p=8293'> link</a>
 
-👉🏿Best Black Friday Apple Watch deals available now: Save $49 on Apple Watch SE, Series 6❗️<a href='https://techblock.club/?p=undefined'> link</a>
+👉🏿How to enable two-factor authentication on Apple devices to keep your data secure❗️<a href='https://techblock.club/?p=8295'> link</a>
 
-👉Life Is Hellish Enough — That's Why I Had To Stop Playing 'Hades'❗️<a href='https://techblock.club/?p=undefined'> link</a>
+👉Samsung's Galaxy XCover Pro, Galaxy Tab Active Pro certified for FirstNet❗️<a href='https://techblock.club/?p=8297'> link</a>
 
-👉🏽Pokemon Go Fans Not Thrilled By Electabuzz's Alleged Low Catch Rate❗️<a href='https://techblock.club/?p=undefined'> link</a>
+👉🏽Save big on phone chargers and accessories in Anker's 24-hour sale❗️<a href='https://techblock.club/?p=8299'> link</a>
 
-👉🏿Deathloop to release in May, according to PS Store listing❗️<a href='https://techblock.club/?p=undefined'> link</a>
+👉🏿Both Keanu Reeves and His Character Johnny Silverhand are Cyberpunk 2077 Canon❗️<a href='https://techblock.club/?p=8301'> link</a>
 
-👉Leaker teases holiday Apple 'surprise' is on the way❗️<a href='https://techblock.club/?p=undefined'> link</a>
+👉Nanoleaf Essentials, and what not to do when you leave town on the HomeKit Insider Podcast❗️<a href='https://techblock.club/?p=8303'> link</a>
 
-👉🏽Should I buy a BenQ projector? A look at the budget DLP projector brand❗️<a href='https://techblock.club/?p=undefined'> link</a>
+👉🏽Zoom to Lift 40-Minute Meeting Limit on Thanksgiving Day for Longer Family Hangouts❗️<a href='https://techblock.club/?p=8305'> link</a>
 
-👉🏿XIII Remake Team Apologizes For Game's Current State, Pledges To Fix It❗️<a href='https://techblock.club/?p=undefined'> link</a>
+👉🏿10 Camaros Modified To Produce Crazy Horsepower❗️<a href='https://techblock.club/?p=8307'> link</a>
 
