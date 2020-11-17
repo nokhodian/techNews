@@ -1,20 +1,20 @@
-<b>Technology NEWS on Monday, November 16th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Tuesday, November 17th, 2020</b> 📡📡📡 
 
-👉Puyo Puyo Tetris 2 brings the puzzle mash-up back for another zany adventure❗️<a href='https://techblock.club/?p=8291'> link</a>
+👉Beats and AMBUSH Team Up on New Glow-in-the-Dark Powerbeats❗️<a href='https://techblock.club/?p=8311'> link</a>
 
-👉🏽'Mortal Kombat 11' Ultimate Release Date Time: When Can You Download Latest Update?❗️<a href='https://techblock.club/?p=8293'> link</a>
+👉🏽MINI Vision Urbanaut previews an autonomous micro-minivan future❗️<a href='https://techblock.club/?p=8313'> link</a>
 
-👉🏿How to enable two-factor authentication on Apple devices to keep your data secure❗️<a href='https://techblock.club/?p=8295'> link</a>
+👉🏿Apple-Owned Shazam App Surpasses 200 Million Monthly Active Users Worldwide❗️<a href='https://techblock.club/?p=8315'> link</a>
 
-👉Samsung's Galaxy XCover Pro, Galaxy Tab Active Pro certified for FirstNet❗️<a href='https://techblock.club/?p=8297'> link</a>
+👉Twitter: 300000 tweets flagged over election disinformation❗️<a href='https://techblock.club/?p=8317'> link</a>
 
-👉🏽Save big on phone chargers and accessories in Anker's 24-hour sale❗️<a href='https://techblock.club/?p=8299'> link</a>
+👉🏽PlayStation 5's First Post-Launch System Software Update is Live❗️<a href='https://techblock.club/?p=8319'> link</a>
 
-👉🏿Both Keanu Reeves and His Character Johnny Silverhand are Cyberpunk 2077 Canon❗️<a href='https://techblock.club/?p=8301'> link</a>
+👉🏿Epic Games brings 'Fortnite' fight with Apple to Australia's courts❗️<a href='https://techblock.club/?p=8321'> link</a>
 
-👉Nanoleaf Essentials, and what not to do when you leave town on the HomeKit Insider Podcast❗️<a href='https://techblock.club/?p=8303'> link</a>
+👉Jabra Elite 85t offers ANC and up to 31 hours of battery, priced at RM1,049❗️<a href='https://techblock.club/?p=8323'> link</a>
 
-👉🏽Zoom to Lift 40-Minute Meeting Limit on Thanksgiving Day for Longer Family Hangouts❗️<a href='https://techblock.club/?p=8305'> link</a>
+👉🏽Wahoo enters the smartwatch world with the new Elemnt Rival❗️<a href='https://techblock.club/?p=8325'> link</a>
 
-👉🏿10 Camaros Modified To Produce Crazy Horsepower❗️<a href='https://techblock.club/?p=8307'> link</a>
+👉🏿Blackview BL6000 Pro - first global 5G rugged phone available for pre-order❗️<a href='https://techblock.club/?p=8327'> link</a>
 
