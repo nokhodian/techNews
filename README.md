@@ -1,20 +1,20 @@
-<b>Technology NEWS on Friday, November 20th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Saturday, November 21st, 2020</b> 📡📡📡 
 
-👉Stop sending these 10 unnecessary email responses, and you can help reduce carbon emissions❗️<a href='https://techblock.club/?p=8371'> link</a>
+👉'Titanfall' drops on Steam and immediately faces backlash❗️<a href='https://techblock.club/?p=8391'> link</a>
 
-👉🏽Nvidia: RTX 3000 GPUs Will Remain Hard to Find Into 2021❗️<a href='https://techblock.club/?p=8373'> link</a>
+👉🏽How to Change Jobs in Yakuza: Like a Dragon❗️<a href='https://techblock.club/?p=8393'> link</a>
 
-👉🏿Killer Bose Black Friday headphone deal just came back in stock❗️<a href='https://techblock.club/?p=8375'> link</a>
+👉🏿AMD is preparing Ryzen 5000 APUs for laptops, but not all will be Zen 3-based❗️<a href='https://techblock.club/?p=8395'> link</a>
 
-👉'Cyberpunk 2077' Gets Streamer Mode Feature: Copyrighted Music Automatically Disabled❗️<a href='https://techblock.club/?p=8377'> link</a>
+👉Linda Nolan reveals she's 'feeling better' after chemo❗️<a href='https://techblock.club/?p=8397'> link</a>
 
-👉🏽Review: Watch Dogs Legion - The resistance hacks back❗️<a href='https://techblock.club/?p=8379'> link</a>
+👉🏽OnePlus 9 might sport two 48MP camera sensors❗️<a href='https://techblock.club/?p=8399'> link</a>
 
-👉🏿WhatsApp Testing 'Read Later' Feature That Will Replace Archive Option, New Wallpapers Coming Soon❗️<a href='https://techblock.club/?p=8381'> link</a>
+👉🏿When And Where To Watch Destiny 2's 'Deep Stone Crypt' World's First Race❗️<a href='https://techblock.club/?p=8401'> link</a>
 
-👉Kevin Lin is departing Twitch after 13 years at the company.❗️<a href='https://techblock.club/?p=8383'> link</a>
+👉OnePlus Unveils First Low-End Budget Phone, Brings A Range Of New Features❗️<a href='https://techblock.club/?p=8403'> link</a>
 
-👉🏽EVGA Unleashes Its Flagship GeForce RTX 3090 KINGPIN Hybrid & Hydro Copper Graphics Cards, Costs $2000 US❗️<a href='https://techblock.club/?p=8385'> link</a>
+👉🏽Scientists create 'kit' to grow human meat at home❗️<a href='https://techblock.club/?p=8405'> link</a>
 
-👉🏿How to use Safari's improved extensions in macOS Big Sur❗️<a href='https://techblock.club/?p=8387'> link</a>
+👉🏿6 Ways To Get Unfiltered Google Search Results❗️<a href='https://techblock.club/?p=8407'> link</a>
 
