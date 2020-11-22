@@ -1,20 +1,20 @@
-<b>Technology NEWS on Saturday, November 21st, 2020</b> 📡📡📡 
+<b>Technology NEWS on Sunday, November 22nd, 2020</b> 📡📡📡 
 
-👉'Titanfall' drops on Steam and immediately faces backlash❗️<a href='https://techblock.club/?p=8391'> link</a>
+👉Two-year-old flagships Huawei Mate 20 join EMUI 11 with many new features❗️<a href='https://techblock.club/?p=8411'> link</a>
 
-👉🏽How to Change Jobs in Yakuza: Like a Dragon❗️<a href='https://techblock.club/?p=8393'> link</a>
+👉🏽A new study shows space might not be pitch black after all❗️<a href='https://techblock.club/?p=8413'> link</a>
 
-👉🏿AMD is preparing Ryzen 5000 APUs for laptops, but not all will be Zen 3-based❗️<a href='https://techblock.club/?p=8395'> link</a>
+👉🏿Sunday Drive: 2020 Nissan Titan Platinum Reserve is luxury travel in a truck❗️<a href='https://techblock.club/?p=8415'> link</a>
 
-👉Linda Nolan reveals she's 'feeling better' after chemo❗️<a href='https://techblock.club/?p=8397'> link</a>
+👉Best Buy Black Friday: The best TV, laptop and video game deals❗️<a href='https://techblock.club/?p=8417'> link</a>
 
-👉🏽OnePlus 9 might sport two 48MP camera sensors❗️<a href='https://techblock.club/?p=8399'> link</a>
+👉🏽Our favorite stand mixer just got a major Black Friday price cut❗️<a href='https://techblock.club/?p=8419'> link</a>
 
-👉🏿When And Where To Watch Destiny 2's 'Deep Stone Crypt' World's First Race❗️<a href='https://techblock.club/?p=8401'> link</a>
+👉🏿Fleets reportedly still visible on Twitter after 24 hours thanks to a bug❗️<a href='https://techblock.club/?p=8421'> link</a>
 
-👉OnePlus Unveils First Low-End Budget Phone, Brings A Range Of New Features❗️<a href='https://techblock.club/?p=8403'> link</a>
+👉WhatsApp Disappearing Messages Now Live in India: Here's How to Use it on iOS, Android and Desktop❗️<a href='https://techblock.club/?p=8423'> link</a>
 
-👉🏽Scientists create 'kit' to grow human meat at home❗️<a href='https://techblock.club/?p=8405'> link</a>
+👉🏽Ford shows off cool custom rides at virtual SEMA 2020 show❗️<a href='https://techblock.club/?p=8425'> link</a>
 
-👉🏿6 Ways To Get Unfiltered Google Search Results❗️<a href='https://techblock.club/?p=8407'> link</a>
+👉🏿The Best Black Friday Deals on Amazon Devices 2020: Fire TV Sticks, Echo Show, More❗️<a href='https://techblock.club/?p=8427'> link</a>
 
