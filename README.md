@@ -1,20 +1,20 @@
-<b>Technology NEWS on Sunday, November 22nd, 2020</b> 📡📡📡 
+<b>Technology NEWS on Monday, November 23rd, 2020</b> 📡📡📡 
 
-👉Two-year-old flagships Huawei Mate 20 join EMUI 11 with many new features❗️<a href='https://techblock.club/?p=8411'> link</a>
+👉Nintendo Shares Own Animal Crossing: New Horizons Island❗️<a href='https://techblock.club/?p=8431'> link</a>
 
-👉🏽A new study shows space might not be pitch black after all❗️<a href='https://techblock.club/?p=8413'> link</a>
+👉🏽Neo: The World Ends With You Is Coming To Switch and PS4 in 2021❗️<a href='https://techblock.club/?p=8433'> link</a>
 
-👉🏿Sunday Drive: 2020 Nissan Titan Platinum Reserve is luxury travel in a truck❗️<a href='https://techblock.club/?p=8415'> link</a>
+👉🏿Walmart slashes prices of Acer, HP, Lenovo laptops for Black Friday❗️<a href='https://techblock.club/?p=8435'> link</a>
 
-👉Best Buy Black Friday: The best TV, laptop and video game deals❗️<a href='https://techblock.club/?p=8417'> link</a>
+👉Apple 4-Day Shopping Event Starts Friday; Gift Cards Offered❗️<a href='https://techblock.club/?p=8437'> link</a>
 
-👉🏽Our favorite stand mixer just got a major Black Friday price cut❗️<a href='https://techblock.club/?p=8419'> link</a>
+👉🏽Serif cuts 30 percent off Affinity creative apps for Black Friday❗️<a href='https://techblock.club/?p=8439'> link</a>
 
-👉🏿Fleets reportedly still visible on Twitter after 24 hours thanks to a bug❗️<a href='https://techblock.club/?p=8421'> link</a>
+👉🏿Google Assistant can now be used to schedule your smart lights❗️<a href='https://techblock.club/?p=8441'> link</a>
 
-👉WhatsApp Disappearing Messages Now Live in India: Here's How to Use it on iOS, Android and Desktop❗️<a href='https://techblock.club/?p=8423'> link</a>
+👉New Lord of the Rings MMO Release Window Potentially Revealed❗️<a href='https://techblock.club/?p=8443'> link</a>
 
-👉🏽Ford shows off cool custom rides at virtual SEMA 2020 show❗️<a href='https://techblock.club/?p=8425'> link</a>
+👉🏽Capcom mini arcade spotted, has four versions of Street Fighter 2❗️<a href='https://techblock.club/?p=8445'> link</a>
 
-👉🏿The Best Black Friday Deals on Amazon Devices 2020: Fire TV Sticks, Echo Show, More❗️<a href='https://techblock.club/?p=8427'> link</a>
+👉🏿Echo Frames Smart Glasses Bring Alexa Everywhere You Go❗️<a href='https://techblock.club/?p=8447'> link</a>
 
