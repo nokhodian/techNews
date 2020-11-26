@@ -1,20 +1,20 @@
-<b>Technology NEWS on Wednesday, November 25th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Thursday, November 26th, 2020</b> 📡📡📡 
 
-👉Huawei Black Friday Sales are Primed and Ready❗️<a href='https://techblock.club/?p=8471'> link</a>
+👉Best 70-inch Black Friday TV deals: Biggest sales on the biggest TVs❗️<a href='https://techblock.club/?p=8491'> link</a>
 
-👉🏽Black Friday PSA: the best VR entry point is still just $299❗️<a href='https://techblock.club/?p=8473'> link</a>
+👉🏽Doesn't leave Stadia: 400 games are in development❗️<a href='https://techblock.club/?p=8493'> link</a>
 
-👉🏿Ferrari 488 GT Modificata (2021❗️<a href='https://techblock.club/?p=8475'> link</a>
+👉🏿BIS delaying import of iPhone 12, Xiaomi and Oppo devices from China: Report❗️<a href='https://techblock.club/?p=8495'> link</a>
 
-👉iPhone 12 Black Friday deals: Best offers from AT&T, Verizon, T-Mobile and more❗️<a href='https://techblock.club/?p=8477'> link</a>
+👉Exploring the First Few Zones of World of Warcraft: Shadowlands❗️<a href='https://techblock.club/?p=8497'> link</a>
 
-👉🏽Grab The Ring Video Doorbell For Only $70 – Black Friday Deals 2020❗️<a href='https://techblock.club/?p=8479'> link</a>
+👉🏽Sennheiser HD 450BT Headphones Are Now Half Off – Black Friday Deals 2020❗️<a href='https://techblock.club/?p=8499'> link</a>
 
-👉🏿Black Friday 2020's 11 Best Soundbar Deals to Amplify Your Streaming Game❗️<a href='https://techblock.club/?p=8481'> link</a>
+👉🏿The best speakers Sonos makes are $100 off right now for Black Friday❗️<a href='https://techblock.club/?p=8501'> link</a>
 
-👉Hyrule Warriors: Age of Calamity review – a blast in the past❗️<a href='https://techblock.club/?p=8483'> link</a>
+👉Nintendo Download: Turf-Based Combat❗️<a href='https://techblock.club/?p=8503'> link</a>
 
-👉🏽Marvel's Avengers Hasn't Made Back Its Development Costs Yet❗️<a href='https://techblock.club/?p=8485'> link</a>
+👉🏽Assassin's Creed Valhalla Has No Build Diversity❗️<a href='https://techblock.club/?p=8505'> link</a>
 
-👉🏿Why is the PS5 outperforming the 'world's most powerful console'?❗️<a href='https://techblock.club/?p=8487'> link</a>
+👉🏿Learfield IMG strikes Esports Engine, Mainline and Endeavor deals for Level Next❗️<a href='https://techblock.club/?p=8507'> link</a>
 
