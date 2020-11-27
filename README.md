@@ -1,20 +1,20 @@
-<b>Technology NEWS on Thursday, November 26th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Friday, November 27th, 2020</b> 📡📡📡 
 
-👉Best 70-inch Black Friday TV deals: Biggest sales on the biggest TVs❗️<a href='https://techblock.club/?p=8491'> link</a>
+👉Act fast! Garmin Black Friday deal takes 50% off a top sports watch for runners❗️<a href='https://techblock.club/?p=8511'> link</a>
 
-👉🏽Doesn't leave Stadia: 400 games are in development❗️<a href='https://techblock.club/?p=8493'> link</a>
+👉🏽Apple's iPad Mini Is the Lowest Price It's Ever Been on Amazon Today — and It's Going Fast❗️<a href='https://techblock.club/?p=8513'> link</a>
 
-👉🏿BIS delaying import of iPhone 12, Xiaomi and Oppo devices from China: Report❗️<a href='https://techblock.club/?p=8495'> link</a>
+👉🏿Original Bit.Trip Games Confirmed For Switch Via Surprise eShop Listing❗️<a href='https://techblock.club/?p=8515'> link</a>
 
-👉Exploring the First Few Zones of World of Warcraft: Shadowlands❗️<a href='https://techblock.club/?p=8497'> link</a>
+👉How 'Saved by the Bell' star Josie Totah is redefining the high school mean girl❗️<a href='https://techblock.club/?p=8517'> link</a>
 
-👉🏽Sennheiser HD 450BT Headphones Are Now Half Off – Black Friday Deals 2020❗️<a href='https://techblock.club/?p=8499'> link</a>
+👉🏽Final Fantasy XIV 5.4: Release, Trailer, Story, Raid Content, And Changes Revealed❗️<a href='https://techblock.club/?p=8519'> link</a>
 
-👉🏿The best speakers Sonos makes are $100 off right now for Black Friday❗️<a href='https://techblock.club/?p=8501'> link</a>
+👉🏿Microsoft drags users kicking and screaming to newer versions of Windows 10❗️<a href='https://techblock.club/?p=8521'> link</a>
 
-👉Nintendo Download: Turf-Based Combat❗️<a href='https://techblock.club/?p=8503'> link</a>
+👉Call Of Duty Shouldn't Get Away With Its Revisionist Politics In 2020❗️<a href='https://techblock.club/?p=8523'> link</a>
 
-👉🏽Assassin's Creed Valhalla Has No Build Diversity❗️<a href='https://techblock.club/?p=8505'> link</a>
+👉🏽Apple Watch SE isn't as cheap as the Series 3. So how do you decide which to buy?❗️<a href='https://techblock.club/?p=8525'> link</a>
 
-👉🏿Learfield IMG strikes Esports Engine, Mainline and Endeavor deals for Level Next❗️<a href='https://techblock.club/?p=8507'> link</a>
+👉🏿Act fast! This 240Hz Alienware 25 gaming monitor is $105 off in epic Black Friday deal❗️<a href='https://techblock.club/?p=8527'> link</a>
 
