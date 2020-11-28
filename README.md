@@ -1,20 +1,20 @@
-<b>Technology NEWS on Friday, November 27th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Saturday, November 28th, 2020</b> 📡📡📡 
 
-👉Act fast! Garmin Black Friday deal takes 50% off a top sports watch for runners❗️<a href='https://techblock.club/?p=8511'> link</a>
+👉Karl Lohnes: Now's the time to plan your virtual holiday gathering❗️<a href='https://techblock.club/?p=8531'> link</a>
 
-👉🏽Apple's iPad Mini Is the Lowest Price It's Ever Been on Amazon Today — and It's Going Fast❗️<a href='https://techblock.club/?p=8513'> link</a>
+👉🏽Cyber Monday PS5 deals — what to expect and the best sales❗️<a href='https://techblock.club/?p=8533'> link</a>
 
-👉🏿Original Bit.Trip Games Confirmed For Switch Via Surprise eShop Listing❗️<a href='https://techblock.club/?p=8515'> link</a>
+👉🏿Pokémon Shirts now selling masks with any of the original 151❗️<a href='https://techblock.club/?p=8535'> link</a>
 
-👉How 'Saved by the Bell' star Josie Totah is redefining the high school mean girl❗️<a href='https://techblock.club/?p=8517'> link</a>
+👉The best Cyber Monday Apple Watch deals❗️<a href='https://techblock.club/?p=8537'> link</a>
 
-👉🏽Final Fantasy XIV 5.4: Release, Trailer, Story, Raid Content, And Changes Revealed❗️<a href='https://techblock.club/?p=8519'> link</a>
+👉🏽Cyber Monday slashes $850 off VAVA's 4K Laser TV Projector (Amazon low, Today only)❗️<a href='https://techblock.club/?p=8539'> link</a>
 
-👉🏿Microsoft drags users kicking and screaming to newer versions of Windows 10❗️<a href='https://techblock.club/?p=8521'> link</a>
+👉🏿Saga Frontier Latest Original PlayStation RPG To Be Remastered For Switch❗️<a href='https://techblock.club/?p=8541'> link</a>
 
-👉Call Of Duty Shouldn't Get Away With Its Revisionist Politics In 2020❗️<a href='https://techblock.club/?p=8523'> link</a>
+👉Huawei Dumps Android on Smartphones? Will New HarmonyOS Catch On?❗️<a href='https://techblock.club/?p=8543'> link</a>
 
-👉🏽Apple Watch SE isn't as cheap as the Series 3. So how do you decide which to buy?❗️<a href='https://techblock.club/?p=8525'> link</a>
+👉🏽Immortals Fenyx Rising video compares Switch and PS5 versions❗️<a href='https://techblock.club/?p=8545'> link</a>
 
-👉🏿Act fast! This 240Hz Alienware 25 gaming monitor is $105 off in epic Black Friday deal❗️<a href='https://techblock.club/?p=8527'> link</a>
+👉🏿Top Stories: Black Friday Deals, Redesigned MacBooks, Hands-On With Apple's M1 Macs❗️<a href='https://techblock.club/?p=8547'> link</a>
 
