@@ -1,20 +1,20 @@
-<b>Technology NEWS on Saturday, November 28th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Sunday, November 29th, 2020</b> 📡📡📡 
 
-👉Karl Lohnes: Now's the time to plan your virtual holiday gathering❗️<a href='https://techblock.club/?p=8531'> link</a>
+👉The best Cyber Monday deals that you can already get❗️<a href='https://techblock.club/?p=8551'> link</a>
 
-👉🏽Cyber Monday PS5 deals — what to expect and the best sales❗️<a href='https://techblock.club/?p=8533'> link</a>
+👉🏽Add life to your countertop with $65 off this Aerogarden system❗️<a href='https://techblock.club/?p=8553'> link</a>
 
-👉🏿Pokémon Shirts now selling masks with any of the original 151❗️<a href='https://techblock.club/?p=8535'> link</a>
+👉🏿Your Sony TV set could be about to get an Apple TV app upgrade❗️<a href='https://techblock.club/?p=8555'> link</a>
 
-👉The best Cyber Monday Apple Watch deals❗️<a href='https://techblock.club/?p=8537'> link</a>
+👉Spoon-Bending Magician Uri Geller Gives Nintendo Permission To Make Kadabra Pokemon Cards Again❗️<a href='https://techblock.club/?p=8557'> link</a>
 
-👉🏽Cyber Monday slashes $850 off VAVA's 4K Laser TV Projector (Amazon low, Today only)❗️<a href='https://techblock.club/?p=8539'> link</a>
+👉🏽'Apex Legends' most popular characters have been revealed❗️<a href='https://techblock.club/?p=8559'> link</a>
 
-👉🏿Saga Frontier Latest Original PlayStation RPG To Be Remastered For Switch❗️<a href='https://techblock.club/?p=8541'> link</a>
+👉🏿Pokemon Go Teases a Kalos Pokemon in Mysterious New Videos❗️<a href='https://techblock.club/?p=8561'> link</a>
 
-👉Huawei Dumps Android on Smartphones? Will New HarmonyOS Catch On?❗️<a href='https://techblock.club/?p=8543'> link</a>
+👉OPPO Reno5 Series Spotted In TENAA Listings; May Feature Dimensity 1000+ Chipset❗️<a href='https://techblock.club/?p=8563'> link</a>
 
-👉🏽Immortals Fenyx Rising video compares Switch and PS5 versions❗️<a href='https://techblock.club/?p=8545'> link</a>
+👉🏽Project Latte could see Android app support coming to Windows 10❗️<a href='https://techblock.club/?p=8565'> link</a>
 
-👉🏿Top Stories: Black Friday Deals, Redesigned MacBooks, Hands-On With Apple's M1 Macs❗️<a href='https://techblock.club/?p=8547'> link</a>
+👉🏿Best Target Black Friday deals still available: Apple Watch SE, Fitbit Versa 2, Roomba and more❗️<a href='https://techblock.club/?p=8567'> link</a>
 
