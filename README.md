@@ -1,20 +1,20 @@
-<b>Technology NEWS on Monday, November 30th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Tuesday, December 1st, 2020</b> 📡📡📡 
 
-👉Cyber Monday: What you need to know before buying that cheap smart TV❗️<a href='https://techblock.club/?p=8571'> link</a>
+👉Report: PS5 Is UK's Biggest Console Launch Ever, Set Sales Record in Europe Overall❗️<a href='https://techblock.club/?p=8591'> link</a>
 
-👉🏽Hackers are targeting MacOS users with this updated malware❗️<a href='https://techblock.club/?p=8573'> link</a>
+👉🏽Nintendo Switch Version 11.0 Updates Nintendo Switch Online and Media Sharing❗️<a href='https://techblock.club/?p=8593'> link</a>
 
-👉🏿Empire of Sin review: Crime pays in clever prohibition-era strategy game❗️<a href='https://techblock.club/?p=8575'> link</a>
+👉🏿TeamGroup's Blazing Fast 16GB DDR5-4800 Modules Confirmed For 2021 Launch In Next-Gen PCs❗️<a href='https://techblock.club/?p=8595'> link</a>
 
-👉21 Cyber Monday Audio Deals❗️<a href='https://techblock.club/?p=8577'> link</a>
+👉Google Play's best games of 2020 — Genshin Impact is the big winner❗️<a href='https://techblock.club/?p=8597'> link</a>
 
-👉🏽Cyber Monday brings steep discounts on SSDs and microSD cards❗️<a href='https://techblock.club/?p=8579'> link</a>
+👉🏽Sony Shares Android 11 Rollout Schedule For Xperia Phones❗️<a href='https://techblock.club/?p=8599'> link</a>
 
-👉🏿We Spoke To Panic Button About Bringing DOOM Eternal To The Nintendo Switch❗️<a href='https://techblock.club/?p=8581'> link</a>
+👉🏿The second-gen Eve V may take on the Surface Pro again in 2021❗️<a href='https://techblock.club/?p=8601'> link</a>
 
-👉Demon's Souls review for PS5❗️<a href='https://techblock.club/?p=8583'> link</a>
+👉Nest Thermostat review: more simple than smart❗️<a href='https://techblock.club/?p=8603'> link</a>
 
-👉🏽Best Cyber Monday laptop deals 2020: Apple, Dell, HP and more❗️<a href='https://techblock.club/?p=8585'> link</a>
+👉🏽Qualcomm Snapdragon 888 integrates 5G, likely boosting battery life in high-end phones❗️<a href='https://techblock.club/?p=8605'> link</a>
 
-👉🏿Cyber Monday Deal! Amazon's Bestselling Tummy Control Yoga Pants Are Up to 49% Off❗️<a href='https://techblock.club/?p=8587'> link</a>
+👉🏿Mustang Mach-E GT Performance Edition will hit 60 mph in 3.5 seconds, Ford predicts❗️<a href='https://techblock.club/?p=8607'> link</a>
 
