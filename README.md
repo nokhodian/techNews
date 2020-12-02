@@ -1,20 +1,20 @@
-<b>Technology NEWS on Tuesday, December 1st, 2020</b> 📡📡📡 
+<b>Technology NEWS on Wednesday, December 2nd, 2020</b> 📡📡📡 
 
-👉Report: PS5 Is UK's Biggest Console Launch Ever, Set Sales Record in Europe Overall❗️<a href='https://techblock.club/?p=8591'> link</a>
+👉Quebec rolls out new rules for shopping malls, stores to limit coronavirus spread❗️<a href='https://techblock.club/?p=8611'> link</a>
 
-👉🏽Nintendo Switch Version 11.0 Updates Nintendo Switch Online and Media Sharing❗️<a href='https://techblock.club/?p=8593'> link</a>
+👉🏽Pokémon card could sell for $500G, breaking records❗️<a href='https://techblock.club/?p=8613'> link</a>
 
-👉🏿TeamGroup's Blazing Fast 16GB DDR5-4800 Modules Confirmed For 2021 Launch In Next-Gen PCs❗️<a href='https://techblock.club/?p=8595'> link</a>
+👉🏿Reliance Jio users to get added benefits in new AR-based game 'Yaatra'❗️<a href='https://techblock.club/?p=8615'> link</a>
 
-👉Google Play's best games of 2020 — Genshin Impact is the big winner❗️<a href='https://techblock.club/?p=8597'> link</a>
+👉At $20 on pre-order, we wish the Wyze Watch shipped to SA❗️<a href='https://techblock.club/?p=8617'> link</a>
 
-👉🏽Sony Shares Android 11 Rollout Schedule For Xperia Phones❗️<a href='https://techblock.club/?p=8599'> link</a>
+👉🏽Immortals Fenyx Rising (for PC) Review❗️<a href='https://techblock.club/?p=8619'> link</a>
 
-👉🏿The second-gen Eve V may take on the Surface Pro again in 2021❗️<a href='https://techblock.club/?p=8601'> link</a>
+👉🏿Xbox Restock Updates: Check Xbox Series X Stock At Walmart, Best Buy, Target, GameStop, And More❗️<a href='https://techblock.club/?p=8621'> link</a>
 
-👉Nest Thermostat review: more simple than smart❗️<a href='https://techblock.club/?p=8603'> link</a>
+👉Lenovo ThinkStation P620 Review❗️<a href='https://techblock.club/?p=8623'> link</a>
 
-👉🏽Qualcomm Snapdragon 888 integrates 5G, likely boosting battery life in high-end phones❗️<a href='https://techblock.club/?p=8605'> link</a>
+👉🏽Inside Qualcomm's Snapdragon 888: New Chipset Boosts 5G, Camera❗️<a href='https://techblock.club/?p=8625'> link</a>
 
-👉🏿Mustang Mach-E GT Performance Edition will hit 60 mph in 3.5 seconds, Ford predicts❗️<a href='https://techblock.club/?p=8607'> link</a>
+👉🏿Best Cyberpunk 2077 Merch 2020❗️<a href='https://techblock.club/?p=8627'> link</a>
 
