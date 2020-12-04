@@ -1,20 +1,20 @@
-<b>Technology NEWS on Thursday, December 3rd, 2020</b> 📡📡📡 
+<b>Technology NEWS on Friday, December 4th, 2020</b> 📡📡📡 
 
-👉Asus' ROG Zephyrus G14 gaming laptop is back down to its Black Friday price❗️<a href='https://techblock.club/?p=8631'> link</a>
+👉goPuff Launches First-Ever Celebrity Box in Partnership With Russell Dickerson❗️<a href='https://techblock.club/?p=8651'> link</a>
 
-👉🏽Intel's Panther Canyon NUC could be out in December for those wanting a tiny PC❗️<a href='https://techblock.club/?p=8633'> link</a>
+👉🏽Google Fiber 2 Gig service goes live as US internet gulf widens❗️<a href='https://techblock.club/?p=8653'> link</a>
 
-👉🏿Business book of the year winner announcement — video❗️<a href='https://techblock.club/?p=8635'> link</a>
+👉🏿A word from a Destiny 2 acolyte | Why I Love❗️<a href='https://techblock.club/?p=8655'> link</a>
 
-👉Facebook's hate speech detection systems to focus on 'worst of the worst,' report says❗️<a href='https://techblock.club/?p=8637'> link</a>
+👉Timnit Gebru: Google staff rally behind fired AI researcher❗️<a href='https://techblock.club/?p=8657'> link</a>
 
-👉🏽Amazon Slashes Price of MacBook Air for Cyber Week — SAVE $200❗️<a href='https://techblock.club/?p=8639'> link</a>
+👉🏽Fitbit Is Replacing Some Sense Smartwatches Due to a Hardware Fault❗️<a href='https://techblock.club/?p=8659'> link</a>
 
-👉🏿Sea Of Thieves Is Adding Seasons And A Battle Pass In 2021❗️<a href='https://techblock.club/?p=8641'> link</a>
+👉🏿YouTube warns every user it is making a change and it is 'just the start'❗️<a href='https://techblock.club/?p=8661'> link</a>
 
-👉Apple Leads as Wearables Recover in Third Quarter❗️<a href='https://techblock.club/?p=8643'> link</a>
+👉Google Maps Holiday Updates: COVID Layer, Crowdedness & Driving Mode❗️<a href='https://techblock.club/?p=8663'> link</a>
 
-👉🏽Surface Pro 8 and Surface Laptop 4 leak — launch may be imminent❗️<a href='https://techblock.club/?p=8645'> link</a>
+👉🏽PS5 Pro with dual GPUs could come next — and people are already excited❗️<a href='https://techblock.club/?p=8665'> link</a>
 
-👉🏿Tetris 99 teams up with Super Mario All-Stars for new Grand Prix event❗️<a href='https://techblock.club/?p=8647'> link</a>
+👉🏿Whimsical 'Wattam' debuts on Steam December 18th❗️<a href='https://techblock.club/?p=8667'> link</a>
 
