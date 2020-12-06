@@ -1,20 +1,20 @@
-<b>Technology NEWS on Saturday, December 5th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Sunday, December 6th, 2020</b> 📡📡📡 
 
-👉Naughty Dog promotes Neil Druckmann to Co-President❗️<a href='https://techblock.club/?p=8671'> link</a>
+👉GTA 6 on Xbox Series X and PS5 needs to include 1 crucial PC feature❗️<a href='https://techblock.club/?p=8691'> link</a>
 
-👉🏽Tech Giant Huawei Schedules Harmony OS version 2.0 event on December 16❗️<a href='https://techblock.club/?p=8673'> link</a>
+👉🏽Paxton-Supercharged 1966 Shelby GT350 Is A Real Dream Machine❗️<a href='https://techblock.club/?p=8693'> link</a>
 
-👉🏿Noise expands audio portfolio in India - six new devices launched❗️<a href='https://techblock.club/?p=8675'> link</a>
+👉🏿Reggie Fils-Aime To Present At The Game Awards❗️<a href='https://techblock.club/?p=8695'> link</a>
 
-👉This week's top stories: Play Store's best apps of 2020, Fossil Wear OS update, Snapdragon 888, more❗️<a href='https://techblock.club/?p=8677'> link</a>
+👉Samsung's Galaxy Buds Live return to all-time low at $110 (Save 35%), more from $100❗️<a href='https://techblock.club/?p=8697'> link</a>
 
-👉🏽Here are five awesome holiday gift ideas for the design lover in your life❗️<a href='https://techblock.club/?p=8679'> link</a>
+👉🏽Rick and Morty: The 12 Days of Rickmas Day #6 Proves Rather Puzzling❗️<a href='https://techblock.club/?p=8699'> link</a>
 
-👉🏿Top Stories: Redesigned MacBook Pro in 2021, MagSafe Duo Released, HomePod Mini vs. Competition❗️<a href='https://techblock.club/?p=8681'> link</a>
+👉🏿Nintendo Cancels Splatoon 2 NA Open Livestream, "Free Melee" Believed To Have Played A Part❗️<a href='https://techblock.club/?p=8701'> link</a>
 
-👉A cheap tablet is a great entertainment device❗️<a href='https://techblock.club/?p=8683'> link</a>
+👉Weekly Treasure: 2001 Porsche 911 Turbo❗️<a href='https://techblock.club/?p=8703'> link</a>
 
-👉🏽FDA authorizes first at-home COVID-19 and flu combination test❗️<a href='https://techblock.club/?p=8685'> link</a>
+👉🏽Martin Lewis reveals how you can boost your phone's memory for free❗️<a href='https://techblock.club/?p=8705'> link</a>
 
-👉🏿Durant & Heatmor Have Switched Regions In Pokémon GO❗️<a href='https://techblock.club/?p=8687'> link</a>
+👉🏿Comparative Testing of GPU Servers with New NVIDIA RTX30 Video Cards in AI/ML Tasks❗️<a href='https://techblock.club/?p=8707'> link</a>
 
