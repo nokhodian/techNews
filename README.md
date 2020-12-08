@@ -1,20 +1,20 @@
-<b>Technology NEWS on Monday, December 7th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Tuesday, December 8th, 2020</b> 📡📡📡 
 
-👉Nintendo Consoles Are Aimed At "Kids And Teens" Says Sega's Toshihiro Nagoshi In Disputed Translation❗️<a href='https://techblock.club/?p=8711'> link</a>
+👉47's world is glossier and deadlier than ever before in Hitman 3 gameplay trailer❗️<a href='https://techblock.club/?p=8731'> link</a>
 
-👉🏽PS5s being stolen off moving trucks❗️<a href='https://techblock.club/?p=8713'> link</a>
+👉🏽The Division 2 Update 12 Is Live, Patch Notes Here❗️<a href='https://techblock.club/?p=8733'> link</a>
 
-👉🏿Xbox Series X ad by Taika Waititi reveals Meowster Chief❗️<a href='https://techblock.club/?p=8715'> link</a>
+👉🏿Cyberpunk 2077 Preview and Initial Impressions❗️<a href='https://techblock.club/?p=8735'> link</a>
 
-👉Coffee snobs are faking their love of fancy java, addiction study says❗️<a href='https://techblock.club/?p=8717'> link</a>
+👉Moto G9 power vs Redmi Note 9 vs Realme 7i: Battle of the budget smartphones❗️<a href='https://techblock.club/?p=8737'> link</a>
 
-👉🏽Nintendo criticized for blocking custom game events and charity Etika Joy-Con shells❗️<a href='https://techblock.club/?p=8719'> link</a>
+👉🏽Call Of The Sea Is Now Available On Xbox Game Pass❗️<a href='https://techblock.club/?p=8739'> link</a>
 
-👉🏿New Covid-19 test uses smartphone camera to give results in under 30 minutes❗️<a href='https://techblock.club/?p=8721'> link</a>
+👉🏿EA May Block FIFA Ultimate Team In Countries With Strict Gambling Laws❗️<a href='https://techblock.club/?p=8741'> link</a>
 
-👉Street Fighter V Skullomania Costume Arrives This Week❗️<a href='https://techblock.club/?p=8723'> link</a>
+👉Prince Of Persia: The Sands Of Time Remake Preorders: New Release Date, Bonuses, And More❗️<a href='https://techblock.club/?p=8743'> link</a>
 
-👉🏽Buying an AMD RX 6900 XT GPU could be like winning the lottery (literally in some cases)❗️<a href='https://techblock.club/?p=8725'> link</a>
+👉🏽The Game Awards 2020 Will Feature Over Dozen Games That'll Be Announced or Shown for the First Time❗️<a href='https://techblock.club/?p=8745'> link</a>
 
-👉🏿Consumer demand straining iPhone 12 Pro, iPhone 12 Pro supply, production lines❗️<a href='https://techblock.club/?p=8727'> link</a>
+👉🏿AMD Radeon RX 6900 XT review: Blisteringly fast, but very niche❗️<a href='https://techblock.club/?p=8747'> link</a>
 
