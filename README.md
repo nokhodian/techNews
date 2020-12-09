@@ -1,20 +1,20 @@
-<b>Technology NEWS on Tuesday, December 8th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Wednesday, December 9th, 2020</b> 📡📡📡 
 
-👉47's world is glossier and deadlier than ever before in Hitman 3 gameplay trailer❗️<a href='https://techblock.club/?p=8731'> link</a>
+👉Hey, Nintendo fans: A Super Smash Bros. Ultimate esports tournament is coming to Arizona❗️<a href='https://techblock.club/?p=8751'> link</a>
 
-👉🏽The Division 2 Update 12 Is Live, Patch Notes Here❗️<a href='https://techblock.club/?p=8733'> link</a>
+👉🏽Roccat Burst Pro Gaming Mouse Review❗️<a href='https://techblock.club/?p=8753'> link</a>
 
-👉🏿Cyberpunk 2077 Preview and Initial Impressions❗️<a href='https://techblock.club/?p=8735'> link</a>
+👉🏿SpaceX's Starship Will Try to Fly to 50000 Feet This Week❗️<a href='https://techblock.club/?p=8755'> link</a>
 
-👉Moto G9 power vs Redmi Note 9 vs Realme 7i: Battle of the budget smartphones❗️<a href='https://techblock.club/?p=8737'> link</a>
+👉Google's Health Studies app lets Android users contribute to research❗️<a href='https://techblock.club/?p=8757'> link</a>
 
-👉🏽Call Of The Sea Is Now Available On Xbox Game Pass❗️<a href='https://techblock.club/?p=8739'> link</a>
+👉🏽WAP, compost and Carole Baskin – Google reveals what Brits searched for in 2020❗️<a href='https://techblock.club/?p=8759'> link</a>
 
-👉🏿EA May Block FIFA Ultimate Team In Countries With Strict Gambling Laws❗️<a href='https://techblock.club/?p=8741'> link</a>
+👉🏿Godfall (for PlayStation 5) Review❗️<a href='https://techblock.club/?p=8761'> link</a>
 
-👉Prince Of Persia: The Sands Of Time Remake Preorders: New Release Date, Bonuses, And More❗️<a href='https://techblock.club/?p=8743'> link</a>
+👉Xbox Cloud Gaming Coming to iOS in Spring 2021❗️<a href='https://techblock.club/?p=8763'> link</a>
 
-👉🏽The Game Awards 2020 Will Feature Over Dozen Games That'll Be Announced or Shown for the First Time❗️<a href='https://techblock.club/?p=8745'> link</a>
+👉🏽New Cyberpunk 2077 Video Stars Nina Kraviz and Her Music❗️<a href='https://techblock.club/?p=8765'> link</a>
 
-👉🏿AMD Radeon RX 6900 XT review: Blisteringly fast, but very niche❗️<a href='https://techblock.club/?p=8747'> link</a>
+👉🏿Desperados III 'Bounty Mode' update now available❗️<a href='https://techblock.club/?p=8767'> link</a>
 
