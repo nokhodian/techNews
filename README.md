@@ -1,20 +1,20 @@
-<b>Technology NEWS on Thursday, December 10th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Friday, December 11th, 2020</b> 📡📡📡 
 
-👉Don't Get Your Hopes Up For A Galaxy Z Fold Lite❗️<a href='https://techblock.club/?p=8771'> link</a>
+👉Apple working on its first cellular modem, which could bring 5G to the MacBook❗️<a href='https://techblock.club/?p=8791'> link</a>
 
-👉🏽Cyberpunk 2077 – How to Parry/Counter❗️<a href='https://techblock.club/?p=8773'> link</a>
+👉🏽Amazfit GTR 2 with 14-day battery life launched: Price, features and more❗️<a href='https://techblock.club/?p=8793'> link</a>
 
-👉🏿Cyberpunk 2077 PC Performance Tips: Boost Your FPS With These Settings❗️<a href='https://techblock.club/?p=8775'> link</a>
+👉🏿Persona 5 Strikers - First coup❗️<a href='https://techblock.club/?p=8795'> link</a>
 
-👉How to watch the 2020 Game Awards❗️<a href='https://techblock.club/?p=8777'> link</a>
+👉Long-delayed 'Super Meat Boy Forever' arrives on PC December 23rd❗️<a href='https://techblock.club/?p=8797'> link</a>
 
-👉🏽Google Chrome just got two killer upgrades — what you need to know❗️<a href='https://techblock.club/?p=8779'> link</a>
+👉🏽A Rare Original Apple 1 Computer Was Sacrificed For These Ugly Custom iPhones❗️<a href='https://techblock.club/?p=8799'> link</a>
 
-👉🏿The highly anticipated video game starring Keanu Reeves is finally here❗️<a href='https://techblock.club/?p=8781'> link</a>
+👉🏿The Oculus Rift S is $100 off at several retailers❗️<a href='https://techblock.club/?p=8801'> link</a>
 
-👉AirPods Max Unboxing Videos: 'More Than Good Enough to Compete With Other High-End Headphones'❗️<a href='https://techblock.club/?p=8783'> link</a>
+👉Google Will Help Combat COVID-19 Vaccine Misinformation❗️<a href='https://techblock.club/?p=8803'> link</a>
 
-👉🏽#FreeRogan: Why Twitch star RowdyRogan got banned from Warzone❗️<a href='https://techblock.club/?p=8785'> link</a>
+👉🏽Apple employees may not return to offices before June 2021❗️<a href='https://techblock.club/?p=8805'> link</a>
 
-👉🏿Google's new storage policy: Ten points all Gmail, Drive, Photos users should know❗️<a href='https://techblock.club/?p=8787'> link</a>
+👉🏿Genshin Impact Revels Update 1.2 With New Area, Event, and Characters❗️<a href='https://techblock.club/?p=8807'> link</a>
 
