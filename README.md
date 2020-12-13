@@ -1,20 +1,20 @@
-<b>Technology NEWS on Saturday, December 12th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Sunday, December 13th, 2020</b> 📡📡📡 
 
-👉OnePlus 9 leak shows off the phone's new design, confirms Snapdragon 888 [Gallery]❗️<a href='https://techblock.club/?p=8811'> link</a>
+👉How to Find (& Catch) Cresselia in Pokémon Sword and Shield❗️<a href='https://techblock.club/?p=8831'> link</a>
 
-👉🏽The iPhone 12 mini looks like a bust — here's why❗️<a href='https://techblock.club/?p=8813'> link</a>
+👉🏽It's A Good Day For A Swell Battle With This New Cuphead Switch Controller❗️<a href='https://techblock.club/?p=8833'> link</a>
 
-👉🏿Google launches Android app to collect health data❗️<a href='https://techblock.club/?p=8815'> link</a>
+👉🏿Former UIC coach Jimmy Collins passes away at 74❗️<a href='https://techblock.club/?p=8835'> link</a>
 
-👉Tip: The new Google Camera helps you align your phone for perfectly level shots❗️<a href='https://techblock.club/?p=8817'> link</a>
+👉Reddit's patch for Cyberpunk 2077 yields double-digit performance gains on AMD CPUs❗️<a href='https://techblock.club/?p=8837'> link</a>
 
-👉🏽Cyberpunk 2077 shows why DLSS is pretty much mandatory for 4K next-gen gaming❗️<a href='https://techblock.club/?p=8819'> link</a>
+👉🏽Genshin Impact Shows Off Huge Mountain Region In New Trailer❗️<a href='https://techblock.club/?p=8839'> link</a>
 
-👉🏿A nasty malware is affecting Google Chrome, other browsers, warns Microsoft❗️<a href='https://techblock.club/?p=8821'> link</a>
+👉🏿Granblue Fantasy: Versus DLC character Yuel launches December 14, Anre in late January 2021❗️<a href='https://techblock.club/?p=8841'> link</a>
 
-👉5 Games Announced During The Game Awards to Keep an Eye On❗️<a href='https://techblock.club/?p=8823'> link</a>
+👉CD Projekt Red Creating Cyberpunk 2077-Inspired Prosthetic❗️<a href='https://techblock.club/?p=8843'> link</a>
 
-👉🏽Realme X7 Pro Ready to Make Global Debut on December 17 | Key Features, Launch Details Here❗️<a href='https://techblock.club/?p=8825'> link</a>
+👉🏽The 7 Best Oil-Free Sunscreens❗️<a href='https://techblock.club/?p=8845'> link</a>
 
-👉🏿Users complain of missing message alerts in iOS 14❗️<a href='https://techblock.club/?p=8827'> link</a>
+👉🏿Windows 10X is arriving next year: What we know so far❗️<a href='https://techblock.club/?p=8847'> link</a>
 
