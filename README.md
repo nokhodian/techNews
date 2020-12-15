@@ -1,20 +1,20 @@
-<b>Technology NEWS on Monday, December 14th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Tuesday, December 15th, 2020</b> 📡📡📡 
 
-👉Microsoft, Nintendo, and Sony commit to making gaming safer❗️<a href='https://techblock.club/?p=8851'> link</a>
+👉SNK Will Reveal a New Console in 2021❗️<a href='https://techblock.club/?p=8871'> link</a>
 
-👉🏽Tokyo Elementary School Uses Animal Crossing: New Horizons for Special SDG-focused Open Class❗️<a href='https://techblock.club/?p=8853'> link</a>
+👉🏽Sony acknowledges 'severe shortage of key parts' for its compacts and video cameras❗️<a href='https://techblock.club/?p=8873'> link</a>
 
-👉🏿Best iPhone 12 deals available now: Save on every model at AT&T, Verizon, T-Mobile, other carriers❗️<a href='https://techblock.club/?p=8855'> link</a>
+👉🏿Sygic arrives on Android Auto to compete with Google Maps and Waze❗️<a href='https://techblock.club/?p=8875'> link</a>
 
-👉Windows 10: Microsoft's Project Reunion preview arrives to make writing apps easier❗️<a href='https://techblock.club/?p=8857'> link</a>
+👉Amazon knocks $300 off Intel Mac mini, 44mm Apple Watch SE dips to $249❗️<a href='https://techblock.club/?p=8877'> link</a>
 
-👉🏽Best web hosting in 2021: Find the right service for your site❗️<a href='https://techblock.club/?p=8859'> link</a>
+👉🏽You can buy Animal Crossing: New Horizons plushies in Amazon's sale❗️<a href='https://techblock.club/?p=8879'> link</a>
 
-👉🏿Nintendo is running a Direct-like Indie Showcase for Switch this week❗️<a href='https://techblock.club/?p=8861'> link</a>
+👉🏿Hitman 3 Opening Cinematic Trailer Reunites Agent 47 and Lucas Grey❗️<a href='https://techblock.club/?p=8881'> link</a>
 
-👉Nvidia GeForce RTX 3080 vs. AMD Radeon RX 6800 XT: Which High-End Card to Get for 4K Gaming?❗️<a href='https://techblock.club/?p=8863'> link</a>
+👉Cyberpunk 2077 Endings: How to Get All Endings & Secret Ending❗️<a href='https://techblock.club/?p=8883'> link</a>
 
-👉🏽Genshin Impact v1.2 update will bring 2 new characters and its first new map expansion❗️<a href='https://techblock.club/?p=8865'> link</a>
+👉🏽Assassin's Creed Valhalla Update 1.1.0 Adds In-Game Support for Settlement Expansion and Yule Festival❗️<a href='https://techblock.club/?p=8885'> link</a>
 
-👉🏿iPhone 13 Pro Models Expected to Adopt LTPO Technology for 120Hz Display❗️<a href='https://techblock.club/?p=8867'> link</a>
+👉🏿TikTok is now available on Samsung TVs in Europe❗️<a href='https://techblock.club/?p=8887'> link</a>
 
