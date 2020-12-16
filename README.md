@@ -1,20 +1,20 @@
-<b>Technology NEWS on Tuesday, December 15th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Wednesday, December 16th, 2020</b> 📡📡📡 
 
-👉SNK Will Reveal a New Console in 2021❗️<a href='https://techblock.club/?p=8871'> link</a>
+👉Hell Yes! DOOM And DOOM II Just Got Another Add-On, And It's Out Today❗️<a href='https://techblock.club/?p=8891'> link</a>
 
-👉🏽Sony acknowledges 'severe shortage of key parts' for its compacts and video cameras❗️<a href='https://techblock.club/?p=8873'> link</a>
+👉🏽Amazon Echo Frames (2nd Gen) review: Alexa all the time, every time❗️<a href='https://techblock.club/?p=8893'> link</a>
 
-👉🏿Sygic arrives on Android Auto to compete with Google Maps and Waze❗️<a href='https://techblock.club/?p=8875'> link</a>
+👉🏿These Are the Most Ridiculous RGB Gadgets You Can Buy❗️<a href='https://techblock.club/?p=8895'> link</a>
 
-👉Amazon knocks $300 off Intel Mac mini, 44mm Apple Watch SE dips to $249❗️<a href='https://techblock.club/?p=8877'> link</a>
+👉Microsoft Promises Big Improvements for the Surface Duo in 2021❗️<a href='https://techblock.club/?p=8897'> link</a>
 
-👉🏽You can buy Animal Crossing: New Horizons plushies in Amazon's sale❗️<a href='https://techblock.club/?p=8879'> link</a>
+👉🏽Intel Announces New Wave of Optane and 3D NAND SSDs❗️<a href='https://techblock.club/?p=8899'> link</a>
 
-👉🏿Hitman 3 Opening Cinematic Trailer Reunites Agent 47 and Lucas Grey❗️<a href='https://techblock.club/?p=8881'> link</a>
+👉🏿Apple AirPods Max review: luxurious sound for a luxury price❗️<a href='https://techblock.club/?p=8901'> link</a>
 
-👉Cyberpunk 2077 Endings: How to Get All Endings & Secret Ending❗️<a href='https://techblock.club/?p=8883'> link</a>
+👉Nokia C1 Plus brings stock Android to HMD's cheapest smartphone of 2020❗️<a href='https://techblock.club/?p=8903'> link</a>
 
-👉🏽Assassin's Creed Valhalla Update 1.1.0 Adds In-Game Support for Settlement Expansion and Yule Festival❗️<a href='https://techblock.club/?p=8885'> link</a>
+👉🏽Amazon Fire TV gets a major update: Here's what has changed❗️<a href='https://techblock.club/?p=8905'> link</a>
 
-👉🏿TikTok is now available on Samsung TVs in Europe❗️<a href='https://techblock.club/?p=8887'> link</a>
+👉🏿Facebook Takes Out Full-Page Newspaper Ads to Attack Apple's iOS Privacy Changes❗️<a href='https://techblock.club/?p=8907'> link</a>
 
