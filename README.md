@@ -1,20 +1,20 @@
-<b>Technology NEWS on Wednesday, December 16th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Thursday, December 17th, 2020</b> 📡📡📡 
 
-👉Hell Yes! DOOM And DOOM II Just Got Another Add-On, And It's Out Today❗️<a href='https://techblock.club/?p=8891'> link</a>
+👉Scot who vowed to 'revolutionise the wheelchair' wins one million dollar backing❗️<a href='https://techblock.club/?p=8911'> link</a>
 
-👉🏽Amazon Echo Frames (2nd Gen) review: Alexa all the time, every time❗️<a href='https://techblock.club/?p=8893'> link</a>
+👉🏽Soundcore Strike 1, Strike 2 Features, Price❗️<a href='https://techblock.club/?p=8913'> link</a>
 
-👉🏿These Are the Most Ridiculous RGB Gadgets You Can Buy❗️<a href='https://techblock.club/?p=8895'> link</a>
+👉🏿Android 11 For OnePlus 7 Series Delayed Due To Technical Issue❗️<a href='https://techblock.club/?p=8915'> link</a>
 
-👉Microsoft Promises Big Improvements for the Surface Duo in 2021❗️<a href='https://techblock.club/?p=8897'> link</a>
+👉AirPods Max review: The price hurts but these headphones are excellent❗️<a href='https://techblock.club/?p=8917'> link</a>
 
-👉🏽Intel Announces New Wave of Optane and 3D NAND SSDs❗️<a href='https://techblock.club/?p=8899'> link</a>
+👉🏽Fable reboot attaches Control's Anna Megill as Lead Writer❗️<a href='https://techblock.club/?p=8919'> link</a>
 
-👉🏿Apple AirPods Max review: luxurious sound for a luxury price❗️<a href='https://techblock.club/?p=8901'> link</a>
+👉🏿Facebook disabled some Messenger features in Europe. Here's an (incomplete) list.❗️<a href='https://techblock.club/?p=8921'> link</a>
 
-👉Nokia C1 Plus brings stock Android to HMD's cheapest smartphone of 2020❗️<a href='https://techblock.club/?p=8903'> link</a>
+👉Twitch Bans Words 'Simp' & 'Virgin' - But It Won't Ban the N-Word❗️<a href='https://techblock.club/?p=8923'> link</a>
 
-👉🏽Amazon Fire TV gets a major update: Here's what has changed❗️<a href='https://techblock.club/?p=8905'> link</a>
+👉🏽Among Us is coming to Fortnite... sort of❗️<a href='https://techblock.club/?p=8925'> link</a>
 
-👉🏿Facebook Takes Out Full-Page Newspaper Ads to Attack Apple's iOS Privacy Changes❗️<a href='https://techblock.club/?p=8907'> link</a>
+👉🏿Marvel's Avengers Update 1.20 Patch Notes❗️<a href='https://techblock.club/?p=8927'> link</a>
 
