@@ -1,20 +1,20 @@
-<b>Technology NEWS on Thursday, December 17th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Friday, December 18th, 2020</b> 📡📡📡 
 
-👉Scot who vowed to 'revolutionise the wheelchair' wins one million dollar backing❗️<a href='https://techblock.club/?p=8911'> link</a>
+👉Instagram Is Down Now, Users Around the World Complain of Crashes❗️<a href='https://techblock.club/?p=8931'> link</a>
 
-👉🏽Soundcore Strike 1, Strike 2 Features, Price❗️<a href='https://techblock.club/?p=8913'> link</a>
+👉🏽Ex-Microsoft CEO Steve Ballmer just achieved something truly sublime❗️<a href='https://techblock.club/?p=8933'> link</a>
 
-👉🏿Android 11 For OnePlus 7 Series Delayed Due To Technical Issue❗️<a href='https://techblock.club/?p=8915'> link</a>
+👉🏿How to Unlock Sephiroth in Super Smash Bros. Ultimate❗️<a href='https://techblock.club/?p=8935'> link</a>
 
-👉AirPods Max review: The price hurts but these headphones are excellent❗️<a href='https://techblock.club/?p=8917'> link</a>
+👉Next Nintendo Direct Will Show Off Super Nintendo World❗️<a href='https://techblock.club/?p=8937'> link</a>
 
-👉🏽Fable reboot attaches Control's Anna Megill as Lead Writer❗️<a href='https://techblock.club/?p=8919'> link</a>
+👉🏽Fortnite Snowmand Outpost Locations: Where To Visit Different Snowmando Outposts❗️<a href='https://techblock.club/?p=8939'> link</a>
 
-👉🏿Facebook disabled some Messenger features in Europe. Here's an (incomplete) list.❗️<a href='https://techblock.club/?p=8921'> link</a>
+👉🏿LG's Fully Autonomous Robot Will Use UV Light to Disinfect Public Places❗️<a href='https://techblock.club/?p=8941'> link</a>
 
-👉Twitch Bans Words 'Simp' & 'Virgin' - But It Won't Ban the N-Word❗️<a href='https://techblock.club/?p=8923'> link</a>
+👉Control PS5 And Xbox Series X/S Update Offers 60fps Or Ray Tracing In February❗️<a href='https://techblock.club/?p=8943'> link</a>
 
-👉🏽Among Us is coming to Fortnite... sort of❗️<a href='https://techblock.club/?p=8925'> link</a>
+👉🏽Snapdragon 888 benchmarks: Galaxy S21 should put up a fight against iPhone 12❗️<a href='https://techblock.club/?p=8945'> link</a>
 
-👉🏿Marvel's Avengers Update 1.20 Patch Notes❗️<a href='https://techblock.club/?p=8927'> link</a>
+👉🏿Diablo Immortal Doesn't Have Diablo 3-Like Seasons❗️<a href='https://techblock.club/?p=8947'> link</a>
 
