@@ -1,20 +1,20 @@
-<b>Technology NEWS on Friday, December 18th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Saturday, December 19th, 2020</b> 📡📡📡 
 
-👉Instagram Is Down Now, Users Around the World Complain of Crashes❗️<a href='https://techblock.club/?p=8931'> link</a>
+👉Amazon Sidewalk is coming to your Echo very soon. Here's why it matters❗️<a href='https://techblock.club/?p=8951'> link</a>
 
-👉🏽Ex-Microsoft CEO Steve Ballmer just achieved something truly sublime❗️<a href='https://techblock.club/?p=8933'> link</a>
+👉🏽Bored? Compose your own inspiring 'blob opera' in seconds.❗️<a href='https://techblock.club/?p=8953'> link</a>
 
-👉🏿How to Unlock Sephiroth in Super Smash Bros. Ultimate❗️<a href='https://techblock.club/?p=8935'> link</a>
+👉🏿T-Mobile's Galaxy Note10 series and Note9 updated with December patch❗️<a href='https://techblock.club/?p=8955'> link</a>
 
-👉Next Nintendo Direct Will Show Off Super Nintendo World❗️<a href='https://techblock.club/?p=8937'> link</a>
+👉Microsoft reportedly creating own ARM chips to fight MacBook M1❗️<a href='https://techblock.club/?p=8957'> link</a>
 
-👉🏽Fortnite Snowmand Outpost Locations: Where To Visit Different Snowmando Outposts❗️<a href='https://techblock.club/?p=8939'> link</a>
+👉🏽Cyberpunk 2077 Patch 1.05 Fixes a Number of Quests and Visual Issues, Check Out the Patch Notes❗️<a href='https://techblock.club/?p=8959'> link</a>
 
-👉🏿LG's Fully Autonomous Robot Will Use UV Light to Disinfect Public Places❗️<a href='https://techblock.club/?p=8941'> link</a>
+👉🏿Nintendo Switch Pro could get a killer display — but there's a catch❗️<a href='https://techblock.club/?p=8961'> link</a>
 
-👉Control PS5 And Xbox Series X/S Update Offers 60fps Or Ray Tracing In February❗️<a href='https://techblock.club/?p=8943'> link</a>
+👉Top Stories: Hands-On With AirPods Max, Apple Fitness+ Debuts, iPhone 13 and Apple TV Rumors❗️<a href='https://techblock.club/?p=8963'> link</a>
 
-👉🏽Snapdragon 888 benchmarks: Galaxy S21 should put up a fight against iPhone 12❗️<a href='https://techblock.club/?p=8945'> link</a>
+👉🏽9 apps that made staring at screens less of a nightmare in 2020❗️<a href='https://techblock.club/?p=8965'> link</a>
 
-👉🏿Diablo Immortal Doesn't Have Diablo 3-Like Seasons❗️<a href='https://techblock.club/?p=8947'> link</a>
+👉🏿'Fortnite' All Dance at Holiday Tree Locations for Snowdown Challenges❗️<a href='https://techblock.club/?p=8967'> link</a>
 
