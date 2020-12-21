@@ -1,20 +1,20 @@
-<b>Technology NEWS on Sunday, December 20th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Monday, December 21st, 2020</b> 📡📡📡 
 
-👉The OnePlus Watch is real — and it could be coming soon❗️<a href='https://techblock.club/?p=8971'> link</a>
+👉YouTube tested a way to sync downloads across devices❗️<a href='https://techblock.club/?p=8991'> link</a>
 
-👉🏽Grateful customers surprise UPS driver with a new roof❗️<a href='https://techblock.club/?p=8973'> link</a>
+👉🏽This sublime Razer DeathAdder gaming mouse is only $20❗️<a href='https://techblock.club/?p=8993'> link</a>
 
-👉🏿10 Best Hair Oils for Hair Growth and Thickness❗️<a href='https://techblock.club/?p=8975'> link</a>
+👉🏿Zelda Voice Actress Patricia Summersett Speaks Out About Online Negativity And Criticism❗️<a href='https://techblock.club/?p=8995'> link</a>
 
-👉Play 'Cyberpunk 2077' in the Cloud With GeForce Now!❗️<a href='https://techblock.club/?p=8977'> link</a>
+👉Assassin's Creed Valhalla is UK Christmas no. 1 – Games charts 19 December❗️<a href='https://techblock.club/?p=8997'> link</a>
 
-👉🏽Animal Crossing gave me structure in a shapeless year❗️<a href='https://techblock.club/?p=8979'> link</a>
+👉🏽Samsung Galaxy Z Flip 5G Getting Stable Android 11 With One UI 3.0❗️<a href='https://techblock.club/?p=8999'> link</a>
 
-👉🏿Genshin Impact: What Is the Crown of Insight?❗️<a href='https://techblock.club/?p=8981'> link</a>
+👉🏿iPhone 12 was the best-selling 5G smartphone in October❗️<a href='https://techblock.club/?p=9001'> link</a>
 
-👉Marvel's Spider-Man Remastered Could Soon Allow Standalone Purchases❗️<a href='https://techblock.club/?p=8983'> link</a>
+👉GPD Win 3 Handheld Gaming PC Priced From $799 With Tiger Lake, 16GB RAM And 1TB SSD❗️<a href='https://techblock.club/?p=9003'> link</a>
 
-👉🏽Konami Announces Yu-Gi-Oh! Rush Duel Is In Development For Switch❗️<a href='https://techblock.club/?p=8985'> link</a>
+👉🏽Stardew Valley' 1.5 Will Have a New Farm Type and Advanced Game Options Menu❗️<a href='https://techblock.club/?p=9005'> link</a>
 
-👉🏿Last chance sale! Save an extra 40% off this award-winning bundle of 12 Mac apps❗️<a href='https://techblock.club/?p=8987'> link</a>
+👉🏿Cyberpunk 2077: How to get Johnny Silverhand's gun and Porsche 911 car❗️<a href='https://techblock.club/?p=9007'> link</a>
 
