@@ -1,20 +1,20 @@
-<b>Technology NEWS on Monday, December 21st, 2020</b> 📡📡📡 
+<b>Technology NEWS on Tuesday, December 22nd, 2020</b> 📡📡📡 
 
-👉YouTube tested a way to sync downloads across devices❗️<a href='https://techblock.club/?p=8991'> link</a>
+👉Let's Encrypt Extended for Android Phones, Users Given Protection When Browsing Sites for Three More Years❗️<a href='https://techblock.club/?p=9011'> link</a>
 
-👉🏽This sublime Razer DeathAdder gaming mouse is only $20❗️<a href='https://techblock.club/?p=8993'> link</a>
+👉🏽Lyft to offer 60 million free and discounted rides to vaccination sites❗️<a href='https://techblock.club/?p=9013'> link</a>
 
-👉🏿Zelda Voice Actress Patricia Summersett Speaks Out About Online Negativity And Criticism❗️<a href='https://techblock.club/?p=8995'> link</a>
+👉🏿Epic Games Continues "Free Fortnite" Campaign by Sending Players Free Gear❗️<a href='https://techblock.club/?p=9015'> link</a>
 
-👉Assassin's Creed Valhalla is UK Christmas no. 1 – Games charts 19 December❗️<a href='https://techblock.club/?p=8997'> link</a>
+👉Lave BeU Budget Phone With Dual Rear Cameras, Inbuilt Safety App Launched, Price Set at Rs 6888❗️<a href='https://techblock.club/?p=9017'> link</a>
 
-👉🏽Samsung Galaxy Z Flip 5G Getting Stable Android 11 With One UI 3.0❗️<a href='https://techblock.club/?p=8999'> link</a>
+👉🏽PlayStation Holiday Sale Discounts Black Ops: Cold War, AC Valhalla, Godfall, and More❗️<a href='https://techblock.club/?p=9019'> link</a>
 
-👉🏿iPhone 12 was the best-selling 5G smartphone in October❗️<a href='https://techblock.club/?p=9001'> link</a>
+👉🏿'Apex Legends' Fight Night Event Trailer Leak Reveals New Skins❗️<a href='https://techblock.club/?p=9021'> link</a>
 
-👉GPD Win 3 Handheld Gaming PC Priced From $799 With Tiger Lake, 16GB RAM And 1TB SSD❗️<a href='https://techblock.club/?p=9003'> link</a>
+👉Samsung Galaxy Chromebook 2 just leaked — and it looks stunning❗️<a href='https://techblock.club/?p=9023'> link</a>
 
-👉🏽Stardew Valley' 1.5 Will Have a New Farm Type and Advanced Game Options Menu❗️<a href='https://techblock.club/?p=9005'> link</a>
+👉🏽Resident Evil 2 Mobile Android Latest Version Game Free Download For Free❗️<a href='https://techblock.club/?p=9025'> link</a>
 
-👉🏿Cyberpunk 2077: How to get Johnny Silverhand's gun and Porsche 911 car❗️<a href='https://techblock.club/?p=9007'> link</a>
+👉🏿AH Awards: Best Smartwatch – Samsung Galaxy Watch 3❗️<a href='https://techblock.club/?p=9027'> link</a>
 
