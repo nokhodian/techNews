@@ -1,20 +1,20 @@
-<b>Technology NEWS on Tuesday, December 22nd, 2020</b> 📡📡📡 
+<b>Technology NEWS on Wednesday, December 23rd, 2020</b> 📡📡📡 
 
-👉Let's Encrypt Extended for Android Phones, Users Given Protection When Browsing Sites for Three More Years❗️<a href='https://techblock.club/?p=9011'> link</a>
+👉GTA Online and Red Dead Online are handing out a few free in-game gifts over the holiday❗️<a href='https://techblock.club/?p=9031'> link</a>
 
-👉🏽Lyft to offer 60 million free and discounted rides to vaccination sites❗️<a href='https://techblock.club/?p=9013'> link</a>
+👉🏽How to dive in Super Meat Boy Forever❗️<a href='https://techblock.club/?p=9033'> link</a>
 
-👉🏿Epic Games Continues "Free Fortnite" Campaign by Sending Players Free Gear❗️<a href='https://techblock.club/?p=9015'> link</a>
+👉🏿Genshin Impact Update 1.2 Adds New Characters❗️<a href='https://techblock.club/?p=9035'> link</a>
 
-👉Lave BeU Budget Phone With Dual Rear Cameras, Inbuilt Safety App Launched, Price Set at Rs 6888❗️<a href='https://techblock.club/?p=9017'> link</a>
+👉Streamers playing PUBG Mobile KR in India can be penalized: MeitY❗️<a href='https://techblock.club/?p=9037'> link</a>
 
-👉🏽PlayStation Holiday Sale Discounts Black Ops: Cold War, AC Valhalla, Godfall, and More❗️<a href='https://techblock.club/?p=9019'> link</a>
+👉🏽1999 Neo Geo Fighter Fatal Fury: First Contact Has Just Surprise-Launched On Switch❗️<a href='https://techblock.club/?p=9039'> link</a>
 
-👉🏿'Apex Legends' Fight Night Event Trailer Leak Reveals New Skins❗️<a href='https://techblock.club/?p=9021'> link</a>
+👉🏿Deals: Christmas Week Sales Include Lowest-Ever Prices on M1 MacBook Pro, iMac, and More❗️<a href='https://techblock.club/?p=9041'> link</a>
 
-👉Samsung Galaxy Chromebook 2 just leaked — and it looks stunning❗️<a href='https://techblock.club/?p=9023'> link</a>
+👉KFC Launches Console With Built-In Chicken Chamber, Offers Engineering Tips to Sony and Microsoft❗️<a href='https://techblock.club/?p=9043'> link</a>
 
-👉🏽Resident Evil 2 Mobile Android Latest Version Game Free Download For Free❗️<a href='https://techblock.club/?p=9025'> link</a>
+👉🏽Xiaomi Mi 11's Storage Options and Prices Leaked Ahead of December 28 Launch❗️<a href='https://techblock.club/?p=9045'> link</a>
 
-👉🏿AH Awards: Best Smartwatch – Samsung Galaxy Watch 3❗️<a href='https://techblock.club/?p=9027'> link</a>
+👉🏿It sure looks like the Galaxy S21 Ultra is getting S Pen support❗️<a href='https://techblock.club/?p=9047'> link</a>
 
