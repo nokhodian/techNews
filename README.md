@@ -1,20 +1,20 @@
-<b>Technology NEWS on Wednesday, December 23rd, 2020</b> 📡📡📡 
+<b>Technology NEWS on Thursday, December 24th, 2020</b> 📡📡📡 
 
-👉GTA Online and Red Dead Online are handing out a few free in-game gifts over the holiday❗️<a href='https://techblock.club/?p=9031'> link</a>
+👉Samsung Galaxy Fold 3 and Z Flip rumor round-up❗️<a href='https://techblock.club/?p=9051'> link</a>
 
-👉🏽How to dive in Super Meat Boy Forever❗️<a href='https://techblock.club/?p=9033'> link</a>
+👉🏽Animal Crossing: New Horizons' Toy Day Is Here❗️<a href='https://techblock.club/?p=9053'> link</a>
 
-👉🏿Genshin Impact Update 1.2 Adds New Characters❗️<a href='https://techblock.club/?p=9035'> link</a>
+👉🏿iPhone 12 owners beware: Your 5G speeds might be slower than 4G❗️<a href='https://techblock.club/?p=9055'> link</a>
 
-👉Streamers playing PUBG Mobile KR in India can be penalized: MeitY❗️<a href='https://techblock.club/?p=9037'> link</a>
+👉Warframe developers Digital Extremes acquired by Tencent❗️<a href='https://techblock.club/?p=9057'> link</a>
 
-👉🏽1999 Neo Geo Fighter Fatal Fury: First Contact Has Just Surprise-Launched On Switch❗️<a href='https://techblock.club/?p=9039'> link</a>
+👉🏽Breath Of The Wild's Prototype (& Playable Fan Game) Explained❗️<a href='https://techblock.club/?p=9059'> link</a>
 
-👉🏿Deals: Christmas Week Sales Include Lowest-Ever Prices on M1 MacBook Pro, iMac, and More❗️<a href='https://techblock.club/?p=9041'> link</a>
+👉🏿Christmas 2020: Devices to gift your loved ones this holiday season❗️<a href='https://techblock.club/?p=9061'> link</a>
 
-👉KFC Launches Console With Built-In Chicken Chamber, Offers Engineering Tips to Sony and Microsoft❗️<a href='https://techblock.club/?p=9043'> link</a>
+👉Amazon Echo Frames review: listen to these specs❗️<a href='https://techblock.club/?p=9063'> link</a>
 
-👉🏽Xiaomi Mi 11's Storage Options and Prices Leaked Ahead of December 28 Launch❗️<a href='https://techblock.club/?p=9045'> link</a>
+👉🏽Fire Tablet vs. Kindle❗️<a href='https://techblock.club/?p=9065'> link</a>
 
-👉🏿It sure looks like the Galaxy S21 Ultra is getting S Pen support❗️<a href='https://techblock.club/?p=9047'> link</a>
+👉🏿KFC launches game console that keeps your chicken warm❗️<a href='https://techblock.club/?p=9067'> link</a>
 
