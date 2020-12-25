@@ -1,20 +1,20 @@
-<b>Technology NEWS on Thursday, December 24th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Friday, December 25th, 2020</b> 📡📡📡 
 
-👉Samsung Galaxy Fold 3 and Z Flip rumor round-up❗️<a href='https://techblock.club/?p=9051'> link</a>
+👉Got a new camera? Here are 5 quick ways to take great photos with your kit lens❗️<a href='https://techblock.club/?p=9071'> link</a>
 
-👉🏽Animal Crossing: New Horizons' Toy Day Is Here❗️<a href='https://techblock.club/?p=9053'> link</a>
+👉🏽10 great games from 2020 for your new Xbox❗️<a href='https://techblock.club/?p=9073'> link</a>
 
-👉🏿iPhone 12 owners beware: Your 5G speeds might be slower than 4G❗️<a href='https://techblock.club/?p=9055'> link</a>
+👉🏿Great accessories for your new Apple Watch❗️<a href='https://techblock.club/?p=9075'> link</a>
 
-👉Warframe developers Digital Extremes acquired by Tencent❗️<a href='https://techblock.club/?p=9057'> link</a>
+👉Gal*Gun Returns Xbox One Version Canceled After “Productive Discussion” with Microsoft❗️<a href='https://techblock.club/?p=9077'> link</a>
 
-👉🏽Breath Of The Wild's Prototype (& Playable Fan Game) Explained❗️<a href='https://techblock.club/?p=9059'> link</a>
+👉🏽Best PC Simulation Games 2020❗️<a href='https://techblock.club/?p=9079'> link</a>
 
-👉🏿Christmas 2020: Devices to gift your loved ones this holiday season❗️<a href='https://techblock.club/?p=9061'> link</a>
+👉🏿PC component shortages will last until 2022, analysts predict❗️<a href='https://techblock.club/?p=9081'> link</a>
 
-👉Amazon Echo Frames review: listen to these specs❗️<a href='https://techblock.club/?p=9063'> link</a>
+👉New Mac for Christmas? Here are some of the best apps to download❗️<a href='https://techblock.club/?p=9083'> link</a>
 
-👉🏽Fire Tablet vs. Kindle❗️<a href='https://techblock.club/?p=9065'> link</a>
+👉🏽Man Wraps Lamborghini❗️<a href='https://techblock.club/?p=9085'> link</a>
 
-👉🏿KFC launches game console that keeps your chicken warm❗️<a href='https://techblock.club/?p=9067'> link</a>
+👉🏿9 great games from 2020 for your new PlayStation 5❗️<a href='https://techblock.club/?p=9087'> link</a>
 
