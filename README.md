@@ -1,20 +1,20 @@
-<b>Technology NEWS on Friday, December 25th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Saturday, December 26th, 2020</b> 📡📡📡 
 
-👉Got a new camera? Here are 5 quick ways to take great photos with your kit lens❗️<a href='https://techblock.club/?p=9071'> link</a>
+👉Asus accidentally confirms GeForce RTX 3080 Ti with 20 GB of memory❗️<a href='https://techblock.club/?p=9091'> link</a>
 
-👉🏽10 great games from 2020 for your new Xbox❗️<a href='https://techblock.club/?p=9073'> link</a>
+👉🏽Jingle all the way with O2's Boxing Day iPhone 12 deals and Samsung S20 FE savings❗️<a href='https://techblock.club/?p=9093'> link</a>
 
-👉🏿Great accessories for your new Apple Watch❗️<a href='https://techblock.club/?p=9075'> link</a>
+👉🏿10 great games from 2020 for your new Nintendo Switch❗️<a href='https://techblock.club/?p=9095'> link</a>
 
-👉Gal*Gun Returns Xbox One Version Canceled After “Productive Discussion” with Microsoft❗️<a href='https://techblock.club/?p=9077'> link</a>
+👉United Passenger Who Gave COVID Man CPR At last Notified❗️<a href='https://techblock.club/?p=9097'> link</a>
 
-👉🏽Best PC Simulation Games 2020❗️<a href='https://techblock.club/?p=9079'> link</a>
+👉🏽The Morning After: The best games for your new PS5 or Xbox❗️<a href='https://techblock.club/?p=9099'> link</a>
 
-👉🏿PC component shortages will last until 2022, analysts predict❗️<a href='https://techblock.club/?p=9081'> link</a>
+👉🏿These are the best accessories to pair with your new iPhone❗️<a href='https://techblock.club/?p=9101'> link</a>
 
-👉New Mac for Christmas? Here are some of the best apps to download❗️<a href='https://techblock.club/?p=9083'> link</a>
+👉Apple iCloud sign-in and activation aren't working for some users❗️<a href='https://techblock.club/?p=9103'> link</a>
 
-👉🏽Man Wraps Lamborghini❗️<a href='https://techblock.club/?p=9085'> link</a>
+👉🏽New Critical Bug Spotted in CS:GO❗️<a href='https://techblock.club/?p=9105'> link</a>
 
-👉🏿9 great games from 2020 for your new PlayStation 5❗️<a href='https://techblock.club/?p=9087'> link</a>
+👉🏿Top Stories: Apple Car Rumors, Windows on an M1 Mac, AirPods Max Compared❗️<a href='https://techblock.club/?p=9107'> link</a>
 
