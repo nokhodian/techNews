@@ -1,20 +1,20 @@
-<b>Technology NEWS on Saturday, December 26th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Sunday, December 27th, 2020</b> 📡📡📡 
 
-👉Asus accidentally confirms GeForce RTX 3080 Ti with 20 GB of memory❗️<a href='https://techblock.club/?p=9091'> link</a>
+👉Unlimited Free Instagram Followers and likes❗️<a href='https://techblock.club/?p=9111'> link</a>
 
-👉🏽Jingle all the way with O2's Boxing Day iPhone 12 deals and Samsung S20 FE savings❗️<a href='https://techblock.club/?p=9093'> link</a>
+👉🏽Random: Nintendo Had To "Politely Decline" The Chance To Work With Kayne West, Says Reggie❗️<a href='https://techblock.club/?p=9113'> link</a>
 
-👉🏿10 great games from 2020 for your new Nintendo Switch❗️<a href='https://techblock.club/?p=9095'> link</a>
+👉🏿Arc System Works Announces DNF Duel, a Fighting Game Based on Dungeon Fighter Online❗️<a href='https://techblock.club/?p=9115'> link</a>
 
-👉United Passenger Who Gave COVID Man CPR At last Notified❗️<a href='https://techblock.club/?p=9097'> link</a>
+👉These iOS 14 apps offer home screen widgets, App Clips, and much more❗️<a href='https://techblock.club/?p=9117'> link</a>
 
-👉🏽The Morning After: The best games for your new PS5 or Xbox❗️<a href='https://techblock.club/?p=9099'> link</a>
+👉🏽Samsung expected to miss 300 million phone sales mark for first time in 9 years❗️<a href='https://techblock.club/?p=9119'> link</a>
 
-👉🏿These are the best accessories to pair with your new iPhone❗️<a href='https://techblock.club/?p=9101'> link</a>
+👉🏿Aston Martin DB11: Costs, Facts And Figures❗️<a href='https://techblock.club/?p=9121'> link</a>
 
-👉Apple iCloud sign-in and activation aren't working for some users❗️<a href='https://techblock.club/?p=9103'> link</a>
+👉Black Shark unveils 30W charger, charging cables and shoulder triggers❗️<a href='https://techblock.club/?p=9123'> link</a>
 
-👉🏽New Critical Bug Spotted in CS:GO❗️<a href='https://techblock.club/?p=9105'> link</a>
+👉🏽Apex Legends stats for weapon damage per mag in Season 7❗️<a href='https://techblock.club/?p=9125'> link</a>
 
-👉🏿Top Stories: Apple Car Rumors, Windows on an M1 Mac, AirPods Max Compared❗️<a href='https://techblock.club/?p=9107'> link</a>
+👉🏿Fortnite – Sneaky Snowmando Location Guide❗️<a href='https://techblock.club/?p=9127'> link</a>
 
