@@ -1,20 +1,20 @@
-<b>Technology NEWS on Sunday, December 27th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Monday, December 28th, 2020</b> 📡📡📡 
 
-👉Unlimited Free Instagram Followers and likes❗️<a href='https://techblock.club/?p=9111'> link</a>
+👉Cyberpunk 2077 EZ Optimizer: Check out EZ Optimizer, the one-click FPS fix tool for Cyberpunk 2077❗️<a href='https://techblock.club/?p=9131'> link</a>
 
-👉🏽Random: Nintendo Had To "Politely Decline" The Chance To Work With Kayne West, Says Reggie❗️<a href='https://techblock.club/?p=9113'> link</a>
+👉🏽Microsoft targets M1 MacBooks with modular Surface design❗️<a href='https://techblock.club/?p=9133'> link</a>
 
-👉🏿Arc System Works Announces DNF Duel, a Fighting Game Based on Dungeon Fighter Online❗️<a href='https://techblock.club/?p=9115'> link</a>
+👉🏿The Elder Scrolls Blades iOS/APK Version Full Game Free Download❗️<a href='https://techblock.club/?p=9135'> link</a>
 
-👉These iOS 14 apps offer home screen widgets, App Clips, and much more❗️<a href='https://techblock.club/?p=9117'> link</a>
+👉AH Reader's Choice Awards: Best Smartphone Of 2020 – Samsung Galaxy Note 20 Ultra❗️<a href='https://techblock.club/?p=9137'> link</a>
 
-👉🏽Samsung expected to miss 300 million phone sales mark for first time in 9 years❗️<a href='https://techblock.club/?p=9119'> link</a>
+👉🏽Top 10 Best Soundbars❗️<a href='https://techblock.club/?p=9139'> link</a>
 
-👉🏿Aston Martin DB11: Costs, Facts And Figures❗️<a href='https://techblock.club/?p=9121'> link</a>
+👉🏿Original StarCraft Gets Remake (Inside StarCraft 2)❗️<a href='https://techblock.club/?p=9141'> link</a>
 
-👉Black Shark unveils 30W charger, charging cables and shoulder triggers❗️<a href='https://techblock.club/?p=9123'> link</a>
+👉LG Begins Rolling Out AirPlay 2 and HomeKit to 2018 Smart TVs❗️<a href='https://techblock.club/?p=9143'> link</a>
 
-👉🏽Apex Legends stats for weapon damage per mag in Season 7❗️<a href='https://techblock.club/?p=9125'> link</a>
+👉🏽A Ferrari F8 Tributo Has to Cheat to Beat Ken Block's Hoonicorn❗️<a href='https://techblock.club/?p=9145'> link</a>
 
-👉🏿Fortnite – Sneaky Snowmando Location Guide❗️<a href='https://techblock.club/?p=9127'> link</a>
+👉🏿VIZIO's 65-inch 4K AirPlay 2 TV packs Dolby Vision, more at $548 (Save $150)❗️<a href='https://techblock.club/?p=9147'> link</a>
 
