@@ -1,20 +1,20 @@
-<b>Technology NEWS on Tuesday, December 29th, 2020</b> 📡📡📡 
+<b>Technology NEWS on Wednesday, December 30th, 2020</b> 📡📡📡 
 
-👉How To Get The Most Out Of Xbox Game Pass❗️<a href='https://techblock.club/?p=9151'> link</a>
+👉Nintendo Switch Online members can play Crash Team Racing for free❗️<a href='https://techblock.club/?p=9171'> link</a>
 
-👉🏽Cyberpunk 2077 Class Action Lawsuit Is Happening, CDPR Will Defend Itself❗️<a href='https://techblock.club/?p=9153'> link</a>
+👉🏽What Genshin Impact's Most Popular Weapons To Forge Are❗️<a href='https://techblock.club/?p=9173'> link</a>
 
-👉🏿Nintendo and Starlight start rolling out Switch Stations to US hospitals❗️<a href='https://techblock.club/?p=9155'> link</a>
+👉🏿Genshin Impact Announces Further Changes to Fan-Favorite Character❗️<a href='https://techblock.club/?p=9175'> link</a>
 
-👉OnePlus 9 prototype leak reveals design — and it just sold for $6000❗️<a href='https://techblock.club/?p=9157'> link</a>
+👉NieR: Automata Creator Yoko Taro Has Two Games in Development❗️<a href='https://techblock.club/?p=9177'> link</a>
 
-👉🏽Assassin's Creed Valhalla: How to complete The Devout Troll World Event❗️<a href='https://techblock.club/?p=9159'> link</a>
+👉🏽The D20 Beat: My critical hits of 2020❗️<a href='https://techblock.club/?p=9179'> link</a>
 
-👉🏿Top 5 Instagram features that were launched in 2020❗️<a href='https://techblock.club/?p=9161'> link</a>
+👉🏿Fahey's Top 10 Games Of 2020❗️<a href='https://techblock.club/?p=9181'> link</a>
 
-👉No, Microsoft did not acquire Sony❗️<a href='https://techblock.club/?p=9163'> link</a>
+👉Halo Infinite: Arbiter voice actor teases potential involvement❗️<a href='https://techblock.club/?p=9183'> link</a>
 
-👉🏽Dr Disrespect Has An Idea to Improve the Warzone Gulag❗️<a href='https://techblock.club/?p=9165'> link</a>
+👉🏽My Time at Sandrock Hits 100k Wishlists, Adds Makeup Customization❗️<a href='https://techblock.club/?p=9185'> link</a>
 
-👉🏿Security camera installation: 8 tips from the pros❗️<a href='https://techblock.club/?p=9167'> link</a>
+👉🏿The LEGO NES Nintendo Entertainment System Set is Back in Stock With a Free Bonus❗️<a href='https://techblock.club/?p=9187'> link</a>
 
