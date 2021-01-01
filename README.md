@@ -1,20 +1,20 @@
-<b>Technology NEWS on Thursday, December 31st, 2020</b> 📡📡📡 
+<b>Technology NEWS on Friday, January 1st, 2021</b> 📡📡📡 
 
-👉Xiaomi teases Mi 10i more, new 108-megapixel camera coming for Indian model❗️<a href='https://techblock.club/?p=9191'> link</a>
+👉Move over, Hollywood! China overtook US as world's biggest movie box office in 2020, set to keep title PERMANENTLY❗️<a href='https://techblock.club/?p=9211'> link</a>
 
-👉🏽These five patents offer hints about what an Apple car could look like❗️<a href='https://techblock.club/?p=9193'> link</a>
+👉🏽Amazon's big sale on Apple headphones is the perfect way to start 2021❗️<a href='https://techblock.club/?p=9213'> link</a>
 
-👉🏿Get £100 in FREE BETS with new Betfair special offer❗️<a href='https://techblock.club/?p=9195'> link</a>
+👉🏿Cool fitness gadgets and accessories for your home gym❗️<a href='https://techblock.club/?p=9215'> link</a>
 
-👉ANNO: Mutationem Delayed❗️<a href='https://techblock.club/?p=9197'> link</a>
+👉Intel takes back the single-core performance crown back with the Core i9 – 11900K❗️<a href='https://techblock.club/?p=9217'> link</a>
 
-👉🏽How Did Jason Derulo And His Girlfriend Jena Frumes Meet?❗️<a href='https://techblock.club/?p=9199'> link</a>
+👉🏽New video footage gives us an idea of what the elusive Yoshi ride is at Super Nintendo World❗️<a href='https://techblock.club/?p=9219'> link</a>
 
-👉🏿Animal Crossing and Pandemic Parenting❗️<a href='https://techblock.club/?p=9201'> link</a>
+👉🏿We're well past the point where Apple should have multi-user support on the iPad❗️<a href='https://techblock.club/?p=9221'> link</a>
 
-👉Video: Footage Of Yoshi's Ride At Super Nintendo World Surfaces Online❗️<a href='https://techblock.club/?p=9203'> link</a>
+👉GTA Online is Inviting You to a Treasure Hunt This Week❗️<a href='https://techblock.club/?p=9223'> link</a>
 
-👉🏽An ode to Adobe Flash, and how it saved my future❗️<a href='https://techblock.club/?p=9205'> link</a>
+👉🏽PS5 and PS4: PlayStation Wishes Everyone 2021 Happy With A Celebratory Video❗️<a href='https://techblock.club/?p=9225'> link</a>
 
-👉🏿Fate/EXTRA Record Remake Gets New Trailer Revealing Cute Tamamo-no-Mae❗️<a href='https://techblock.club/?p=9207'> link</a>
+👉🏿How to Use the New Chrome Actions to Boost Your Browser Productivity❗️<a href='https://techblock.club/?p=9227'> link</a>
 
