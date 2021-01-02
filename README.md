@@ -1,20 +1,20 @@
-<b>Technology NEWS on Friday, January 1st, 2021</b> 📡📡📡 
+<b>Technology NEWS on Saturday, January 2nd, 2021</b> 📡📡📡 
 
-👉Move over, Hollywood! China overtook US as world's biggest movie box office in 2020, set to keep title PERMANENTLY❗️<a href='https://techblock.club/?p=9211'> link</a>
+👉'Genshin Impact' Is Understanding It Gets Better The More It Gives Away For Free❗️<a href='https://techblock.club/?p=9231'> link</a>
 
-👉🏽Amazon's big sale on Apple headphones is the perfect way to start 2021❗️<a href='https://techblock.club/?p=9213'> link</a>
+👉🏽How to choose the best gaming mouse❗️<a href='https://techblock.club/?p=9233'> link</a>
 
-👉🏿Cool fitness gadgets and accessories for your home gym❗️<a href='https://techblock.club/?p=9215'> link</a>
+👉🏿How to save WhatsApp Status of your friends❗️<a href='https://techblock.club/?p=9235'> link</a>
 
-👉Intel takes back the single-core performance crown back with the Core i9 – 11900K❗️<a href='https://techblock.club/?p=9217'> link</a>
+👉Here's What God of War Looks Like in First-Person View❗️<a href='https://techblock.club/?p=9237'> link</a>
 
-👉🏽New video footage gives us an idea of what the elusive Yoshi ride is at Super Nintendo World❗️<a href='https://techblock.club/?p=9219'> link</a>
+👉🏽Minecraft Speedrunning Team Rejects Dream's Cheating Report❗️<a href='https://techblock.club/?p=9239'> link</a>
 
-👉🏿We're well past the point where Apple should have multi-user support on the iPad❗️<a href='https://techblock.club/?p=9221'> link</a>
+👉🏿Hitman III Opening Mission Dubai Gameplay Footage Released❗️<a href='https://techblock.club/?p=9241'> link</a>
 
-👉GTA Online is Inviting You to a Treasure Hunt This Week❗️<a href='https://techblock.club/?p=9223'> link</a>
+👉Awesome Games Done Quick 2021 commences this weekend❗️<a href='https://techblock.club/?p=9243'> link</a>
 
-👉🏽PS5 and PS4: PlayStation Wishes Everyone 2021 Happy With A Celebratory Video❗️<a href='https://techblock.club/?p=9225'> link</a>
+👉🏽Super Smash Bros: How to Play as Sephiroth and Win❗️<a href='https://techblock.club/?p=9245'> link</a>
 
-👉🏿How to Use the New Chrome Actions to Boost Your Browser Productivity❗️<a href='https://techblock.club/?p=9227'> link</a>
+👉🏿AirPods Max review: Apple's $549 headphones offer big sound and bugs❗️<a href='https://techblock.club/?p=9247'> link</a>
 
