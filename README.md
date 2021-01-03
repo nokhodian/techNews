@@ -1,20 +1,20 @@
-<b>Technology NEWS on Saturday, January 2nd, 2021</b> 📡📡📡 
+<b>Technology NEWS on Sunday, January 3rd, 2021</b> 📡📡📡 
 
-👉'Genshin Impact' Is Understanding It Gets Better The More It Gives Away For Free❗️<a href='https://techblock.club/?p=9231'> link</a>
+👉Serious Sam 4 PC Game Download Full Version❗️<a href='https://techblock.club/?p=9251'> link</a>
 
-👉🏽How to choose the best gaming mouse❗️<a href='https://techblock.club/?p=9233'> link</a>
+👉🏽Nvidia in 2021: Ampere's continued domination❗️<a href='https://techblock.club/?p=9253'> link</a>
 
-👉🏿How to save WhatsApp Status of your friends❗️<a href='https://techblock.club/?p=9235'> link</a>
+👉🏿Sense: A Cyberpunk Ghost Story Developer and Publisher 'Categorically Refuse' to Censor Game❗️<a href='https://techblock.club/?p=9255'> link</a>
 
-👉Here's What God of War Looks Like in First-Person View❗️<a href='https://techblock.club/?p=9237'> link</a>
+👉Guilty Gear Strive Releases The New Anji Mito Trailer❗️<a href='https://techblock.club/?p=9257'> link</a>
 
-👉🏽Minecraft Speedrunning Team Rejects Dream's Cheating Report❗️<a href='https://techblock.club/?p=9239'> link</a>
+👉🏽'GTA 6' Update: Paradise Island and Map Leak, Rumored 2023 Release Date?❗️<a href='https://techblock.club/?p=9259'> link</a>
 
-👉🏿Hitman III Opening Mission Dubai Gameplay Footage Released❗️<a href='https://techblock.club/?p=9241'> link</a>
+👉🏿After threatening removal, Apple says macOS utility Amphetamine can stay on the App Store❗️<a href='https://techblock.club/?p=9261'> link</a>
 
-👉Awesome Games Done Quick 2021 commences this weekend❗️<a href='https://techblock.club/?p=9243'> link</a>
+👉How you can get Google Pixel's camera features on your Android phone❗️<a href='https://techblock.club/?p=9263'> link</a>
 
-👉🏽Super Smash Bros: How to Play as Sephiroth and Win❗️<a href='https://techblock.club/?p=9245'> link</a>
+👉🏽Huawei next flagship chipset Kirin 9000 in Two Variations❗️<a href='https://techblock.club/?p=9265'> link</a>
 
-👉🏿AirPods Max review: Apple's $549 headphones offer big sound and bugs❗️<a href='https://techblock.club/?p=9247'> link</a>
+👉🏿The new era of LCK is here: a visual journey into the new broadcast and LoL Park❗️<a href='https://techblock.club/?p=9267'> link</a>
 
