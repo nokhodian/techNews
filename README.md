@@ -1,20 +1,20 @@
-<b>Technology NEWS on Sunday, January 3rd, 2021</b> 📡📡📡 
+<b>Technology NEWS on Monday, January 4th, 2021</b> 📡📡📡 
 
-👉Serious Sam 4 PC Game Download Full Version❗️<a href='https://techblock.club/?p=9251'> link</a>
+👉Slack starts 2021 with a massive outage❗️<a href='https://techblock.club/?p=9271'> link</a>
 
-👉🏽Nvidia in 2021: Ampere's continued domination❗️<a href='https://techblock.club/?p=9253'> link</a>
+👉🏽Apple is reportedly testing two folding iPhones❗️<a href='https://techblock.club/?p=9273'> link</a>
 
-👉🏿Sense: A Cyberpunk Ghost Story Developer and Publisher 'Categorically Refuse' to Censor Game❗️<a href='https://techblock.club/?p=9255'> link</a>
+👉🏿Zelda: Breath of the Wild NPCs Are Actually Just Advanced Miis❗️<a href='https://techblock.club/?p=9275'> link</a>
 
-👉Guilty Gear Strive Releases The New Anji Mito Trailer❗️<a href='https://techblock.club/?p=9257'> link</a>
+👉Microsoft to replace its many mail variants with 'One Outlook'❗️<a href='https://techblock.club/?p=9277'> link</a>
 
-👉🏽'GTA 6' Update: Paradise Island and Map Leak, Rumored 2023 Release Date?❗️<a href='https://techblock.club/?p=9259'> link</a>
+👉🏽SpongeBob SquarePants: Battle for Bikini Bottom - Rehydrated coming to mobile❗️<a href='https://techblock.club/?p=9279'> link</a>
 
-👉🏿After threatening removal, Apple says macOS utility Amphetamine can stay on the App Store❗️<a href='https://techblock.club/?p=9261'> link</a>
+👉🏿Samsung's Galaxy S21 will debut at Jan. 14 Unpacked event❗️<a href='https://techblock.club/?p=9281'> link</a>
 
-👉How you can get Google Pixel's camera features on your Android phone❗️<a href='https://techblock.club/?p=9263'> link</a>
+👉Is the PS5 too big to fit your new TV unit? IKEA will help you find out❗️<a href='https://techblock.club/?p=9283'> link</a>
 
-👉🏽Huawei next flagship chipset Kirin 9000 in Two Variations❗️<a href='https://techblock.club/?p=9265'> link</a>
+👉🏽Google and Alphabet workers plan to unionize to live up to 'Don't Be Evil' motto❗️<a href='https://techblock.club/?p=9285'> link</a>
 
-👉🏿The new era of LCK is here: a visual journey into the new broadcast and LoL Park❗️<a href='https://techblock.club/?p=9267'> link</a>
+👉🏿Valve Reveals The Top-Selling Games Of 2020 On Steam❗️<a href='https://techblock.club/?p=9287'> link</a>
 
