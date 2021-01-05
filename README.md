@@ -1,20 +1,20 @@
-<b>Technology NEWS on Monday, January 4th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Tuesday, January 5th, 2021</b> 📡📡📡 
 
-👉Slack starts 2021 with a massive outage❗️<a href='https://techblock.club/?p=9271'> link</a>
+👉The Pixel 5's super loud system sounds bug has been fixed❗️<a href='https://techblock.club/?p=9291'> link</a>
 
-👉🏽Apple is reportedly testing two folding iPhones❗️<a href='https://techblock.club/?p=9273'> link</a>
+👉🏽Microsoft Surface Pro 8 looks closer than ever — what we just learned❗️<a href='https://techblock.club/?p=9293'> link</a>
 
-👉🏿Zelda: Breath of the Wild NPCs Are Actually Just Advanced Miis❗️<a href='https://techblock.club/?p=9275'> link</a>
+👉🏿Arlo cuts the cable with the Essential Doorbell Wire-Free❗️<a href='https://techblock.club/?p=9295'> link</a>
 
-👉Microsoft to replace its many mail variants with 'One Outlook'❗️<a href='https://techblock.club/?p=9277'> link</a>
+👉Microsoft Flight Simulator real-time snow update serves up a winter wonderland❗️<a href='https://techblock.club/?p=9297'> link</a>
 
-👉🏽SpongeBob SquarePants: Battle for Bikini Bottom - Rehydrated coming to mobile❗️<a href='https://techblock.club/?p=9279'> link</a>
+👉🏽FAU:G launching on Jan 26: Here's everything you need to know type❗️<a href='https://techblock.club/?p=9299'> link</a>
 
-👉🏿Samsung's Galaxy S21 will debut at Jan. 14 Unpacked event❗️<a href='https://techblock.club/?p=9281'> link</a>
+👉🏿How to sync your iPhone with your iPad❗️<a href='https://techblock.club/?p=9301'> link</a>
 
-👉Is the PS5 too big to fit your new TV unit? IKEA will help you find out❗️<a href='https://techblock.club/?p=9283'> link</a>
+👉Apple Reportedly Moving Into 'Second Phase' of AR Glasses Development❗️<a href='https://techblock.club/?p=9303'> link</a>
 
-👉🏽Google and Alphabet workers plan to unionize to live up to 'Don't Be Evil' motto❗️<a href='https://techblock.club/?p=9285'> link</a>
+👉🏽Steam survey reveals Nvidia's GeForce RTX 3080 in the wild❗️<a href='https://techblock.club/?p=9305'> link</a>
 
-👉🏿Valve Reveals The Top-Selling Games Of 2020 On Steam❗️<a href='https://techblock.club/?p=9287'> link</a>
+👉🏿Cryptocurrency stealer for Windows, macOS, and Linux went undetected for a year❗️<a href='https://techblock.club/?p=9307'> link</a>
 
