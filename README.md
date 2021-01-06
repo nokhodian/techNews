@@ -1,20 +1,20 @@
-<b>Technology NEWS on Tuesday, January 5th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Wednesday, January 6th, 2021</b> 📡📡📡 
 
-👉The Pixel 5's super loud system sounds bug has been fixed❗️<a href='https://techblock.club/?p=9291'> link</a>
+👉Firefox Drops Support For PWA❗️<a href='https://techblock.club/?p=9311'> link</a>
 
-👉🏽Microsoft Surface Pro 8 looks closer than ever — what we just learned❗️<a href='https://techblock.club/?p=9293'> link</a>
+👉🏽Apple Highlights Services in 2020 as App Store Sets Single-Day Spending Record on New Year's Day❗️<a href='https://techblock.club/?p=9313'> link</a>
 
-👉🏿Arlo cuts the cable with the Essential Doorbell Wire-Free❗️<a href='https://techblock.club/?p=9295'> link</a>
+👉🏿Poison Control for PS4 & Switch Gets New Trailer Showing Gameplay Aplenty❗️<a href='https://techblock.club/?p=9315'> link</a>
 
-👉Microsoft Flight Simulator real-time snow update serves up a winter wonderland❗️<a href='https://techblock.club/?p=9297'> link</a>
+👉Monster Hunter World Patch Fixes Delivery Requests Disappearing While Offline❗️<a href='https://techblock.club/?p=9317'> link</a>
 
-👉🏽FAU:G launching on Jan 26: Here's everything you need to know type❗️<a href='https://techblock.club/?p=9299'> link</a>
+👉🏽Capcom releases new video and content creation guidelines including rules for YouTube, Twitch, monetization and mods❗️<a href='https://techblock.club/?p=9319'> link</a>
 
-👉🏿How to sync your iPhone with your iPad❗️<a href='https://techblock.club/?p=9301'> link</a>
+👉🏿14-Inch and 16-Inch MacBook Pro Models Expected to Boost Apple Silicon's Market Share in Second Half of 2021❗️<a href='https://techblock.club/?p=9321'> link</a>
 
-👉Apple Reportedly Moving Into 'Second Phase' of AR Glasses Development❗️<a href='https://techblock.club/?p=9303'> link</a>
+👉Fear not, Call of Duty Warzone players, the dominance of DMR 14 is almost over❗️<a href='https://techblock.club/?p=9323'> link</a>
 
-👉🏽Steam survey reveals Nvidia's GeForce RTX 3080 in the wild❗️<a href='https://techblock.club/?p=9305'> link</a>
+👉🏽LG's new stick vacuum automatically empties dirt while it charges❗️<a href='https://techblock.club/?p=9325'> link</a>
 
-👉🏿Cryptocurrency stealer for Windows, macOS, and Linux went undetected for a year❗️<a href='https://techblock.club/?p=9307'> link</a>
+👉🏿'Destiny 2' Coup De Grace Mission Bugged, Bungie Explains a Fix❗️<a href='https://techblock.club/?p=9327'> link</a>
 
