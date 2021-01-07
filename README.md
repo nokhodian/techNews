@@ -1,20 +1,20 @@
-<b>Technology NEWS on Wednesday, January 6th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Thursday, January 7th, 2021</b> 📡📡📡 
 
-👉Firefox Drops Support For PWA❗️<a href='https://techblock.club/?p=9311'> link</a>
+👉Microsoft tried to buy Nintendo, but got laughed out of the room❗️<a href='https://techblock.club/?p=9331'> link</a>
 
-👉🏽Apple Highlights Services in 2020 as App Store Sets Single-Day Spending Record on New Year's Day❗️<a href='https://techblock.club/?p=9313'> link</a>
+👉🏽Monster Hunter Rise Preorder Guide: Price, Special Editions, Amiibo, And Demo Details❗️<a href='https://techblock.club/?p=9333'> link</a>
 
-👉🏿Poison Control for PS4 & Switch Gets New Trailer Showing Gameplay Aplenty❗️<a href='https://techblock.club/?p=9315'> link</a>
+👉🏿Fortnite Chapter 2 Season 5 Week 6 Challenges❗️<a href='https://techblock.club/?p=9335'> link</a>
 
-👉Monster Hunter World Patch Fixes Delivery Requests Disappearing While Offline❗️<a href='https://techblock.club/?p=9317'> link</a>
+👉Xbox Controllers Apparently Still Use AA Batteries Due To An Ongoing Deal With Duracell❗️<a href='https://techblock.club/?p=9337'> link</a>
 
-👉🏽Capcom releases new video and content creation guidelines including rules for YouTube, Twitch, monetization and mods❗️<a href='https://techblock.club/?p=9319'> link</a>
+👉🏽These super useful new Microsoft Teams updates are live from today❗️<a href='https://techblock.club/?p=9339'> link</a>
 
-👉🏿14-Inch and 16-Inch MacBook Pro Models Expected to Boost Apple Silicon's Market Share in Second Half of 2021❗️<a href='https://techblock.club/?p=9321'> link</a>
+👉🏿Redmi Note 10 Pro May Come with Quad Rear Cameras and 5050mAh Battery, Other Key Specs Leaked❗️<a href='https://techblock.club/?p=9341'> link</a>
 
-👉Fear not, Call of Duty Warzone players, the dominance of DMR 14 is almost over❗️<a href='https://techblock.club/?p=9323'> link</a>
+👉Hitman VR Looks Impressive in First Gameplay Showcase❗️<a href='https://techblock.club/?p=9343'> link</a>
 
-👉🏽LG's new stick vacuum automatically empties dirt while it charges❗️<a href='https://techblock.club/?p=9325'> link</a>
+👉🏽TP-Link Archer AX10 (AX1500) Wi-Fi 6 Router Review❗️<a href='https://techblock.club/?p=9345'> link</a>
 
-👉🏿'Destiny 2' Coup De Grace Mission Bugged, Bungie Explains a Fix❗️<a href='https://techblock.club/?p=9327'> link</a>
+👉🏿CES 2021: LG refreshes Gram laptop line with Intel Tiger Lake CPUs, 16-inch model❗️<a href='https://techblock.club/?p=9347'> link</a>
 
