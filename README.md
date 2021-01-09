@@ -1,20 +1,20 @@
-<b>Technology NEWS on Friday, January 8th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Saturday, January 9th, 2021</b> 📡📡📡 
 
-👉Pokemon Go made $1.92 million for Niantic in 2020❗️<a href='https://techblock.club/?p=9351'> link</a>
+👉Greatest Cyber Monday MacBook specials 2020: MacBook Air and MacBook Pro discounts❗️<a href='https://techblock.club/?p=9371'> link</a>
 
-👉🏽Asus says the 2018 ROG Phone will stay on 2018's Android Pie❗️<a href='https://techblock.club/?p=9353'> link</a>
+👉🏽Warren Buffett: Teach Your Children These 3 Things About Money❗️<a href='https://techblock.club/?p=9373'> link</a>
 
-👉🏿Oceanhorn: Chronos Dungeon brings a new adventure to Apple Arcade❗️<a href='https://techblock.club/?p=9355'> link</a>
+👉🏿PUBG Mobile India Launch Date: Section 69A of IT Act, new features, APK download link and latest updates❗️<a href='https://techblock.club/?p=9375'> link</a>
 
-👉The OnePlus Band is coming next week — what you need to know❗️<a href='https://techblock.club/?p=9357'> link</a>
+👉Did Santa bring you an Alexa? Let's put it to work❗️<a href='https://techblock.club/?p=9377'> link</a>
 
-👉🏽Apple Pay Likely to Launch in South Africa This Year❗️<a href='https://techblock.club/?p=9359'> link</a>
+👉🏽Lenovo's new and affordable 24-inch gaming monitor has a holder for your phone❗️<a href='https://techblock.club/?p=9379'> link</a>
 
-👉🏿Walking on air! Get up to $50 off the latest iPad Air at Amazon❗️<a href='https://techblock.club/?p=9361'> link</a>
+👉🏿InvoiceBerry: A Fast, and Effective Solution for Invoice Operations❗️<a href='https://techblock.club/?p=9381'> link</a>
 
-👉Monster Hunter Rise Switch Demo Now Live, Unlocks Free Item Pack In Full Game❗️<a href='https://techblock.club/?p=9363'> link</a>
+👉Killzone Website No Longer Available, Thanks Players For Their Support❗️<a href='https://techblock.club/?p=9383'> link</a>
 
-👉🏽Next Assassin's Creed Game Allegedly Seeing 2022 Release Date❗️<a href='https://techblock.club/?p=9365'> link</a>
+👉🏽Apple iPhone 12 Costs 21 Percent More Than iPhone 11: Report❗️<a href='https://techblock.club/?p=9385'> link</a>
 
-👉🏿Dying Light 2 Art Director and Writer Has Left Techland❗️<a href='https://techblock.club/?p=9367'> link</a>
+👉🏿PlayStation accounts for over 40% of TV ad spend from gaming brands in 2020❗️<a href='https://techblock.club/?p=9387'> link</a>
 
