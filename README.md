@@ -1,20 +1,20 @@
-<b>Technology NEWS on Saturday, January 9th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Sunday, January 10th, 2021</b> 📡📡📡 
 
-👉Greatest Cyber Monday MacBook specials 2020: MacBook Air and MacBook Pro discounts❗️<a href='https://techblock.club/?p=9371'> link</a>
+👉Goondu review: Cyberpunk 2077❗️<a href='https://techblock.club/?p=9391'> link</a>
 
-👉🏽Warren Buffett: Teach Your Children These 3 Things About Money❗️<a href='https://techblock.club/?p=9373'> link</a>
+👉🏽Tired of vacuuming? These top-rated robot vacs are almost 50 percent off on Amazon today❗️<a href='https://techblock.club/?p=9393'> link</a>
 
-👉🏿PUBG Mobile India Launch Date: Section 69A of IT Act, new features, APK download link and latest updates❗️<a href='https://techblock.club/?p=9375'> link</a>
+👉🏿EA Sports Examines Madden NFL 21's Latest Franchise Updates❗️<a href='https://techblock.club/?p=9395'> link</a>
 
-👉Did Santa bring you an Alexa? Let's put it to work❗️<a href='https://techblock.club/?p=9377'> link</a>
+👉Genshin Impact Offers Free Primogems for Knowledgeable Players❗️<a href='https://techblock.club/?p=9397'> link</a>
 
-👉🏽Lenovo's new and affordable 24-inch gaming monitor has a holder for your phone❗️<a href='https://techblock.club/?p=9379'> link</a>
+👉🏽Dishonored Devs Respond as Photo of Capitol Rioter With Tattoo From the Series Makes Rounds❗️<a href='https://techblock.club/?p=9399'> link</a>
 
-👉🏿InvoiceBerry: A Fast, and Effective Solution for Invoice Operations❗️<a href='https://techblock.club/?p=9381'> link</a>
+👉🏿'Call of Duty': MAC 10's 'broken' Blueprint in 'Warzone'; Devs responding to backlash❗️<a href='https://techblock.club/?p=9401'> link</a>
 
-👉Killzone Website No Longer Available, Thanks Players For Their Support❗️<a href='https://techblock.club/?p=9383'> link</a>
+👉Arthur Shivers: 20-minute HIIT workout❗️<a href='https://techblock.club/?p=9403'> link</a>
 
-👉🏽Apple iPhone 12 Costs 21 Percent More Than iPhone 11: Report❗️<a href='https://techblock.club/?p=9385'> link</a>
+👉🏽Your WhatsApp profile info, private groups are on Google search results right now❗️<a href='https://techblock.club/?p=9405'> link</a>
 
-👉🏿PlayStation accounts for over 40% of TV ad spend from gaming brands in 2020❗️<a href='https://techblock.club/?p=9387'> link</a>
+👉🏿Lenovo unveils Yoga AIO 7 with rotating screen, AMD processors❗️<a href='https://techblock.club/?p=9407'> link</a>
 
