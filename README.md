@@ -1,20 +1,20 @@
-<b>Technology NEWS on Sunday, January 10th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Monday, January 11th, 2021</b> 📡📡📡 
 
-👉Goondu review: Cyberpunk 2077❗️<a href='https://techblock.club/?p=9391'> link</a>
+👉Hisense's 2021 laser TVs promise better colors than OLED or quantum dot❗️<a href='https://techblock.club/?p=9411'> link</a>
 
-👉🏽Tired of vacuuming? These top-rated robot vacs are almost 50 percent off on Amazon today❗️<a href='https://techblock.club/?p=9393'> link</a>
+👉🏽You Can Replace Your Sonos Move Battery With This $69 Kit❗️<a href='https://techblock.club/?p=9413'> link</a>
 
-👉🏿EA Sports Examines Madden NFL 21's Latest Franchise Updates❗️<a href='https://techblock.club/?p=9395'> link</a>
+👉🏿Why does Windows 10 update so much? Part 2 of 2❗️<a href='https://techblock.club/?p=9415'> link</a>
 
-👉Genshin Impact Offers Free Primogems for Knowledgeable Players❗️<a href='https://techblock.club/?p=9397'> link</a>
+👉Finally, a doorbell for the pandemic era❗️<a href='https://techblock.club/?p=9417'> link</a>
 
-👉🏽Dishonored Devs Respond as Photo of Capitol Rioter With Tattoo From the Series Makes Rounds❗️<a href='https://techblock.club/?p=9399'> link</a>
+👉🏽Philips' new smart toothbrush adapts to your brushing style❗️<a href='https://techblock.club/?p=9419'> link</a>
 
-👉🏿'Call of Duty': MAC 10's 'broken' Blueprint in 'Warzone'; Devs responding to backlash❗️<a href='https://techblock.club/?p=9401'> link</a>
+👉🏿WD Pushes External SSD Capacity to 4TB❗️<a href='https://techblock.club/?p=9421'> link</a>
 
-👉Arthur Shivers: 20-minute HIIT workout❗️<a href='https://techblock.club/?p=9403'> link</a>
+👉LG unveils 4K UltraFine OLED Pro display, Dell reveals 40-inch 5K2K ultrawide with Thunderbolt 3❗️<a href='https://techblock.club/?p=9423'> link</a>
 
-👉🏽Your WhatsApp profile info, private groups are on Google search results right now❗️<a href='https://techblock.club/?p=9405'> link</a>
+👉🏽Loop Hero is the year's first slam dunk❗️<a href='https://techblock.club/?p=9425'> link</a>
 
-👉🏿Lenovo unveils Yoga AIO 7 with rotating screen, AMD processors❗️<a href='https://techblock.club/?p=9407'> link</a>
+👉🏿Windows 10 Game Mode On by Default: How to Disable It❗️<a href='https://techblock.club/?p=9427'> link</a>
 
