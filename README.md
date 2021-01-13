@@ -1,20 +1,20 @@
-<b>Technology NEWS on Tuesday, January 12th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Wednesday, January 13th, 2021</b> 📡📡📡 
 
-👉Black Ops Cold War Zombies Ammo Mods Explained: How to Get, Upgrade Them, & What They Do❗️<a href='https://techblock.club/?p=9431'> link</a>
+👉Apple announces new racial equity initiative projects, supporting HBCUs, Detroit students, Black entrepreneurs❗️<a href='https://techblock.club/?p=9451'> link</a>
 
-👉🏽Final Fantasy 14 – Patch 5.41 Adds New Ishgardian Restoration Quests❗️<a href='https://techblock.club/?p=9433'> link</a>
+👉🏽Is AppleCare+ worth it for iPad, iPad Pro, or iPad Air❗️<a href='https://techblock.club/?p=9453'> link</a>
 
-👉🏿Samsung Galaxy S21's juiciest rumors and leaks: Everything we know so far❗️<a href='https://techblock.club/?p=9435'> link</a>
+👉🏿More Galaxy S21 details leak ahead of Samsung's Unpacked event❗️<a href='https://techblock.club/?p=9455'> link</a>
 
-👉Microsoft Is Launching a Pulse Red Xbox Wireless Controller❗️<a href='https://techblock.club/?p=9437'> link</a>
+👉The Best PS4 And PS5 Game Deals Still Available In PlayStation's Holiday Sale❗️<a href='https://techblock.club/?p=9457'> link</a>
 
-👉🏽WhatsApp Affirms User Privacy Following Backlash Over Data Sharing With Facebook❗️<a href='https://techblock.club/?p=9439'> link</a>
+👉🏽Nvidia RTX 3060 vs. 3060 Ti vs. 3070❗️<a href='https://techblock.club/?p=9459'> link</a>
 
-👉🏿Huawei nova 8 Pro King of Glory Edition announced❗️<a href='https://techblock.club/?p=9441'> link</a>
+👉🏿Cyberpunk 2077 Modders Have Restored the Game's BIGGEST Cut Feature❗️<a href='https://techblock.club/?p=9461'> link</a>
 
-👉Cybersecurity teams are struggling with burnout, but the attacks keep coming❗️<a href='https://techblock.club/?p=9443'> link</a>
+👉Fortnite Beef Boss, Remedy & Dummy Locations❗️<a href='https://techblock.club/?p=9463'> link</a>
 
-👉🏽LG's transparent OLED TVs are now even more see-through at CES 2021❗️<a href='https://techblock.club/?p=9445'> link</a>
+👉🏽Porsche Boxster 25 Years gives a modern icon a sparkly tribute❗️<a href='https://techblock.club/?p=9465'> link</a>
 
-👉🏿Dementia care: Symptoms include early loss of bladder control❗️<a href='https://techblock.club/?p=9447'> link</a>
+👉🏿Dead By Daylike Game Monstrum 2 Launches On Steam Early Access This Month❗️<a href='https://techblock.club/?p=9467'> link</a>
 
