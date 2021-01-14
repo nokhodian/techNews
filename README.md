@@ -1,20 +1,20 @@
-<b>Technology NEWS on Wednesday, January 13th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Thursday, January 14th, 2021</b> 📡📡📡 
 
-👉Apple announces new racial equity initiative projects, supporting HBCUs, Detroit students, Black entrepreneurs❗️<a href='https://techblock.club/?p=9451'> link</a>
+👉ASUS Launches The ZenBeam Latte Projector At CES 2021❗️<a href='https://techblock.club/?p=9471'> link</a>
 
-👉🏽Is AppleCare+ worth it for iPad, iPad Pro, or iPad Air❗️<a href='https://techblock.club/?p=9453'> link</a>
+👉🏽BlackBerry sells smartphone patents to Huawei❗️<a href='https://techblock.club/?p=9473'> link</a>
 
-👉🏿More Galaxy S21 details leak ahead of Samsung's Unpacked event❗️<a href='https://techblock.club/?p=9455'> link</a>
+👉🏿Puyo Puyo Tetris 2 Update Adds Sonic the Hedgehog and Much More❗️<a href='https://techblock.club/?p=9475'> link</a>
 
-👉The Best PS4 And PS5 Game Deals Still Available In PlayStation's Holiday Sale❗️<a href='https://techblock.club/?p=9457'> link</a>
+👉Personal Facebook, Instagram and LinkedIn data of 200MILLION users 'exposed online by leakers'❗️<a href='https://techblock.club/?p=9477'> link</a>
 
-👉🏽Nvidia RTX 3060 vs. 3060 Ti vs. 3070❗️<a href='https://techblock.club/?p=9459'> link</a>
+👉🏽New Galaxy S21 launches today: How to watch Samsung's Unpacked event❗️<a href='https://techblock.club/?p=9479'> link</a>
 
-👉🏿Cyberpunk 2077 Modders Have Restored the Game's BIGGEST Cut Feature❗️<a href='https://techblock.club/?p=9461'> link</a>
+👉🏿WhatsApp just revealed a big upgrade to keep you from jumping ship❗️<a href='https://techblock.club/?p=9481'> link</a>
 
-👉Fortnite Beef Boss, Remedy & Dummy Locations❗️<a href='https://techblock.club/?p=9463'> link</a>
+👉AMD CEO Lisa Su talks: Chip shortages, GPU prices, more cores, Apple M1, and tariffs❗️<a href='https://techblock.club/?p=9483'> link</a>
 
-👉🏽Porsche Boxster 25 Years gives a modern icon a sparkly tribute❗️<a href='https://techblock.club/?p=9465'> link</a>
+👉🏽Gigabyte Launches GeForce RTX 30 Series and Ryzen-Powered Gaming Laptops❗️<a href='https://techblock.club/?p=9485'> link</a>
 
-👉🏿Dead By Daylike Game Monstrum 2 Launches On Steam Early Access This Month❗️<a href='https://techblock.club/?p=9467'> link</a>
+👉🏿Much awaited Hogwarts Legacy game delayed to 2022❗️<a href='https://techblock.club/?p=9487'> link</a>
 
