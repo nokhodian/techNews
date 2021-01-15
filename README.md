@@ -1,20 +1,20 @@
-<b>Technology NEWS on Thursday, January 14th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Friday, January 15th, 2021</b> 📡📡📡 
 
-👉ASUS Launches The ZenBeam Latte Projector At CES 2021❗️<a href='https://techblock.club/?p=9471'> link</a>
+👉Nioh 2 – The Complete Edition Release Date & Features❗️<a href='https://techblock.club/?p=9491'> link</a>
 
-👉🏽BlackBerry sells smartphone patents to Huawei❗️<a href='https://techblock.club/?p=9473'> link</a>
+👉🏽Pokémon Snap's Release Date Could Confirm Diamond & Pearl Remakes❗️<a href='https://techblock.club/?p=9493'> link</a>
 
-👉🏿Puyo Puyo Tetris 2 Update Adds Sonic the Hedgehog and Much More❗️<a href='https://techblock.club/?p=9475'> link</a>
+👉🏿Bloomberg: 2021 MacBook Pro to charge faster via MagSafe, 'redesigned MacBook Air' also planned❗️<a href='https://techblock.club/?p=9495'> link</a>
 
-👉Personal Facebook, Instagram and LinkedIn data of 200MILLION users 'exposed online by leakers'❗️<a href='https://techblock.club/?p=9477'> link</a>
+👉IO has confirmed the Switch version of Hitman 3 will release this month❗️<a href='https://techblock.club/?p=9497'> link</a>
 
-👉🏽New Galaxy S21 launches today: How to watch Samsung's Unpacked event❗️<a href='https://techblock.club/?p=9479'> link</a>
+👉🏽PS5 Exclusive Returnal Equips Players With 10 Base Weapons and Over 90 Weapon Traits❗️<a href='https://techblock.club/?p=9499'> link</a>
 
-👉🏿WhatsApp just revealed a big upgrade to keep you from jumping ship❗️<a href='https://techblock.club/?p=9481'> link</a>
+👉🏿How to Download Cold War Zombies Free Trial on PS4/5, Xbox & PC❗️<a href='https://techblock.club/?p=9501'> link</a>
 
-👉AMD CEO Lisa Su talks: Chip shortages, GPU prices, more cores, Apple M1, and tariffs❗️<a href='https://techblock.club/?p=9483'> link</a>
+👉How to Get Battlefront 2 for Free on PC❗️<a href='https://techblock.club/?p=9503'> link</a>
 
-👉🏽Gigabyte Launches GeForce RTX 30 Series and Ryzen-Powered Gaming Laptops❗️<a href='https://techblock.club/?p=9485'> link</a>
+👉🏽This tiny shortcut can completely crash your Windows 10 device❗️<a href='https://techblock.club/?p=9505'> link</a>
 
-👉🏿Much awaited Hogwarts Legacy game delayed to 2022❗️<a href='https://techblock.club/?p=9487'> link</a>
+👉🏿Moving Out 'Moving In' update announced❗️<a href='https://techblock.club/?p=9507'> link</a>
 
