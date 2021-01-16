@@ -1,20 +1,20 @@
-<b>Technology NEWS on Friday, January 15th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Saturday, January 16th, 2021</b> 📡📡📡 
 
-👉Nioh 2 – The Complete Edition Release Date & Features❗️<a href='https://techblock.club/?p=9491'> link</a>
+👉What Is QNED Explained: How It Compares To QLED & OLED❗️<a href='https://techblock.club/?p=9511'> link</a>
 
-👉🏽Pokémon Snap's Release Date Could Confirm Diamond & Pearl Remakes❗️<a href='https://techblock.club/?p=9493'> link</a>
+👉🏽Curious Expedition 2 Will Be Out Of Steam Early Access By The End Of January❗️<a href='https://techblock.club/?p=9513'> link</a>
 
-👉🏿Bloomberg: 2021 MacBook Pro to charge faster via MagSafe, 'redesigned MacBook Air' also planned❗️<a href='https://techblock.club/?p=9495'> link</a>
+👉🏿From Breath of the Wild 2 to remakes: 10 predictions for The Legend of Zelda's 35th anniversary❗️<a href='https://techblock.club/?p=9515'> link</a>
 
-👉IO has confirmed the Switch version of Hitman 3 will release this month❗️<a href='https://techblock.club/?p=9497'> link</a>
+👉Immortals Fenyx Rising: 10 Facts About The DLCs We Know So Far❗️<a href='https://techblock.club/?p=9517'> link</a>
 
-👉🏽PS5 Exclusive Returnal Equips Players With 10 Base Weapons and Over 90 Weapon Traits❗️<a href='https://techblock.club/?p=9499'> link</a>
+👉🏽10 pieces of pandemic-inspired 'clean tech' that shaped CES 2021❗️<a href='https://techblock.club/?p=9519'> link</a>
 
-👉🏿How to Download Cold War Zombies Free Trial on PS4/5, Xbox & PC❗️<a href='https://techblock.club/?p=9501'> link</a>
+👉🏿Pokemon Go's Machop Community Day is Today❗️<a href='https://techblock.club/?p=9521'> link</a>
 
-👉How to Get Battlefront 2 for Free on PC❗️<a href='https://techblock.club/?p=9503'> link</a>
+👉Capcom Announces Closed Beta for Undisclosed Project to Celebrate Resident Evil's 25th Anniversary❗️<a href='https://techblock.club/?p=9523'> link</a>
 
-👉🏽This tiny shortcut can completely crash your Windows 10 device❗️<a href='https://techblock.club/?p=9505'> link</a>
+👉🏽Oppo A93 5G is company's new mid-range phone with 5G support: Price, specs❗️<a href='https://techblock.club/?p=9525'> link</a>
 
-👉🏿Moving Out 'Moving In' update announced❗️<a href='https://techblock.club/?p=9507'> link</a>
+👉🏿REC honors Caroll Shelby's legendary Mustangs with the P-51 Limited collection❗️<a href='https://techblock.club/?p=9527'> link</a>
 
