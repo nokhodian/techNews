@@ -1,20 +1,20 @@
-<b>Technology NEWS on Saturday, January 16th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Sunday, January 17th, 2021</b> 📡📡📡 
 
-👉What Is QNED Explained: How It Compares To QLED & OLED❗️<a href='https://techblock.club/?p=9511'> link</a>
+👉Intel's next-gen processors have fewer cores but cost more, according to retailers❗️<a href='https://techblock.club/?p=9531'> link</a>
 
-👉🏽Curious Expedition 2 Will Be Out Of Steam Early Access By The End Of January❗️<a href='https://techblock.club/?p=9513'> link</a>
+👉🏽Call of Duty: Mobile resets its Season count, next season to be called Season 1❗️<a href='https://techblock.club/?p=9533'> link</a>
 
-👉🏿From Breath of the Wild 2 to remakes: 10 predictions for The Legend of Zelda's 35th anniversary❗️<a href='https://techblock.club/?p=9515'> link</a>
+👉🏿Save over 50 percent on this Alexa-enabled smart light from GE❗️<a href='https://techblock.club/?p=9535'> link</a>
 
-👉Immortals Fenyx Rising: 10 Facts About The DLCs We Know So Far❗️<a href='https://techblock.club/?p=9517'> link</a>
+👉Razer's BlackWidow Elite keyboard drops to an all-time low $70 at Best Buy❗️<a href='https://techblock.club/?p=9537'> link</a>
 
-👉🏽10 pieces of pandemic-inspired 'clean tech' that shaped CES 2021❗️<a href='https://techblock.club/?p=9519'> link</a>
+👉🏽Nintendo Has Revealed More Information for Bowser's Fury in Super Mario 3D World❗️<a href='https://techblock.club/?p=9539'> link</a>
 
-👉🏿Pokemon Go's Machop Community Day is Today❗️<a href='https://techblock.club/?p=9521'> link</a>
+👉🏿About some improvements implemented after demo 1❗️<a href='https://techblock.club/?p=9541'> link</a>
 
-👉Capcom Announces Closed Beta for Undisclosed Project to Celebrate Resident Evil's 25th Anniversary❗️<a href='https://techblock.club/?p=9523'> link</a>
+👉New Vegas' releases after 7 years of development❗️<a href='https://techblock.club/?p=9543'> link</a>
 
-👉🏽Oppo A93 5G is company's new mid-range phone with 5G support: Price, specs❗️<a href='https://techblock.club/?p=9525'> link</a>
+👉🏽Hike messaging app shuts down, removed from Play Store, here's why❗️<a href='https://techblock.club/?p=9545'> link</a>
 
-👉🏿REC honors Caroll Shelby's legendary Mustangs with the P-51 Limited collection❗️<a href='https://techblock.club/?p=9527'> link</a>
+👉🏿Scott Pilgrim vs. The World: The Game - Complete Edition Is Nostalgia Held Back by More Nostalgia❗️<a href='https://techblock.club/?p=9547'> link</a>
 
