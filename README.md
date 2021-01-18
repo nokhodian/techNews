@@ -1,20 +1,20 @@
-<b>Technology NEWS on Sunday, January 17th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Monday, January 18th, 2021</b> 📡📡📡 
 
-👉Intel's next-gen processors have fewer cores but cost more, according to retailers❗️<a href='https://techblock.club/?p=9531'> link</a>
+👉New Year, New Look! Small Giant Games Releases Rare, Epic and Legendary Costume Designs in Empires & Puzzles❗️<a href='https://techblock.club/?p=9551'> link</a>
 
-👉🏽Call of Duty: Mobile resets its Season count, next season to be called Season 1❗️<a href='https://techblock.club/?p=9533'> link</a>
+👉🏽Top 10 Best Samsung Galaxy S21 Cases❗️<a href='https://techblock.club/?p=9553'> link</a>
 
-👉🏿Save over 50 percent on this Alexa-enabled smart light from GE❗️<a href='https://techblock.club/?p=9535'> link</a>
+👉🏿Platinum 'hopes' to have more to show on Bayonetta 3 this year❗️<a href='https://techblock.club/?p=9555'> link</a>
 
-👉Razer's BlackWidow Elite keyboard drops to an all-time low $70 at Best Buy❗️<a href='https://techblock.club/?p=9537'> link</a>
+👉These are Belkin's latest accessories geared towards iPhone users❗️<a href='https://techblock.club/?p=9557'> link</a>
 
-👉🏽Nintendo Has Revealed More Information for Bowser's Fury in Super Mario 3D World❗️<a href='https://techblock.club/?p=9539'> link</a>
+👉🏽eBay Is Clamping Down On Empty PS5 Box Scammers❗️<a href='https://techblock.club/?p=9559'> link</a>
 
-👉🏿About some improvements implemented after demo 1❗️<a href='https://techblock.club/?p=9541'> link</a>
+👉🏿Realme RealPublic Sale to Start from January 20: Best Deals on Realme X50 Pro, 4K Smart TV and More❗️<a href='https://techblock.club/?p=9561'> link</a>
 
-👉New Vegas' releases after 7 years of development❗️<a href='https://techblock.club/?p=9543'> link</a>
+👉New Sony San Diego Team Working on Existing PlayStation Franchises❗️<a href='https://techblock.club/?p=9563'> link</a>
 
-👉🏽Hike messaging app shuts down, removed from Play Store, here's why❗️<a href='https://techblock.club/?p=9545'> link</a>
+👉🏽Apple features iPad project led by Las Vegas teacher Mike Lang❗️<a href='https://techblock.club/?p=9565'> link</a>
 
-👉🏿Scott Pilgrim vs. The World: The Game - Complete Edition Is Nostalgia Held Back by More Nostalgia❗️<a href='https://techblock.club/?p=9547'> link</a>
+👉🏿Sony Xperia 1 and Xperia 5 Owners Get Android 11 Upgrade Early❗️<a href='https://techblock.club/?p=9567'> link</a>
 
