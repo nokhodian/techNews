@@ -1,20 +1,20 @@
-<b>Technology NEWS on Thursday, January 21st, 2021</b> 📡📡📡 
+<b>Technology NEWS on Friday, January 22nd, 2021</b> 📡📡📡 
 
-👉Samsung Will Mass-Produce 90Hz OLED Laptop Displays From March❗️<a href='https://techblock.club/?p=9611'> link</a>
+👉Vivo launches these two smartphones; know features, price❗️<a href='https://techblock.club/?p=9631'> link</a>
 
-👉🏽Xbox Series X Restock: Check Availability At GameStop, Target, Walmart, Best Buy, Amazon, And More❗️<a href='https://techblock.club/?p=9613'> link</a>
+👉🏽AirPods Max review: Great headphones with a catch❗️<a href='https://techblock.club/?p=9633'> link</a>
 
-👉🏿Peter Moore is back in the video game industry❗️<a href='https://techblock.club/?p=9615'> link</a>
+👉🏿Microsoft is increasing the price of Xbox Live Gold❗️<a href='https://techblock.club/?p=9635'> link</a>
 
-👉'Fall Guys' won't be hitting Xbox Game Pass after all❗️<a href='https://techblock.club/?p=9617'> link</a>
+👉You can now transcribe a full Google Meet call — just download this Chrome extension❗️<a href='https://techblock.club/?p=9637'> link</a>
 
-👉🏽PUBG Update 10.2 released on PC, adds PGI.S livestream and new reputation system❗️<a href='https://techblock.club/?p=9619'> link</a>
+👉🏽Alert! Xbox Series X consoles expected to be in stock at Target soon❗️<a href='https://techblock.club/?p=9639'> link</a>
 
-👉🏿How to watch: Resident Evil Village gameplay and trailer coming in Thursday showcase❗️<a href='https://techblock.club/?p=9621'> link</a>
+👉🏿'Call of Duty: Warzone' Player METZY Disqualified for Cheating in Twitch Rivals, Then Accuser Recants❗️<a href='https://techblock.club/?p=9641'> link</a>
 
-👉Galaxy A82 5G In Works – Another Rotating Camera Phone From Samsung?❗️<a href='https://techblock.club/?p=9623'> link</a>
+👉'Kinetic Touchless' tech replicates button presses without contact❗️<a href='https://techblock.club/?p=9643'> link</a>
 
-👉🏽Fortnite Teases Sarah Connor and the Terminator, Coming Soon❗️<a href='https://techblock.club/?p=9625'> link</a>
+👉🏽Samsung Galaxy face off: Is the S21 Ultra or Note 20 Ultra best for business?❗️<a href='https://techblock.club/?p=9645'> link</a>
 
-👉🏿'Fortnite' Cornfield at Steel Farm and Sunflower's Farm Locations for Week 8❗️<a href='https://techblock.club/?p=9627'> link</a>
+👉🏿'Animal Crossing' x ColourPop collab makeup line announced❗️<a href='https://techblock.club/?p=9647'> link</a>
 
