@@ -1,20 +1,20 @@
-<b>Technology NEWS on Friday, January 22nd, 2021</b> 📡📡📡 
+<b>Technology NEWS on Saturday, January 23rd, 2021</b> 📡📡📡 
 
-👉Vivo launches these two smartphones; know features, price❗️<a href='https://techblock.club/?p=9631'> link</a>
+👉Limbo Developer Advertises For Staff Ahead Of New Sci-Fi Project❗️<a href='https://techblock.club/?p=9651'> link</a>
 
-👉🏽AirPods Max review: Great headphones with a catch❗️<a href='https://techblock.club/?p=9633'> link</a>
+👉🏽OnePlus 9 and OnePlus 9 Pro key specs leak yet again: Report❗️<a href='https://techblock.club/?p=9653'> link</a>
 
-👉🏿Microsoft is increasing the price of Xbox Live Gold❗️<a href='https://techblock.club/?p=9635'> link</a>
+👉🏿The Morning After: Microsoft won't raise the price of Xbox Live❗️<a href='https://techblock.club/?p=9655'> link</a>
 
-👉You can now transcribe a full Google Meet call — just download this Chrome extension❗️<a href='https://techblock.club/?p=9637'> link</a>
+👉Razer Naga X Lightens the Game for MMO Gamers❗️<a href='https://techblock.club/?p=9657'> link</a>
 
-👉🏽Alert! Xbox Series X consoles expected to be in stock at Target soon❗️<a href='https://techblock.club/?p=9639'> link</a>
+👉🏽Simplicity & Speed: The Thinking Behind Google Search's New Mobile Design❗️<a href='https://techblock.club/?p=9659'> link</a>
 
-👉🏿'Call of Duty: Warzone' Player METZY Disqualified for Cheating in Twitch Rivals, Then Accuser Recants❗️<a href='https://techblock.club/?p=9641'> link</a>
+👉🏿Apple's AR/VR headset is going to be expensive and is expected to launch in 2022❗️<a href='https://techblock.club/?p=9661'> link</a>
 
-👉'Kinetic Touchless' tech replicates button presses without contact❗️<a href='https://techblock.club/?p=9643'> link</a>
+👉Report: Capcom steering Resident Evil 4 remake in a new direction❗️<a href='https://techblock.club/?p=9663'> link</a>
 
-👉🏽Samsung Galaxy face off: Is the S21 Ultra or Note 20 Ultra best for business?❗️<a href='https://techblock.club/?p=9645'> link</a>
+👉🏽New Panthers GM expects to be "in on every deal"❗️<a href='https://techblock.club/?p=9665'> link</a>
 
-👉🏿'Animal Crossing' x ColourPop collab makeup line announced❗️<a href='https://techblock.club/?p=9647'> link</a>
+👉🏿3 Simple Tips For Choosing Your First 2-in-1 Device❗️<a href='https://techblock.club/?p=9667'> link</a>
 
