@@ -1,20 +1,20 @@
-<b>Technology NEWS on Saturday, January 23rd, 2021</b> 📡📡📡 
+<b>Technology NEWS on Sunday, January 24th, 2021</b> 📡📡📡 
 
-👉Limbo Developer Advertises For Staff Ahead Of New Sci-Fi Project❗️<a href='https://techblock.club/?p=9651'> link</a>
+👉Five best alternatives to FaceTime for Android smartphone users❗️<a href='https://techblock.club/?p=9671'> link</a>
 
-👉🏽OnePlus 9 and OnePlus 9 Pro key specs leak yet again: Report❗️<a href='https://techblock.club/?p=9653'> link</a>
+👉🏽New Microsoft advert claims the Surface Pro 7 is a better option than the MacBook Pro 13, even for gaming❗️<a href='https://techblock.club/?p=9673'> link</a>
 
-👉🏿The Morning After: Microsoft won't raise the price of Xbox Live❗️<a href='https://techblock.club/?p=9655'> link</a>
+👉🏿Pokemon Go's Mareep Incense Day is Today❗️<a href='https://techblock.club/?p=9675'> link</a>
 
-👉Razer Naga X Lightens the Game for MMO Gamers❗️<a href='https://techblock.club/?p=9657'> link</a>
+👉Microsoft Excel is getting a new feature that might save your skin one day❗️<a href='https://techblock.club/?p=9677'> link</a>
 
-👉🏽Simplicity & Speed: The Thinking Behind Google Search's New Mobile Design❗️<a href='https://techblock.club/?p=9659'> link</a>
+👉🏽These Louis Vuitton earphones are the epitome of luxe accessories❗️<a href='https://techblock.club/?p=9679'> link</a>
 
-👉🏿Apple's AR/VR headset is going to be expensive and is expected to launch in 2022❗️<a href='https://techblock.club/?p=9661'> link</a>
+👉🏿Stardew Valley Update 1.5 Submitted For Certification On Consoles❗️<a href='https://techblock.club/?p=9681'> link</a>
 
-👉Report: Capcom steering Resident Evil 4 remake in a new direction❗️<a href='https://techblock.club/?p=9663'> link</a>
+👉Resident Evil 7 could get this Xbox Series X and PS5 upgrade❗️<a href='https://techblock.club/?p=9683'> link</a>
 
-👉🏽New Panthers GM expects to be "in on every deal"❗️<a href='https://techblock.club/?p=9665'> link</a>
+👉🏽OnePlus 9 and 9 Pro specs just leaked❗️<a href='https://techblock.club/?p=9685'> link</a>
 
-👉🏿3 Simple Tips For Choosing Your First 2-in-1 Device❗️<a href='https://techblock.club/?p=9667'> link</a>
+👉🏿Only days left to claim the third self-employment grant worth up to £7500❗️<a href='https://techblock.club/?p=9687'> link</a>
 
