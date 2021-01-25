@@ -1,20 +1,20 @@
-<b>Technology NEWS on Sunday, January 24th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Monday, January 25th, 2021</b> 📡📡📡 
 
-👉Five best alternatives to FaceTime for Android smartphone users❗️<a href='https://techblock.club/?p=9671'> link</a>
+👉Hyrule Warriors: Age of Calamity becomes best-selling Musou game❗️<a href='https://techblock.club/?p=9691'> link</a>
 
-👉🏽New Microsoft advert claims the Surface Pro 7 is a better option than the MacBook Pro 13, even for gaming❗️<a href='https://techblock.club/?p=9673'> link</a>
+👉🏽Samsung Galaxy Tab A 10.1 (2021) Design Showcased Via CAD Renders❗️<a href='https://techblock.club/?p=9693'> link</a>
 
-👉🏿Pokemon Go's Mareep Incense Day is Today❗️<a href='https://techblock.club/?p=9675'> link</a>
+👉🏿Apple's fantastic AirPods Pro go on sale for their holiday price❗️<a href='https://techblock.club/?p=9695'> link</a>
 
-👉Microsoft Excel is getting a new feature that might save your skin one day❗️<a href='https://techblock.club/?p=9677'> link</a>
+👉Resident Evil Village's Maiden Demo Gets Pretty Dark❗️<a href='https://techblock.club/?p=9697'> link</a>
 
-👉🏽These Louis Vuitton earphones are the epitome of luxe accessories❗️<a href='https://techblock.club/?p=9679'> link</a>
+👉🏽Gotham Knights release date, trailers, gameplay, news and rumors❗️<a href='https://techblock.club/?p=9699'> link</a>
 
-👉🏿Stardew Valley Update 1.5 Submitted For Certification On Consoles❗️<a href='https://techblock.club/?p=9681'> link</a>
+👉🏿Nintendo just hit with another Joy-Con drift lawsuit❗️<a href='https://techblock.club/?p=9701'> link</a>
 
-👉Resident Evil 7 could get this Xbox Series X and PS5 upgrade❗️<a href='https://techblock.club/?p=9683'> link</a>
+👉Pokémon GO Johto Collection Challenge Guide – How to Catch Them All❗️<a href='https://techblock.club/?p=9703'> link</a>
 
-👉🏽OnePlus 9 and 9 Pro specs just leaked❗️<a href='https://techblock.club/?p=9685'> link</a>
+👉🏽Xbox Games With Gold Free Games For February 2021❗️<a href='https://techblock.club/?p=9705'> link</a>
 
-👉🏿Only days left to claim the third self-employment grant worth up to £7500❗️<a href='https://techblock.club/?p=9687'> link</a>
+👉🏿Apple's New 'Time to Walk' Feature Launches Today for Fitness+ Subscribers❗️<a href='https://techblock.club/?p=9707'> link</a>
 
