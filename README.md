@@ -1,20 +1,20 @@
-<b>Technology NEWS on Monday, January 25th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Tuesday, January 26th, 2021</b> 📡📡📡 
 
-👉Hyrule Warriors: Age of Calamity becomes best-selling Musou game❗️<a href='https://techblock.club/?p=9691'> link</a>
+👉343 Industries “Committed to at Least Monthly High Level Updates” for Halo Infinite Starting Next Week❗️<a href='https://techblock.club/?p=9711'> link</a>
 
-👉🏽Samsung Galaxy Tab A 10.1 (2021) Design Showcased Via CAD Renders❗️<a href='https://techblock.club/?p=9693'> link</a>
+👉🏽Here's how Apple Watch blood glucose monitoring could work, with a skin tag❗️<a href='https://techblock.club/?p=9713'> link</a>
 
-👉🏿Apple's fantastic AirPods Pro go on sale for their holiday price❗️<a href='https://techblock.club/?p=9695'> link</a>
+👉🏿PUBG Mobile India rival FAU-G launched: Here's the tips and trick to win the game❗️<a href='https://techblock.club/?p=9715'> link</a>
 
-👉Resident Evil Village's Maiden Demo Gets Pretty Dark❗️<a href='https://techblock.club/?p=9697'> link</a>
+👉Farming Simulator 19 DLC GRIMME Equipment Pack Hits PS4 Today❗️<a href='https://techblock.club/?p=9717'> link</a>
 
-👉🏽Gotham Knights release date, trailers, gameplay, news and rumors❗️<a href='https://techblock.club/?p=9699'> link</a>
+👉🏽Best Deals For Samsung Galaxy S21 Phone❗️<a href='https://techblock.club/?p=9719'> link</a>
 
-👉🏿Nintendo just hit with another Joy-Con drift lawsuit❗️<a href='https://techblock.club/?p=9701'> link</a>
+👉🏿Ontario reports 1740 new COVID-19 cases — the fewest since mid-December❗️<a href='https://techblock.club/?p=9721'> link</a>
 
-👉Pokémon GO Johto Collection Challenge Guide – How to Catch Them All❗️<a href='https://techblock.club/?p=9703'> link</a>
+👉BioWare book confirms Dragon Age 4's location❗️<a href='https://techblock.club/?p=9723'> link</a>
 
-👉🏽Xbox Games With Gold Free Games For February 2021❗️<a href='https://techblock.club/?p=9705'> link</a>
+👉🏽33rd Ad Meter Competition Begins❗️<a href='https://techblock.club/?p=9725'> link</a>
 
-👉🏿Apple's New 'Time to Walk' Feature Launches Today for Fitness+ Subscribers❗️<a href='https://techblock.club/?p=9707'> link</a>
+👉🏿Animal Crossing ColourPop Makeup Collection: Launch Time, Prices, And Full Product List❗️<a href='https://techblock.club/?p=9727'> link</a>
 
