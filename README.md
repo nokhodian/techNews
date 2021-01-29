@@ -1,20 +1,20 @@
-<b>Technology NEWS on Thursday, January 28th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Friday, January 29th, 2021</b> 📡📡📡 
 
-👉Returnal Release Date Pushed Back to April❗️<a href='https://techblock.club/?p=9751'> link</a>
+👉Cyberpunk 2077 Hotfix 1.11 Fixes Game-Breaking Bug in Takemura Mission❗️<a href='https://techblock.club/?p=9771'> link</a>
 
-👉🏽DxOMark: Sony Xperia 1 II's camera comparable to a two-year-old flagship❗️<a href='https://techblock.club/?p=9753'> link</a>
+👉🏽Telegram Adds Simple Tool to Bring In Your WhatsApp Data❗️<a href='https://techblock.club/?p=9773'> link</a>
 
-👉🏿Enve adds affordable gravel wheels to its Foundation Collection❗️<a href='https://techblock.club/?p=9755'> link</a>
+👉🏿Old School Runescape is coming to Steam next month❗️<a href='https://techblock.club/?p=9775'> link</a>
 
-👉Love Your Skin: What Is SPF And Why Is It Important?❗️<a href='https://techblock.club/?p=9757'> link</a>
+👉Epic Games Store raked in $700 million in sales revenue in 2020❗️<a href='https://techblock.club/?p=9777'> link</a>
 
-👉🏽ColourPop x Animal Crossing Collection Launches Today: Start Time, Prices, And Product List❗️<a href='https://techblock.club/?p=9759'> link</a>
+👉🏽PS5 Exclusive Returnal Delayed Until April 30❗️<a href='https://techblock.club/?p=9779'> link</a>
 
-👉🏿Subnation acquires equity interest in XTRA Gaming❗️<a href='https://techblock.club/?p=9761'> link</a>
+👉🏿Forget Xbox Series X restocks: Here's when you should buy one❗️<a href='https://techblock.club/?p=9781'> link</a>
 
-👉Apple Begins Selling Refurbished Intel-Based 27-Inch iMac Released August 2020❗️<a href='https://techblock.club/?p=9763'> link</a>
+👉Xbox Series X gets another 120Hz game — free on Xbox Game Pass❗️<a href='https://techblock.club/?p=9783'> link</a>
 
-👉🏽'The Medium': The real world and spirit world split in this unusually dynamic adventure❗️<a href='https://techblock.club/?p=9765'> link</a>
+👉🏽Pokémon Cards Will Be Offered In McDonald's Happy Meals According To Leak❗️<a href='https://techblock.club/?p=9785'> link</a>
 
-👉🏿Improvements to holographic displays poised to enhance virtual and augmented reality❗️<a href='https://techblock.club/?p=9767'> link</a>
+👉🏿Asus ZenBook Duo 14 UX482E review❗️<a href='https://techblock.club/?p=9787'> link</a>
 
