@@ -1,20 +1,20 @@
-<b>Technology NEWS on Friday, January 29th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Saturday, January 30th, 2021</b> 📡📡📡 
 
-👉Cyberpunk 2077 Hotfix 1.11 Fixes Game-Breaking Bug in Takemura Mission❗️<a href='https://techblock.club/?p=9771'> link</a>
+👉Acer's Swift 5 (late 2020) puts the 'ultra' in 'ultraportable'❗️<a href='https://techblock.club/?p=9791'> link</a>
 
-👉🏽Telegram Adds Simple Tool to Bring In Your WhatsApp Data❗️<a href='https://techblock.club/?p=9773'> link</a>
+👉🏽Elden Ring community gets excited (again), is disappointed (again)❗️<a href='https://techblock.club/?p=9793'> link</a>
 
-👉🏿Old School Runescape is coming to Steam next month❗️<a href='https://techblock.club/?p=9775'> link</a>
+👉🏿A huge gaming Asus smartphone with two screens and a body thickness of more than 10 mm. ROG Phone 5 details ...❗️<a href='https://techblock.club/?p=9795'> link</a>
 
-👉Epic Games Store raked in $700 million in sales revenue in 2020❗️<a href='https://techblock.club/?p=9777'> link</a>
+👉Square Enix and Dontnod Entertainment Have Reportedly Parted Ways, Square Enix Declines Comment❗️<a href='https://techblock.club/?p=9797'> link</a>
 
-👉🏽PS5 Exclusive Returnal Delayed Until April 30❗️<a href='https://techblock.club/?p=9779'> link</a>
+👉🏽Nintendo Switch new game releases for February 2021❗️<a href='https://techblock.club/?p=9799'> link</a>
 
-👉🏿Forget Xbox Series X restocks: Here's when you should buy one❗️<a href='https://techblock.club/?p=9781'> link</a>
+👉🏿How to log out of a Google account if you use a number of?❗️<a href='https://techblock.club/?p=9801'> link</a>
 
-👉Xbox Series X gets another 120Hz game — free on Xbox Game Pass❗️<a href='https://techblock.club/?p=9783'> link</a>
+👉Best Super Bowl TV deals 2021: 4K TV sales from Best Buy, Walmart, and Amazon❗️<a href='https://techblock.club/?p=9803'> link</a>
 
-👉🏽Pokémon Cards Will Be Offered In McDonald's Happy Meals According To Leak❗️<a href='https://techblock.club/?p=9785'> link</a>
+👉🏽Genshin Impact Developer miHoYo Rewards Employees With PS5s And RTX3070 Cards❗️<a href='https://techblock.club/?p=9805'> link</a>
 
-👉🏿Asus ZenBook Duo 14 UX482E review❗️<a href='https://techblock.club/?p=9787'> link</a>
+👉🏿iPhone 12 mini available at an effective price of Rs 55490: Here's how❗️<a href='https://techblock.club/?p=9807'> link</a>
 
