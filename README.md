@@ -1,20 +1,20 @@
-<b>Technology NEWS on Sunday, January 31st, 2021</b> 📡📡📡 
+<b>Technology NEWS on Monday, February 1st, 2021</b> 📡📡📡 
 
-👉Video: 2022 BMW 2 Series caught testing in camouflage❗️<a href='https://techblock.club/?p=9811'> link</a>
+👉Call of Duty Black Ops Cold War Zombies to get a new map on February 4❗️<a href='https://techblock.club/?p=9831'> link</a>
 
-👉🏽WhatsApp this week: Enhanced security on desktop, sticker shortcut and more❗️<a href='https://techblock.club/?p=9813'> link</a>
+👉🏽Apple highlights Black photographers in new Shot on iPhone "Hometown" feature❗️<a href='https://techblock.club/?p=9833'> link</a>
 
-👉🏿Ways to Boost Your Wifi Signal❗️<a href='https://techblock.club/?p=9815'> link</a>
+👉🏿Nintendo Continues To Deny That It Will Release A Switch Pro In 2021❗️<a href='https://techblock.club/?p=9835'> link</a>
 
-👉Why iPhone 12 Pro Max's camera is so exciting to pro photographers❗️<a href='https://techblock.club/?p=9817'> link</a>
+👉Best Roborock Robot Vacuum Deals❗️<a href='https://techblock.club/?p=9837'> link</a>
 
-👉🏽'Pokémon Go' Raikou Raids: Counters and Everything You Need to Know❗️<a href='https://techblock.club/?p=9819'> link</a>
+👉🏽Resident Evil Village Might Feature Open-World Elements❗️<a href='https://techblock.club/?p=9839'> link</a>
 
-👉🏿Xiaomi may be making smart glasses capable of phototherapy, report says❗️<a href='https://techblock.club/?p=9821'> link</a>
+👉🏿Goldeneye 007's lost Xbox 360 remaster has leaked—as a full-game speedrun❗️<a href='https://techblock.club/?p=9841'> link</a>
 
-👉Poll: What's The Best 2D Mario Game?❗️<a href='https://techblock.club/?p=9823'> link</a>
+👉Rockstar Games Toronto Office Was Robbed In Shocking Crime Spree❗️<a href='https://techblock.club/?p=9843'> link</a>
 
-👉🏽Rockstar Games Lost Thousand Dollar Equipment! What is Inside Those Boxes?❗️<a href='https://techblock.club/?p=9825'> link</a>
+👉🏽YouTuber's Dodge Challenger Hellcat on Amish Buggy Wheels Does Wholesome Burnout❗️<a href='https://techblock.club/?p=9845'> link</a>
 
-👉🏿Elder Scrolls 6 Won't Be Released Until 2026, According To Insider❗️<a href='https://techblock.club/?p=9827'> link</a>
+👉🏿Is Fu Hua In Genshin Impact?❗️<a href='https://techblock.club/?p=9847'> link</a>
 
