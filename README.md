@@ -1,20 +1,20 @@
-<b>Technology NEWS on Monday, February 1st, 2021</b> 📡📡📡 
+<b>Technology NEWS on Tuesday, February 2nd, 2021</b> 📡📡📡 
 
-👉Call of Duty Black Ops Cold War Zombies to get a new map on February 4❗️<a href='https://techblock.club/?p=9831'> link</a>
+👉Nintendo is Apparently Revamping Its Multiplayer Server System❗️<a href='https://techblock.club/?p=9851'> link</a>
 
-👉🏽Apple highlights Black photographers in new Shot on iPhone "Hometown" feature❗️<a href='https://techblock.club/?p=9833'> link</a>
+👉🏽Perfect Dark's Design Director Has Left The Studio❗️<a href='https://techblock.club/?p=9853'> link</a>
 
-👉🏿Nintendo Continues To Deny That It Will Release A Switch Pro In 2021❗️<a href='https://techblock.club/?p=9835'> link</a>
+👉🏿Final Fantasy XII The Zodiac Age Is Finally Headed To Xbox Game Pass❗️<a href='https://techblock.club/?p=9855'> link</a>
 
-👉Best Roborock Robot Vacuum Deals❗️<a href='https://techblock.club/?p=9837'> link</a>
+👉New Fortnite Leak Teases Five Nights At Freddy's Crossover For Season 5❗️<a href='https://techblock.club/?p=9857'> link</a>
 
-👉🏽Resident Evil Village Might Feature Open-World Elements❗️<a href='https://techblock.club/?p=9839'> link</a>
+👉🏽Are Modern Smartphones Getting Way too Big?❗️<a href='https://techblock.club/?p=9859'> link</a>
 
-👉🏿Goldeneye 007's lost Xbox 360 remaster has leaked—as a full-game speedrun❗️<a href='https://techblock.club/?p=9841'> link</a>
+👉🏿New portable device produces high-resolution 3D images of human skin within 10 minutes❗️<a href='https://techblock.club/?p=9861'> link</a>
 
-👉Rockstar Games Toronto Office Was Robbed In Shocking Crime Spree❗️<a href='https://techblock.club/?p=9843'> link</a>
+👉Sega Re-Releasing Judgment for PS5, Xbox Series X, and Stadia With Improved Visuals and Load Times❗️<a href='https://techblock.club/?p=9863'> link</a>
 
-👉🏽YouTuber's Dodge Challenger Hellcat on Amish Buggy Wheels Does Wholesome Burnout❗️<a href='https://techblock.club/?p=9845'> link</a>
+👉🏽No need to estimate — Nanit's smart sheet precisely measures your baby's height❗️<a href='https://techblock.club/?p=9865'> link</a>
 
-👉🏿Is Fu Hua In Genshin Impact?❗️<a href='https://techblock.club/?p=9847'> link</a>
+👉🏿Samsung Tipped to Be Working on ISOCELL Image Sensor With 200-Megapixel Resolution❗️<a href='https://techblock.club/?p=9867'> link</a>
 
