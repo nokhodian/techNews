@@ -1,20 +1,20 @@
-<b>Technology NEWS on Tuesday, February 2nd, 2021</b> 📡📡📡 
+<b>Technology NEWS on Wednesday, February 3rd, 2021</b> 📡📡📡 
 
-👉Nintendo is Apparently Revamping Its Multiplayer Server System❗️<a href='https://techblock.club/?p=9851'> link</a>
+👉Here Is The 'Destiny 2' Season Of The Chosen Roadmap❗️<a href='https://techblock.club/?p=9871'> link</a>
 
-👉🏽Perfect Dark's Design Director Has Left The Studio❗️<a href='https://techblock.club/?p=9853'> link</a>
+👉🏽M&M'S® Super Bowl LV Ad Shows How Fun And Humor Have The Power To Help Bring Us Closer Together❗️<a href='https://techblock.club/?p=9873'> link</a>
 
-👉🏿Final Fantasy XII The Zodiac Age Is Finally Headed To Xbox Game Pass❗️<a href='https://techblock.club/?p=9855'> link</a>
+👉🏿Red Dead Online will give you a horse, a hat, a coat, anything, if you'll please come back❗️<a href='https://techblock.club/?p=9875'> link</a>
 
-👉New Fortnite Leak Teases Five Nights At Freddy's Crossover For Season 5❗️<a href='https://techblock.club/?p=9857'> link</a>
+👉How to Automatically Resume Applications When Logging in on Windows 10❗️<a href='https://techblock.club/?p=9877'> link</a>
 
-👉🏽Are Modern Smartphones Getting Way too Big?❗️<a href='https://techblock.club/?p=9859'> link</a>
+👉🏽PS5 and Xbox Series X restock drama shows consoles should not have launched in 2020❗️<a href='https://techblock.club/?p=9879'> link</a>
 
-👉🏿New portable device produces high-resolution 3D images of human skin within 10 minutes❗️<a href='https://techblock.club/?p=9861'> link</a>
+👉🏿EA Feels “Very, Very Good” About BioWare's New Leadership❗️<a href='https://techblock.club/?p=9881'> link</a>
 
-👉Sega Re-Releasing Judgment for PS5, Xbox Series X, and Stadia With Improved Visuals and Load Times❗️<a href='https://techblock.club/?p=9863'> link</a>
+👉Minute of Islands gets a release date and a demo❗️<a href='https://techblock.club/?p=9883'> link</a>
 
-👉🏽No need to estimate — Nanit's smart sheet precisely measures your baby's height❗️<a href='https://techblock.club/?p=9865'> link</a>
+👉🏽Chrome's Cookie Update Is Bad for Advertisers but Good for Google❗️<a href='https://techblock.club/?p=9885'> link</a>
 
-👉🏿Samsung Tipped to Be Working on ISOCELL Image Sensor With 200-Megapixel Resolution❗️<a href='https://techblock.club/?p=9867'> link</a>
+👉🏿Beam raises $9.5 million to build a web browser that collects ideas❗️<a href='https://techblock.club/?p=9887'> link</a>
 
