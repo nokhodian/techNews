@@ -1,20 +1,20 @@
-<b>Technology NEWS on Wednesday, February 3rd, 2021</b> 📡📡📡 
+<b>Technology NEWS on Thursday, February 4th, 2021</b> 📡📡📡 
 
-👉Here Is The 'Destiny 2' Season Of The Chosen Roadmap❗️<a href='https://techblock.club/?p=9871'> link</a>
+👉Apple's AR/VR Headset Said to Feature Dual 8K Displays, Eye Tracking, Swappable Headbands, and More❗️<a href='https://techblock.club/?p=9891'> link</a>
 
-👉🏽M&M'S® Super Bowl LV Ad Shows How Fun And Humor Have The Power To Help Bring Us Closer Together❗️<a href='https://techblock.club/?p=9873'> link</a>
+👉🏽Square Enix Reports Increased Annual Sales, Despite Individual Game Losses❗️<a href='https://techblock.club/?p=9893'> link</a>
 
-👉🏿Red Dead Online will give you a horse, a hat, a coat, anything, if you'll please come back❗️<a href='https://techblock.club/?p=9875'> link</a>
+👉🏿Oculus cofounder's Mountaintop raises $5.5 million for shooter game❗️<a href='https://techblock.club/?p=9895'> link</a>
 
-👉How to Automatically Resume Applications When Logging in on Windows 10❗️<a href='https://techblock.club/?p=9877'> link</a>
+👉Nvidia GeForce Now game streaming adds official support for M1 Macs❗️<a href='https://techblock.club/?p=9897'> link</a>
 
-👉🏽PS5 and Xbox Series X restock drama shows consoles should not have launched in 2020❗️<a href='https://techblock.club/?p=9879'> link</a>
+👉🏽Save $30 on the Apple TV 4K with this rare deal❗️<a href='https://techblock.club/?p=9899'> link</a>
 
-👉🏿EA Feels “Very, Very Good” About BioWare's New Leadership❗️<a href='https://techblock.club/?p=9881'> link</a>
+👉🏿Here's why Mass Effect Legendary Edition won't include the Pinnacle Station DLC❗️<a href='https://techblock.club/?p=9901'> link</a>
 
-👉Minute of Islands gets a release date and a demo❗️<a href='https://techblock.club/?p=9883'> link</a>
+👉Brett Ratner's RatPac buys WallStreetBets founder's life story❗️<a href='https://techblock.club/?p=9903'> link</a>
 
-👉🏽Chrome's Cookie Update Is Bad for Advertisers but Good for Google❗️<a href='https://techblock.club/?p=9885'> link</a>
+👉🏽LEGO Sonic the Hedgehog set green-lit thanks to fan submission❗️<a href='https://techblock.club/?p=9905'> link</a>
 
-👉🏿Beam raises $9.5 million to build a web browser that collects ideas❗️<a href='https://techblock.club/?p=9887'> link</a>
+👉🏿Elon Musk, back on Twitter, turns his attention to Dogecoin❗️<a href='https://techblock.club/?p=9907'> link</a>
 
