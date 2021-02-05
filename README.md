@@ -1,20 +1,20 @@
-<b>Technology NEWS on Thursday, February 4th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Friday, February 5th, 2021</b> 📡📡📡 
 
-👉Apple's AR/VR Headset Said to Feature Dual 8K Displays, Eye Tracking, Swappable Headbands, and More❗️<a href='https://techblock.club/?p=9891'> link</a>
+👉This massive 70-inch 4K TV is on sale for $588 in last-minute Super Bowl TV deal❗️<a href='https://techblock.club/?p=9911'> link</a>
 
-👉🏽Square Enix Reports Increased Annual Sales, Despite Individual Game Losses❗️<a href='https://techblock.club/?p=9893'> link</a>
+👉🏽Panic! At The Disco's original bassist Brent Wilson faces drug and gun charges❗️<a href='https://techblock.club/?p=9913'> link</a>
 
-👉🏿Oculus cofounder's Mountaintop raises $5.5 million for shooter game❗️<a href='https://techblock.club/?p=9895'> link</a>
+👉🏿ZASH Enters Into Binding Letter of Intent With Ficto Video Sharing Social Platform❗️<a href='https://techblock.club/?p=9915'> link</a>
 
-👉Nvidia GeForce Now game streaming adds official support for M1 Macs❗️<a href='https://techblock.club/?p=9897'> link</a>
+👉Maskmaker is another inventive VR puzzler from the makers of A Fisherman's Tale❗️<a href='https://techblock.club/?p=9917'> link</a>
 
-👉🏽Save $30 on the Apple TV 4K with this rare deal❗️<a href='https://techblock.club/?p=9899'> link</a>
+👉🏽Massachusetts man swallows AirPod in his sleep❗️<a href='https://techblock.club/?p=9919'> link</a>
 
-👉🏿Here's why Mass Effect Legendary Edition won't include the Pinnacle Station DLC❗️<a href='https://techblock.club/?p=9901'> link</a>
+👉🏿Cyberpunk 2077 hotfix 1.12 patches this major vulnerability on PC❗️<a href='https://techblock.club/?p=9921'> link</a>
 
-👉Brett Ratner's RatPac buys WallStreetBets founder's life story❗️<a href='https://techblock.club/?p=9903'> link</a>
+👉New Silent Hill game may be announced this summer — according to this tease❗️<a href='https://techblock.club/?p=9923'> link</a>
 
-👉🏽LEGO Sonic the Hedgehog set green-lit thanks to fan submission❗️<a href='https://techblock.club/?p=9905'> link</a>
+👉🏽Windjammers 2 Shows off The Arcade Mode In Latest Trailer❗️<a href='https://techblock.club/?p=9925'> link</a>
 
-👉🏿Elon Musk, back on Twitter, turns his attention to Dogecoin❗️<a href='https://techblock.club/?p=9907'> link</a>
+👉🏿Best mobile phones under Rs 40000: OnePlus 8, Samsung Galaxy S20 FE, iPhone SE and more❗️<a href='https://techblock.club/?p=9927'> link</a>
 
