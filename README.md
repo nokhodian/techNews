@@ -1,20 +1,20 @@
-<b>Technology NEWS on Friday, February 5th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Saturday, February 6th, 2021</b> 📡📡📡 
 
-👉This massive 70-inch 4K TV is on sale for $588 in last-minute Super Bowl TV deal❗️<a href='https://techblock.club/?p=9911'> link</a>
+👉Shadow of Mordor's nemesis system now successfully patented by WB Games❗️<a href='https://techblock.club/?p=9931'> link</a>
 
-👉🏽Panic! At The Disco's original bassist Brent Wilson faces drug and gun charges❗️<a href='https://techblock.club/?p=9913'> link</a>
+👉🏽Pokémon GO – Is the Roselia Community Day Box Worth it❗️<a href='https://techblock.club/?p=9933'> link</a>
 
-👉🏿ZASH Enters Into Binding Letter of Intent With Ficto Video Sharing Social Platform❗️<a href='https://techblock.club/?p=9915'> link</a>
+👉🏿More Pokémon Let's Go Games Could Fix the Series' Biggest Problems❗️<a href='https://techblock.club/?p=9935'> link</a>
 
-👉Maskmaker is another inventive VR puzzler from the makers of A Fisherman's Tale❗️<a href='https://techblock.club/?p=9917'> link</a>
+👉True or false: You should reboot your computer every day❗️<a href='https://techblock.club/?p=9937'> link</a>
 
-👉🏽Massachusetts man swallows AirPod in his sleep❗️<a href='https://techblock.club/?p=9919'> link</a>
+👉🏽Among Us: How To Prove You Are Innocent As Crewmate❗️<a href='https://techblock.club/?p=9939'> link</a>
 
-👉🏿Cyberpunk 2077 hotfix 1.12 patches this major vulnerability on PC❗️<a href='https://techblock.club/?p=9921'> link</a>
+👉🏿Realme C2 gets Android 10-based Realme UI stable update❗️<a href='https://techblock.club/?p=9941'> link</a>
 
-👉New Silent Hill game may be announced this summer — according to this tease❗️<a href='https://techblock.club/?p=9923'> link</a>
+👉Apple will debut virtual reality headset next year❗️<a href='https://techblock.club/?p=9943'> link</a>
 
-👉🏽Windjammers 2 Shows off The Arcade Mode In Latest Trailer❗️<a href='https://techblock.club/?p=9925'> link</a>
+👉🏽James Bond 'GoldenEye 007' Remaster Leaked Online: Game Designer Pleased With Fans' Overwhelming Welcome❗️<a href='https://techblock.club/?p=9945'> link</a>
 
-👉🏿Best mobile phones under Rs 40000: OnePlus 8, Samsung Galaxy S20 FE, iPhone SE and more❗️<a href='https://techblock.club/?p=9927'> link</a>
+👉🏿How to buy the Season of the Chosen season pass in Destiny 2❗️<a href='https://techblock.club/?p=9947'> link</a>
 
