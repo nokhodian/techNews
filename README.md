@@ -1,20 +1,20 @@
-<b>Technology NEWS on Saturday, February 6th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Sunday, February 7th, 2021</b> 📡📡📡 
 
-👉Shadow of Mordor's nemesis system now successfully patented by WB Games❗️<a href='https://techblock.club/?p=9931'> link</a>
+👉11 Best Smartwatches for Galaxy Note 20 in 2021 [+ Other Note Series Phones]❗️<a href='https://techblock.club/?p=9951'> link</a>
 
-👉🏽Pokémon GO – Is the Roselia Community Day Box Worth it❗️<a href='https://techblock.club/?p=9933'> link</a>
+👉🏽Steam Concurrent Player Count Breaks Record Again, Tops 26 Million❗️<a href='https://techblock.club/?p=9953'> link</a>
 
-👉🏿More Pokémon Let's Go Games Could Fix the Series' Biggest Problems❗️<a href='https://techblock.club/?p=9935'> link</a>
+👉🏿How Sony's PS5 designers turned PlayStation into something you can feel❗️<a href='https://techblock.club/?p=9955'> link</a>
 
-👉True or false: You should reboot your computer every day❗️<a href='https://techblock.club/?p=9937'> link</a>
+👉NASA wants to send a robotic mission to search for ice on Mars❗️<a href='https://techblock.club/?p=9957'> link</a>
 
-👉🏽Among Us: How To Prove You Are Innocent As Crewmate❗️<a href='https://techblock.club/?p=9939'> link</a>
+👉🏽New Apple Glass patent states it as an accessory, not a standalone product❗️<a href='https://techblock.club/?p=9959'> link</a>
 
-👉🏿Realme C2 gets Android 10-based Realme UI stable update❗️<a href='https://techblock.club/?p=9941'> link</a>
+👉🏿If Mark Zuckerberg is Facebook's brain, Chris Cox is its heart, employees say❗️<a href='https://techblock.club/?p=9961'> link</a>
 
-👉Apple will debut virtual reality headset next year❗️<a href='https://techblock.club/?p=9943'> link</a>
+👉Vixen Avoids Her WEIRDEST Relationship Yetby Killing a God❗️<a href='https://techblock.club/?p=9963'> link</a>
 
-👉🏽James Bond 'GoldenEye 007' Remaster Leaked Online: Game Designer Pleased With Fans' Overwhelming Welcome❗️<a href='https://techblock.club/?p=9945'> link</a>
+👉🏽Intel swipes at Apple Silicon with selective benchmark claims❗️<a href='https://techblock.club/?p=9965'> link</a>
 
-👉🏿How to buy the Season of the Chosen season pass in Destiny 2❗️<a href='https://techblock.club/?p=9947'> link</a>
+👉🏿'SNL' cold open hilariously tackles the weird politics of Super Bowl ads❗️<a href='https://techblock.club/?p=9967'> link</a>
 
