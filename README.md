@@ -1,20 +1,20 @@
-<b>Technology NEWS on Tuesday, February 9th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Wednesday, February 10th, 2021</b> 📡📡📡 
 
-👉Destiny 2 Servers Down For Maintenance This Week Ahead Of Season Of The Chosen Update❗️<a href='https://techblock.club/?p=9991'> link</a>
+👉The PS5's Dualsense Could Lead To Lawsuit Over Drifting Issues❗️<a href='https://techblock.club/?p=10011'> link</a>
 
-👉🏽Apex Legends: Second Anniversary Event Start Time and Event Details❗️<a href='https://techblock.club/?p=9993'> link</a>
+👉🏽Intel is already testing its Xe HPG gaming GPU in 3DMark❗️<a href='https://techblock.club/?p=10013'> link</a>
 
-👉🏿Review: Little Nightmares II❗️<a href='https://techblock.club/?p=9995'> link</a>
+👉🏿The Apple Watch Series 6 Is Now 15% Off — Here's Why You Need It❗️<a href='https://techblock.club/?p=10015'> link</a>
 
-👉Cyberpunk 2077 developers hit with massive breach — what you need to know❗️<a href='https://techblock.club/?p=9997'> link</a>
+👉JioFiber tops Netflix internet speed index followed by Tata Sky, Airtel Xtreme, and ACT❗️<a href='https://techblock.club/?p=10017'> link</a>
 
-👉🏽Persona 5 Strikers (for PlayStation 4) Review❗️<a href='https://techblock.club/?p=9999'> link</a>
+👉🏽HP's new Pavilion x360s are smaller, faster and more sustainable❗️<a href='https://techblock.club/?p=10019'> link</a>
 
-👉🏿Visible customers can now get 5G and use eSIMs❗️<a href='https://techblock.club/?p=10001'> link</a>
+👉🏿Epic's new tool promises high-fidelity human characters in under an hour❗️<a href='https://techblock.club/?p=10021'> link</a>
 
-👉My.Games invests $1.5 million in Pizza Club Games mobile studio❗️<a href='https://techblock.club/?p=10003'> link</a>
+👉Possibility of CD Projekt RED Hack Being an Inside Job Is 'Plausible,' Says Digital Privacy Expert❗️<a href='https://techblock.club/?p=10023'> link</a>
 
-👉🏽$400 off: This RTX 2060-powered Lenovo gaming laptop is just $899❗️<a href='https://techblock.club/?p=10005'> link</a>
+👉🏽LinkedIn's Sales Navigator gets account mapping to help sales teams identify the right buyers❗️<a href='https://techblock.club/?p=10025'> link</a>
 
-👉🏿Report: Amazon Is Developing an Alexa Smart Home Command Center❗️<a href='https://techblock.club/?p=10007'> link</a>
+👉🏿The 6 Best Screen Protectors For Samsung's Galaxy S21 To Keep Your Peace Of Mind❗️<a href='https://techblock.club/?p=10027'> link</a>
 
