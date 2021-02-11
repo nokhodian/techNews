@@ -1,20 +1,20 @@
-<b>Technology NEWS on Wednesday, February 10th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Thursday, February 11th, 2021</b> 📡📡📡 
 
-👉The PS5's Dualsense Could Lead To Lawsuit Over Drifting Issues❗️<a href='https://techblock.club/?p=10011'> link</a>
+👉Fresh Xbox Series X stock coming TOMORROW with new lottery system❗️<a href='https://techblock.club/?p=10031'> link</a>
 
-👉🏽Intel is already testing its Xe HPG gaming GPU in 3DMark❗️<a href='https://techblock.club/?p=10013'> link</a>
+👉🏽Pokémon Unveils Virtual Music Concert With Post Malone to Celebrate 25th Anniversary❗️<a href='https://techblock.club/?p=10033'> link</a>
 
-👉🏿The Apple Watch Series 6 Is Now 15% Off — Here's Why You Need It❗️<a href='https://techblock.club/?p=10015'> link</a>
+👉🏿Dying Light's New DLC Turns You Into A Viking Berserker❗️<a href='https://techblock.club/?p=10035'> link</a>
 
-👉JioFiber tops Netflix internet speed index followed by Tata Sky, Airtel Xtreme, and ACT❗️<a href='https://techblock.club/?p=10017'> link</a>
+👉Apple Watch can predict Covid diagnosis a week early — here's how❗️<a href='https://techblock.club/?p=10037'> link</a>
 
-👉🏽HP's new Pavilion x360s are smaller, faster and more sustainable❗️<a href='https://techblock.club/?p=10019'> link</a>
+👉🏽The Best Android TV Boxes❗️<a href='https://techblock.club/?p=10039'> link</a>
 
-👉🏿Epic's new tool promises high-fidelity human characters in under an hour❗️<a href='https://techblock.club/?p=10021'> link</a>
+👉🏿Super Mario 3D World made it to Switch, but other Wii U games are still stranded❗️<a href='https://techblock.club/?p=10041'> link</a>
 
-👉Possibility of CD Projekt RED Hack Being an Inside Job Is 'Plausible,' Says Digital Privacy Expert❗️<a href='https://techblock.club/?p=10023'> link</a>
+👉Valheim – How to Make Frost Arrows❗️<a href='https://techblock.club/?p=10043'> link</a>
 
-👉🏽LinkedIn's Sales Navigator gets account mapping to help sales teams identify the right buyers❗️<a href='https://techblock.club/?p=10025'> link</a>
+👉🏽Microsoft's foldable Surface Duo price drops to $999, arrives in Europe next week❗️<a href='https://techblock.club/?p=10045'> link</a>
 
-👉🏿The 6 Best Screen Protectors For Samsung's Galaxy S21 To Keep Your Peace Of Mind❗️<a href='https://techblock.club/?p=10027'> link</a>
+👉🏿Unreal Engine's New Game-Changing Tool Will Allow Devs to Create Realistic Characters Within an Hour❗️<a href='https://techblock.club/?p=10047'> link</a>
 
