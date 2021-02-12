@@ -1,20 +1,20 @@
-<b>Technology NEWS on Thursday, February 11th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Friday, February 12th, 2021</b> 📡📡📡 
 
-👉Fresh Xbox Series X stock coming TOMORROW with new lottery system❗️<a href='https://techblock.club/?p=10031'> link</a>
+👉Intel's latest ad campaign mocks M1-powered MacBooks❗️<a href='https://techblock.club/?p=10051'> link</a>
 
-👉🏽Pokémon Unveils Virtual Music Concert With Post Malone to Celebrate 25th Anniversary❗️<a href='https://techblock.club/?p=10033'> link</a>
+👉🏽All-new BlackBerry to be revived with 5G and 'top-of-the-line' camera — coming out sooner than you think❗️<a href='https://techblock.club/?p=10053'> link</a>
 
-👉🏿Dying Light's New DLC Turns You Into A Viking Berserker❗️<a href='https://techblock.club/?p=10035'> link</a>
+👉🏿Nier: Replicant Gameplay Walkthrough Makes The Wait For April Even Harder❗️<a href='https://techblock.club/?p=10055'> link</a>
 
-👉Apple Watch can predict Covid diagnosis a week early — here's how❗️<a href='https://techblock.club/?p=10037'> link</a>
+👉Call of Duty: Warzone player stumbles upon unreleased Sykov pistol in-game❗️<a href='https://techblock.club/?p=10057'> link</a>
 
-👉🏽The Best Android TV Boxes❗️<a href='https://techblock.club/?p=10039'> link</a>
+👉🏽Call of Duty: Black Ops Cold War is NPD's 20th best-selling game ever❗️<a href='https://techblock.club/?p=10059'> link</a>
 
-👉🏿Super Mario 3D World made it to Switch, but other Wii U games are still stranded❗️<a href='https://techblock.club/?p=10041'> link</a>
+👉🏿Ratchet and Clank: Rift Apart Release Date Announced❗️<a href='https://techblock.club/?p=10061'> link</a>
 
-👉Valheim – How to Make Frost Arrows❗️<a href='https://techblock.club/?p=10043'> link</a>
+👉Profits falter despite rising game sales at Sega Sammy❗️<a href='https://techblock.club/?p=10063'> link</a>
 
-👉🏽Microsoft's foldable Surface Duo price drops to $999, arrives in Europe next week❗️<a href='https://techblock.club/?p=10045'> link</a>
+👉🏽Meet the Designers Participating in NYFW For the First Time❗️<a href='https://techblock.club/?p=10065'> link</a>
 
-👉🏿Unreal Engine's New Game-Changing Tool Will Allow Devs to Create Realistic Characters Within an Hour❗️<a href='https://techblock.club/?p=10047'> link</a>
+👉🏿Scoop: BMW M340i xDrive feature list❗️<a href='https://techblock.club/?p=10067'> link</a>
 
