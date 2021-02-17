@@ -1,20 +1,20 @@
-<b>Technology NEWS on Tuesday, February 16th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Wednesday, February 17th, 2021</b> 📡📡📡 
 
-👉The New 911 GT3 Is One Porsche You're Going to Want in Stick Shift❗️<a href='https://techblock.club/?p=10131'> link</a>
+👉Optoma HD146X Review❗️<a href='https://techblock.club/?p=10151'> link</a>
 
-👉🏽LG's 55-inch CX OLED TV is $650 off at Amazon and Best Buy❗️<a href='https://techblock.club/?p=10133'> link</a>
+👉🏽PlayStation 5 makes the Nioh Collection better than ever: review❗️<a href='https://techblock.club/?p=10153'> link</a>
 
-👉🏿Google Photos Starts Categorising Memories of Beach Holidays, Sweet Food With New Update: Report❗️<a href='https://techblock.club/?p=10135'> link</a>
+👉🏿Xbox launches Gaming Accessibility Testing Service to make games more disability friendly❗️<a href='https://techblock.club/?p=10155'> link</a>
 
-👉Xiaomi M11 Lite, M11 Ultra Renders Leaked: What Fans Are Expecting from Flat LCD Screen to Rear Secondary Screens❗️<a href='https://techblock.club/?p=10137'> link</a>
+👉Manus Announces SteamVR Tracker for Professional Creators, Pre-orders Now Open❗️<a href='https://techblock.club/?p=10157'> link</a>
 
-👉🏽Peter Molyneux's 22cans hit with a round of layoffs❗️<a href='https://techblock.club/?p=10139'> link</a>
+👉🏽First Apple Silicon M1 malware discovered in the wild❗️<a href='https://techblock.club/?p=10159'> link</a>
 
-👉🏿Mobile & Programmers: The Industry of Apps❗️<a href='https://techblock.club/?p=10141'> link</a>
+👉🏿Sonos event on March 9 confirmed: Headphones, Move Mini or something else?❗️<a href='https://techblock.club/?p=10161'> link</a>
 
-👉Apple May Launch 7-Inch Foldable iPhone With Apple Pencil Support in 2023❗️<a href='https://techblock.club/?p=10143'> link</a>
+👉Today's Tech News: Sandes app on iOS, Redmi Note 10 and Realme Narzo 30 series teased❗️<a href='https://techblock.club/?p=10163'> link</a>
 
-👉🏽Pixels may gain face-based auto-rotate with Android 12❗️<a href='https://techblock.club/?p=10145'> link</a>
+👉🏽Titleist TSi metalwoods add new drivers, fairway woods, hybrids matched to specific player types❗️<a href='https://techblock.club/?p=10165'> link</a>
 
-👉🏿There's Some Big Changes Coming To Picture-In-Picture In Android 12❗️<a href='https://techblock.club/?p=10147'> link</a>
+👉🏿This might be our first look at Apple's blazing-fast next-gen M1X chip❗️<a href='https://techblock.club/?p=10167'> link</a>
 
