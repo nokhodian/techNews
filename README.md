@@ -1,20 +1,20 @@
-<b>Technology NEWS on Wednesday, February 17th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Thursday, February 18th, 2021</b> 📡📡📡 
 
-👉Optoma HD146X Review❗️<a href='https://techblock.club/?p=10151'> link</a>
+👉Ava Duvernay talks inclusion initiative in Hollywood, "Queen Sugar," and remembering Cicely Tyson❗️<a href='https://techblock.club/?p=10171'> link</a>
 
-👉🏽PlayStation 5 makes the Nioh Collection better than ever: review❗️<a href='https://techblock.club/?p=10153'> link</a>
+👉🏽Hurry! This Dyson vacuum cleaner is 55% off right now❗️<a href='https://techblock.club/?p=10173'> link</a>
 
-👉🏿Xbox launches Gaming Accessibility Testing Service to make games more disability friendly❗️<a href='https://techblock.club/?p=10155'> link</a>
+👉🏿iOS 14.5 beta 2 adds 200 new emojis — the black headphones get an AirPods Max-inspired upgrade❗️<a href='https://techblock.club/?p=10175'> link</a>
 
-👉Manus Announces SteamVR Tracker for Professional Creators, Pre-orders Now Open❗️<a href='https://techblock.club/?p=10157'> link</a>
+👉Project Triangle Strategy Is Final Fantasy Tactics Refined For a Modern Audience❗️<a href='https://techblock.club/?p=10177'> link</a>
 
-👉🏽First Apple Silicon M1 malware discovered in the wild❗️<a href='https://techblock.club/?p=10159'> link</a>
+👉🏽Fall Guys: Ultimate Knockout is coming to Xbox Series X / S and Xbox One❗️<a href='https://techblock.club/?p=10179'> link</a>
 
-👉🏿Sonos event on March 9 confirmed: Headphones, Move Mini or something else?❗️<a href='https://techblock.club/?p=10161'> link</a>
+👉🏿Blackmagic Design throws down the gauntlet, reveals Pocket Cinema 6K Pro❗️<a href='https://techblock.club/?p=10181'> link</a>
 
-👉Today's Tech News: Sandes app on iOS, Redmi Note 10 and Realme Narzo 30 series teased❗️<a href='https://techblock.club/?p=10163'> link</a>
+👉Amazon's Fire 7 Kids Edition is cheaper than ever at $60❗️<a href='https://techblock.club/?p=10183'> link</a>
 
-👉🏽Titleist TSi metalwoods add new drivers, fairway woods, hybrids matched to specific player types❗️<a href='https://techblock.club/?p=10165'> link</a>
+👉🏽Nintendo Download: 18th February (North America)❗️<a href='https://techblock.club/?p=10185'> link</a>
 
-👉🏿This might be our first look at Apple's blazing-fast next-gen M1X chip❗️<a href='https://techblock.club/?p=10167'> link</a>
+👉🏿Are you geared up for the epic adventure of Bravely Default II?❗️<a href='https://techblock.club/?p=10187'> link</a>
 
