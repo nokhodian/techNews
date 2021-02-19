@@ -1,20 +1,20 @@
-<b>Technology NEWS on Thursday, February 18th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Friday, February 19th, 2021</b> 📡📡📡 
 
-👉Ava Duvernay talks inclusion initiative in Hollywood, "Queen Sugar," and remembering Cicely Tyson❗️<a href='https://techblock.club/?p=10171'> link</a>
+👉Valheim for Xbox, PS4 & PS5: Release date, everything we know❗️<a href='https://techblock.club/?p=10191'> link</a>
 
-👉🏽Hurry! This Dyson vacuum cleaner is 55% off right now❗️<a href='https://techblock.club/?p=10173'> link</a>
+👉🏽'Fortnite' FNCS Qualifier 2 Start Time, Format, Leaderboard and How to Watch❗️<a href='https://techblock.club/?p=10193'> link</a>
 
-👉🏿iOS 14.5 beta 2 adds 200 new emojis — the black headphones get an AirPods Max-inspired upgrade❗️<a href='https://techblock.club/?p=10175'> link</a>
+👉🏿Google adds 50 new education focussed features to Classroom, Meet❗️<a href='https://techblock.club/?p=10195'> link</a>
 
-👉Project Triangle Strategy Is Final Fantasy Tactics Refined For a Modern Audience❗️<a href='https://techblock.club/?p=10177'> link</a>
+👉The new iRobot Roomba 694 is the robot vacuum you want to buy in 2021❗️<a href='https://techblock.club/?p=10197'> link</a>
 
-👉🏽Fall Guys: Ultimate Knockout is coming to Xbox Series X / S and Xbox One❗️<a href='https://techblock.club/?p=10179'> link</a>
+👉🏽Apple's Magic Keyboard is still $100 off at several retailers❗️<a href='https://techblock.club/?p=10199'> link</a>
 
-👉🏿Blackmagic Design throws down the gauntlet, reveals Pocket Cinema 6K Pro❗️<a href='https://techblock.club/?p=10181'> link</a>
+👉🏿OnePlus 9 Pro Tipped To Bring An Improved Display❗️<a href='https://techblock.club/?p=10201'> link</a>
 
-👉Amazon's Fire 7 Kids Edition is cheaper than ever at $60❗️<a href='https://techblock.club/?p=10183'> link</a>
+👉How do I use Apple Pay on my iPhone?❗️<a href='https://techblock.club/?p=10203'> link</a>
 
-👉🏽Nintendo Download: 18th February (North America)❗️<a href='https://techblock.club/?p=10185'> link</a>
+👉🏽New Samsung Galaxy Watch just leaked — and it might run Wear OS❗️<a href='https://techblock.club/?p=10205'> link</a>
 
-👉🏿Are you geared up for the epic adventure of Bravely Default II?❗️<a href='https://techblock.club/?p=10187'> link</a>
+👉🏿Bungie Is Looking To Expand The Destiny 2 Universe❗️<a href='https://techblock.club/?p=10207'> link</a>
 
