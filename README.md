@@ -1,20 +1,20 @@
-<b>Technology NEWS on Friday, February 19th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Saturday, February 20th, 2021</b> 📡📡📡 
 
-👉Valheim for Xbox, PS4 & PS5: Release date, everything we know❗️<a href='https://techblock.club/?p=10191'> link</a>
+👉Elden Ring Has Received a Placeholder Rating❗️<a href='https://techblock.club/?p=10211'> link</a>
 
-👉🏽'Fortnite' FNCS Qualifier 2 Start Time, Format, Leaderboard and How to Watch❗️<a href='https://techblock.club/?p=10193'> link</a>
+👉🏽This Smart Light is Sleek, Chic, and Powered by Amazon Alexa❗️<a href='https://techblock.club/?p=10213'> link</a>
 
-👉🏿Google adds 50 new education focussed features to Classroom, Meet❗️<a href='https://techblock.club/?p=10195'> link</a>
+👉🏿Rare's Cancelled N64 Project Dinosaur Planet Has Been Leaked Online❗️<a href='https://techblock.club/?p=10215'> link</a>
 
-👉The new iRobot Roomba 694 is the robot vacuum you want to buy in 2021❗️<a href='https://techblock.club/?p=10197'> link</a>
+👉How PVP works in the open worlds of 'Diablo 4'❗️<a href='https://techblock.club/?p=10217'> link</a>
 
-👉🏽Apple's Magic Keyboard is still $100 off at several retailers❗️<a href='https://techblock.club/?p=10199'> link</a>
+👉🏽Nubia Red Magic 6 launch date revealed❗️<a href='https://techblock.club/?p=10219'> link</a>
 
-👉🏿OnePlus 9 Pro Tipped To Bring An Improved Display❗️<a href='https://techblock.club/?p=10201'> link</a>
+👉🏿Top Stories: More iOS 14.5 Beta Changes, iPhone 13 Rumors, Apple Watch Charging Issue Fixed❗️<a href='https://techblock.club/?p=10221'> link</a>
 
-👉How do I use Apple Pay on my iPhone?❗️<a href='https://techblock.club/?p=10203'> link</a>
+👉Wyze Robot Vacuum review: Efficiency without the pricey cost❗️<a href='https://techblock.club/?p=10223'> link</a>
 
-👉🏽New Samsung Galaxy Watch just leaked — and it might run Wear OS❗️<a href='https://techblock.club/?p=10205'> link</a>
+👉🏽We need more Nintendo Switch games – but these ports won't cut it❗️<a href='https://techblock.club/?p=10225'> link</a>
 
-👉🏿Bungie Is Looking To Expand The Destiny 2 Universe❗️<a href='https://techblock.club/?p=10207'> link</a>
+👉🏿The best hair growth products for 2021❗️<a href='https://techblock.club/?p=10227'> link</a>
 
