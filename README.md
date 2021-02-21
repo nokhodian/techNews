@@ -1,20 +1,20 @@
-<b>Technology NEWS on Saturday, February 20th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Sunday, February 21st, 2021</b> 📡📡📡 
 
-👉Elden Ring Has Received a Placeholder Rating❗️<a href='https://techblock.club/?p=10211'> link</a>
+👉Amazon lets customers vote on new Alexa devices❗️<a href='https://techblock.club/?p=10231'> link</a>
 
-👉🏽This Smart Light is Sleek, Chic, and Powered by Amazon Alexa❗️<a href='https://techblock.club/?p=10213'> link</a>
+👉🏽Supposed 'AirPods 3' photo hints at flat-sided stem changes❗️<a href='https://techblock.club/?p=10233'> link</a>
 
-👉🏿Rare's Cancelled N64 Project Dinosaur Planet Has Been Leaked Online❗️<a href='https://techblock.club/?p=10215'> link</a>
+👉🏿'Valheim' Guide: How to Find and Mine Every Type of Metal; Plus Player Recreates 'Skyrim's' High Hrothgar❗️<a href='https://techblock.club/?p=10235'> link</a>
 
-👉How PVP works in the open worlds of 'Diablo 4'❗️<a href='https://techblock.club/?p=10217'> link</a>
+👉FFAR “secret” weapon changes in Warzone debunked by YouTuber JGOD❗️<a href='https://techblock.club/?p=10237'> link</a>
 
-👉🏽Nubia Red Magic 6 launch date revealed❗️<a href='https://techblock.club/?p=10219'> link</a>
+👉🏽How to Adjust Keyboard Brightness on MacBook Air❗️<a href='https://techblock.club/?p=10239'> link</a>
 
-👉🏿Top Stories: More iOS 14.5 Beta Changes, iPhone 13 Rumors, Apple Watch Charging Issue Fixed❗️<a href='https://techblock.club/?p=10221'> link</a>
+👉🏿Facebook adds multi-user, app-sharing features to Oculus Quest❗️<a href='https://techblock.club/?p=10241'> link</a>
 
-👉Wyze Robot Vacuum review: Efficiency without the pricey cost❗️<a href='https://techblock.club/?p=10223'> link</a>
+👉iOS 14.4's best iPhone and iPad features: 17 things you'll use every day❗️<a href='https://techblock.club/?p=10243'> link</a>
 
-👉🏽We need more Nintendo Switch games – but these ports won't cut it❗️<a href='https://techblock.club/?p=10225'> link</a>
+👉🏽The best Xbox Game Pass games to play now❗️<a href='https://techblock.club/?p=10245'> link</a>
 
-👉🏿The best hair growth products for 2021❗️<a href='https://techblock.club/?p=10227'> link</a>
+👉🏿Apple Spring event is coming — but when will we see new iPad Pro, iPad mini 6 and AirTags?❗️<a href='https://techblock.club/?p=10247'> link</a>
 
