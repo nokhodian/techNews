@@ -1,20 +1,20 @@
-<b>Technology NEWS on Sunday, February 21st, 2021</b> 📡📡📡 
+<b>Technology NEWS on Monday, February 22nd, 2021</b> 📡📡📡 
 
-👉Amazon lets customers vote on new Alexa devices❗️<a href='https://techblock.club/?p=10231'> link</a>
+👉Final Fantasy XVI Story New Hints – What Did Naoki Yoshida Say?❗️<a href='https://techblock.club/?p=10251'> link</a>
 
-👉🏽Supposed 'AirPods 3' photo hints at flat-sided stem changes❗️<a href='https://techblock.club/?p=10233'> link</a>
+👉🏽Test drive: The 2021 GMC Yukon Diesel is built for the long haul, but may be short-lived❗️<a href='https://techblock.club/?p=10253'> link</a>
 
-👉🏿'Valheim' Guide: How to Find and Mine Every Type of Metal; Plus Player Recreates 'Skyrim's' High Hrothgar❗️<a href='https://techblock.club/?p=10235'> link</a>
+👉🏿'Resident Evil: Village' Producer Confirms the Game is Heavily Inspired by 'Resident Evil 4'❗️<a href='https://techblock.club/?p=10255'> link</a>
 
-👉FFAR “secret” weapon changes in Warzone debunked by YouTuber JGOD❗️<a href='https://techblock.club/?p=10237'> link</a>
+👉Samsung security updates extended for these Galaxy phones & tablets❗️<a href='https://techblock.club/?p=10257'> link</a>
 
-👉🏽How to Adjust Keyboard Brightness on MacBook Air❗️<a href='https://techblock.club/?p=10239'> link</a>
+👉🏽We could have got a female Doom Slayer in Doom Eternal❗️<a href='https://techblock.club/?p=10259'> link</a>
 
-👉🏿Facebook adds multi-user, app-sharing features to Oculus Quest❗️<a href='https://techblock.club/?p=10241'> link</a>
+👉🏿Ubisoft's 'Rainbow Six Siege' to Feature New Updates With New Operator Named Flores: Upcoming New Skin From ...❗️<a href='https://techblock.club/?p=10261'> link</a>
 
-👉iOS 14.4's best iPhone and iPad features: 17 things you'll use every day❗️<a href='https://techblock.club/?p=10243'> link</a>
+👉Razer Blade 15 Vs. Blade Stealth 13: Gaming Laptop Vs. Gaming Ultrabook❗️<a href='https://techblock.club/?p=10263'> link</a>
 
-👉🏽The best Xbox Game Pass games to play now❗️<a href='https://techblock.club/?p=10245'> link</a>
+👉🏽Avalanche Studios is Working on an Unannounced Open World AAA Multiplayer Game❗️<a href='https://techblock.club/?p=10265'> link</a>
 
-👉🏿Apple Spring event is coming — but when will we see new iPad Pro, iPad mini 6 and AirTags?❗️<a href='https://techblock.club/?p=10247'> link</a>
+👉🏿ECG Support For Galaxy Watch 3, Watch Active 2 Rolling Out In 31 Countries❗️<a href='https://techblock.club/?p=10267'> link</a>
 
