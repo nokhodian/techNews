@@ -1,20 +1,20 @@
-<b>Technology NEWS on Monday, February 22nd, 2021</b> 📡📡📡 
+<b>Technology NEWS on Tuesday, February 23rd, 2021</b> 📡📡📡 
 
-👉Final Fantasy XVI Story New Hints – What Did Naoki Yoshida Say?❗️<a href='https://techblock.club/?p=10251'> link</a>
+👉Facebook will restore news in Australia after talks with the government❗️<a href='https://techblock.club/?p=10271'> link</a>
 
-👉🏽Test drive: The 2021 GMC Yukon Diesel is built for the long haul, but may be short-lived❗️<a href='https://techblock.club/?p=10253'> link</a>
+👉🏽Sony is working on a new PlayStation VR headset for PS5❗️<a href='https://techblock.club/?p=10273'> link</a>
 
-👉🏿'Resident Evil: Village' Producer Confirms the Game is Heavily Inspired by 'Resident Evil 4'❗️<a href='https://techblock.club/?p=10255'> link</a>
+👉🏿Did You Sign Up for an App Through Apple? How to Unsubscribe on iPhone, iPad, or PC❗️<a href='https://techblock.club/?p=10275'> link</a>
 
-👉Samsung security updates extended for these Galaxy phones & tablets❗️<a href='https://techblock.club/?p=10257'> link</a>
+👉Spotify is launching in 85 new countries: Here's the full list❗️<a href='https://techblock.club/?p=10277'> link</a>
 
-👉🏽We could have got a female Doom Slayer in Doom Eternal❗️<a href='https://techblock.club/?p=10259'> link</a>
+👉🏽Revised Guidelines for Breast Thermology Released By The American Academy of Thermology❗️<a href='https://techblock.club/?p=10279'> link</a>
 
-👉🏿Ubisoft's 'Rainbow Six Siege' to Feature New Updates With New Operator Named Flores: Upcoming New Skin From ...❗️<a href='https://techblock.club/?p=10261'> link</a>
+👉🏿Yakuza's Producer Interested In Bringing Japan-Only Kenzan & Ishin To The West❗️<a href='https://techblock.club/?p=10281'> link</a>
 
-👉Razer Blade 15 Vs. Blade Stealth 13: Gaming Laptop Vs. Gaming Ultrabook❗️<a href='https://techblock.club/?p=10263'> link</a>
+👉Forget Galaxy Z Fold 3: Oppo rollable phone looks stunning in these hands-on videos❗️<a href='https://techblock.club/?p=10283'> link</a>
 
-👉🏽Avalanche Studios is Working on an Unannounced Open World AAA Multiplayer Game❗️<a href='https://techblock.club/?p=10265'> link</a>
+👉🏽Firefox's Total Cookie Protection aims to stop tracking between multiple sites❗️<a href='https://techblock.club/?p=10285'> link</a>
 
-👉🏿ECG Support For Galaxy Watch 3, Watch Active 2 Rolling Out In 31 Countries❗️<a href='https://techblock.club/?p=10267'> link</a>
+👉🏿Sega Denies It Has Anything To Do With Crazy Taxi Clone Taxi Chaos❗️<a href='https://techblock.club/?p=10287'> link</a>
 
