@@ -1,20 +1,20 @@
-<b>Technology NEWS on Tuesday, February 23rd, 2021</b> 📡📡📡 
+<b>Technology NEWS on Wednesday, February 24th, 2021</b> 📡📡📡 
 
-👉Facebook will restore news in Australia after talks with the government❗️<a href='https://techblock.club/?p=10271'> link</a>
+👉A retro-futuristic action-adventure game Narita Boy gets a launch date❗️<a href='https://techblock.club/?p=10291'> link</a>
 
-👉🏽Sony is working on a new PlayStation VR headset for PS5❗️<a href='https://techblock.club/?p=10273'> link</a>
+👉🏽Void Terrarium++ for PS5 Announced & Dated for the West❗️<a href='https://techblock.club/?p=10293'> link</a>
 
-👉🏿Did You Sign Up for an App Through Apple? How to Unsubscribe on iPhone, iPad, or PC❗️<a href='https://techblock.club/?p=10275'> link</a>
+👉🏿Mario Kart 9 Racers Nintendo Should Definitely Include❗️<a href='https://techblock.club/?p=10295'> link</a>
 
-👉Spotify is launching in 85 new countries: Here's the full list❗️<a href='https://techblock.club/?p=10277'> link</a>
+👉Deals: Anker's MagSafe-Compatible Wireless Charger Drops to $15.99 Today on Amazon❗️<a href='https://techblock.club/?p=10297'> link</a>
 
-👉🏽Revised Guidelines for Breast Thermology Released By The American Academy of Thermology❗️<a href='https://techblock.club/?p=10279'> link</a>
+👉🏽Realme expands portfolio with budget 5G phone, ANC earbuds, and gaming accessories❗️<a href='https://techblock.club/?p=10299'> link</a>
 
-👉🏿Yakuza's Producer Interested In Bringing Japan-Only Kenzan & Ishin To The West❗️<a href='https://techblock.club/?p=10281'> link</a>
+👉🏿M1 MacBook SSDs are facing a big problem — and it could kill your laptop❗️<a href='https://techblock.club/?p=10301'> link</a>
 
-👉Forget Galaxy Z Fold 3: Oppo rollable phone looks stunning in these hands-on videos❗️<a href='https://techblock.club/?p=10283'> link</a>
+👉YouTube's 'supervised experiences' help parents choose what content their kids can see❗️<a href='https://techblock.club/?p=10303'> link</a>
 
-👉🏽Firefox's Total Cookie Protection aims to stop tracking between multiple sites❗️<a href='https://techblock.club/?p=10285'> link</a>
+👉🏽'Call of Duty: Black Ops Cold War' Season 2 Release: What Time Does It Start❗️<a href='https://techblock.club/?p=10305'> link</a>
 
-👉🏿Sega Denies It Has Anything To Do With Crazy Taxi Clone Taxi Chaos❗️<a href='https://techblock.club/?p=10287'> link</a>
+👉🏿Ring's new Video Doorbell Pro 2 captures a taller image and has enhanced motion detection❗️<a href='https://techblock.club/?p=10307'> link</a>
 
