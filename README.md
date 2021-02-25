@@ -1,20 +1,20 @@
-<b>Technology NEWS on Wednesday, February 24th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Thursday, February 25th, 2021</b> 📡📡📡 
 
-👉A retro-futuristic action-adventure game Narita Boy gets a launch date❗️<a href='https://techblock.club/?p=10291'> link</a>
+👉Despite Cyberpunk 2077's Disasters, Don't Rule Out A Revival❗️<a href='https://techblock.club/?p=10311'> link</a>
 
-👉🏽Void Terrarium++ for PS5 Announced & Dated for the West❗️<a href='https://techblock.club/?p=10293'> link</a>
+👉🏽Zoom will launch automatic closed captioning for all free accounts❗️<a href='https://techblock.club/?p=10313'> link</a>
 
-👉🏿Mario Kart 9 Racers Nintendo Should Definitely Include❗️<a href='https://techblock.club/?p=10295'> link</a>
+👉🏿Huawei shows us what a foldable smartphone should be like with the Mate X2❗️<a href='https://techblock.club/?p=10315'> link</a>
 
-👉Deals: Anker's MagSafe-Compatible Wireless Charger Drops to $15.99 Today on Amazon❗️<a href='https://techblock.club/?p=10297'> link</a>
+👉Jet Set Radio's Legacy Lives On In This Official Trailer For Bomb Rush Cyberfunk❗️<a href='https://techblock.club/?p=10317'> link</a>
 
-👉🏽Realme expands portfolio with budget 5G phone, ANC earbuds, and gaming accessories❗️<a href='https://techblock.club/?p=10299'> link</a>
+👉🏽'Hey Google' hotword on Wear OS has been broken for months; Google is working on a fix [Updated]❗️<a href='https://techblock.club/?p=10319'> link</a>
 
-👉🏿M1 MacBook SSDs are facing a big problem — and it could kill your laptop❗️<a href='https://techblock.club/?p=10301'> link</a>
+👉🏿Huawei releases EMUI 11 stable update for Mate 20 series❗️<a href='https://techblock.club/?p=10321'> link</a>
 
-👉YouTube's 'supervised experiences' help parents choose what content their kids can see❗️<a href='https://techblock.club/?p=10303'> link</a>
+👉Mattel & Milestone Join Forces for Hot Wheels Game❗️<a href='https://techblock.club/?p=10323'> link</a>
 
-👉🏽'Call of Duty: Black Ops Cold War' Season 2 Release: What Time Does It Start❗️<a href='https://techblock.club/?p=10305'> link</a>
+👉🏽After Nearly a Decade Away, Ruffles Returns to TV❗️<a href='https://techblock.club/?p=10325'> link</a>
 
-👉🏿Ring's new Video Doorbell Pro 2 captures a taller image and has enhanced motion detection❗️<a href='https://techblock.club/?p=10307'> link</a>
+👉🏿Microsoft: Now you can turn a Word doc into a visual PowerPoint presentation❗️<a href='https://techblock.club/?p=10327'> link</a>
 
