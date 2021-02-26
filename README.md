@@ -1,20 +1,20 @@
-<b>Technology NEWS on Thursday, February 25th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Friday, February 26th, 2021</b> 📡📡📡 
 
-👉Despite Cyberpunk 2077's Disasters, Don't Rule Out A Revival❗️<a href='https://techblock.club/?p=10311'> link</a>
+👉Pokémon Company Reveals Pokémon Legends Arceus; Slated for 2022 Release❗️<a href='https://techblock.club/?p=10331'> link</a>
 
-👉🏽Zoom will launch automatic closed captioning for all free accounts❗️<a href='https://techblock.club/?p=10313'> link</a>
+👉🏽Pokémon Legends Arceus Is A New Open-World Game Coming In 2022❗️<a href='https://techblock.club/?p=10333'> link</a>
 
-👉🏿Huawei shows us what a foldable smartphone should be like with the Mate X2❗️<a href='https://techblock.club/?p=10315'> link</a>
+👉🏿Google Judge Disturbed That Even 'Incognito' Users Are Tracked❗️<a href='https://techblock.club/?p=10335'> link</a>
 
-👉Jet Set Radio's Legacy Lives On In This Official Trailer For Bomb Rush Cyberfunk❗️<a href='https://techblock.club/?p=10317'> link</a>
+👉The best shampoo for every hair type❗️<a href='https://techblock.club/?p=10337'> link</a>
 
-👉🏽'Hey Google' hotword on Wear OS has been broken for months; Google is working on a fix [Updated]❗️<a href='https://techblock.club/?p=10319'> link</a>
+👉🏽New Volkswagen Golf GTI Clubsport 45 launched❗️<a href='https://techblock.club/?p=10339'> link</a>
 
-👉🏿Huawei releases EMUI 11 stable update for Mate 20 series❗️<a href='https://techblock.club/?p=10321'> link</a>
+👉🏿Facebook's smart glasses may have facial recognition built-in – but employees are worried about 'stalkers'❗️<a href='https://techblock.club/?p=10341'> link</a>
 
-👉Mattel & Milestone Join Forces for Hot Wheels Game❗️<a href='https://techblock.club/?p=10323'> link</a>
+👉Destruction AllStars will stop being free – life after PS Plus includes a new price❗️<a href='https://techblock.club/?p=10343'> link</a>
 
-👉🏽After Nearly a Decade Away, Ruffles Returns to TV❗️<a href='https://techblock.club/?p=10325'> link</a>
+👉🏽GameStop Reveals Tax Day Sale❗️<a href='https://techblock.club/?p=10345'> link</a>
 
-👉🏿Microsoft: Now you can turn a Word doc into a visual PowerPoint presentation❗️<a href='https://techblock.club/?p=10327'> link</a>
+👉🏿Ever have 'Zoom fatigue?' These are the causes and how to fix them, researchers say❗️<a href='https://techblock.club/?p=10347'> link</a>
 
