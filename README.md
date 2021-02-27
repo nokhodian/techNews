@@ -1,20 +1,20 @@
-<b>Technology NEWS on Friday, February 26th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Saturday, February 27th, 2021</b> 📡📡📡 
 
-👉Pokémon Company Reveals Pokémon Legends Arceus; Slated for 2022 Release❗️<a href='https://techblock.club/?p=10331'> link</a>
+👉Things That Rockstar Needs To Improve In GTA Online (But Probably Won't)❗️<a href='https://techblock.club/?p=10351'> link</a>
 
-👉🏽Pokémon Legends Arceus Is A New Open-World Game Coming In 2022❗️<a href='https://techblock.club/?p=10333'> link</a>
+👉🏽Cadillac Planning Other V-Series, Blackwing Vehicles❗️<a href='https://techblock.club/?p=10353'> link</a>
 
-👉🏿Google Judge Disturbed That Even 'Incognito' Users Are Tracked❗️<a href='https://techblock.club/?p=10335'> link</a>
+👉🏿TCG Spotlight: Some Of The Best Zapdos Pokémon Cards❗️<a href='https://techblock.club/?p=10355'> link</a>
 
-👉The best shampoo for every hair type❗️<a href='https://techblock.club/?p=10337'> link</a>
+👉Elden Ring Update Coming March According to Insider❗️<a href='https://techblock.club/?p=10357'> link</a>
 
-👉🏽New Volkswagen Golf GTI Clubsport 45 launched❗️<a href='https://techblock.club/?p=10339'> link</a>
+👉🏽Panzer Dragoon II Zwei: Remake Takes Flight This Year❗️<a href='https://techblock.club/?p=10359'> link</a>
 
-👉🏿Facebook's smart glasses may have facial recognition built-in – but employees are worried about 'stalkers'❗️<a href='https://techblock.club/?p=10341'> link</a>
+👉🏿Google Stadia Spent "Tens Of Millions Of Dollars" For Games Like Red Dead Redemption 2, Report Says❗️<a href='https://techblock.club/?p=10361'> link</a>
 
-👉Destruction AllStars will stop being free – life after PS Plus includes a new price❗️<a href='https://techblock.club/?p=10343'> link</a>
+👉Ranking The Four Classes Of The 'Outriders' Demo, So Far❗️<a href='https://techblock.club/?p=10363'> link</a>
 
-👉🏽GameStop Reveals Tax Day Sale❗️<a href='https://techblock.club/?p=10345'> link</a>
+👉🏽How to schedule text messages on your Android phone❗️<a href='https://techblock.club/?p=10365'> link</a>
 
-👉🏿Ever have 'Zoom fatigue?' These are the causes and how to fix them, researchers say❗️<a href='https://techblock.club/?p=10347'> link</a>
+👉🏿It's Pokemon Day and Destructoid wants to know your favorite Pokemon spin-off❗️<a href='https://techblock.club/?p=10367'> link</a>
 
