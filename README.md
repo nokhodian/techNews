@@ -1,20 +1,20 @@
-<b>Technology NEWS on Saturday, February 27th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Sunday, February 28th, 2021</b> 📡📡📡 
 
-👉Things That Rockstar Needs To Improve In GTA Online (But Probably Won't)❗️<a href='https://techblock.club/?p=10351'> link</a>
+👉Why Tony Hawk's Pro Skater 1+2 is going to be awesome on Nintendo Switch❗️<a href='https://techblock.club/?p=10371'> link</a>
 
-👉🏽Cadillac Planning Other V-Series, Blackwing Vehicles❗️<a href='https://techblock.club/?p=10353'> link</a>
+👉🏽Rockstar Changes How PS Plus Members Get Free Money In GTA Online❗️<a href='https://techblock.club/?p=10373'> link</a>
 
-👉🏿TCG Spotlight: Some Of The Best Zapdos Pokémon Cards❗️<a href='https://techblock.club/?p=10355'> link</a>
+👉🏿Paul Bettany Was Trolling Us With Teased 'WandaVision' Actor Cameo❗️<a href='https://techblock.club/?p=10375'> link</a>
 
-👉Elden Ring Update Coming March According to Insider❗️<a href='https://techblock.club/?p=10357'> link</a>
+👉PS Plus: Everything You Need to Know About March 2021's Free Games❗️<a href='https://techblock.club/?p=10377'> link</a>
 
-👉🏽Panzer Dragoon II Zwei: Remake Takes Flight This Year❗️<a href='https://techblock.club/?p=10359'> link</a>
+👉🏽How to Record Calls on Samsung Galaxy Phones❗️<a href='https://techblock.club/?p=10379'> link</a>
 
-👉🏿Google Stadia Spent "Tens Of Millions Of Dollars" For Games Like Red Dead Redemption 2, Report Says❗️<a href='https://techblock.club/?p=10361'> link</a>
+👉🏿Intel's unreleased i7-11700K is being sold and shipped in Germany❗️<a href='https://techblock.club/?p=10381'> link</a>
 
-👉Ranking The Four Classes Of The 'Outriders' Demo, So Far❗️<a href='https://techblock.club/?p=10363'> link</a>
+👉Get the most out of your Galaxy S21 Ultra with these 10 apps and features❗️<a href='https://techblock.club/?p=10383'> link</a>
 
-👉🏽How to schedule text messages on your Android phone❗️<a href='https://techblock.club/?p=10365'> link</a>
+👉🏽Framework Laptop is an easily upgradeable 13.5-inch notebook coming this summer❗️<a href='https://techblock.club/?p=10385'> link</a>
 
-👉🏿It's Pokemon Day and Destructoid wants to know your favorite Pokemon spin-off❗️<a href='https://techblock.club/?p=10367'> link</a>
+👉🏿Why you should be playing Valheim❗️<a href='https://techblock.club/?p=10387'> link</a>
 
