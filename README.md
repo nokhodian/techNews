@@ -1,20 +1,20 @@
-<b>Technology NEWS on Sunday, February 28th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Monday, March 1st, 2021</b> 📡📡📡 
 
-👉Why Tony Hawk's Pro Skater 1+2 is going to be awesome on Nintendo Switch❗️<a href='https://techblock.club/?p=10371'> link</a>
+👉In A Twitter Video, President Joe Biden Shows His Support For Amazon Workers' Attempt To Unionize❗️<a href='https://techblock.club/?p=10391'> link</a>
 
-👉🏽Rockstar Changes How PS Plus Members Get Free Money In GTA Online❗️<a href='https://techblock.club/?p=10373'> link</a>
+👉🏽Spider-Man: Miles Morales Climbs UK Charts Thanks to PS5 Stock Surge❗️<a href='https://techblock.club/?p=10393'> link</a>
 
-👉🏿Paul Bettany Was Trolling Us With Teased 'WandaVision' Actor Cameo❗️<a href='https://techblock.club/?p=10375'> link</a>
+👉🏿Oppo Find X3 Pro launch date officially set for March 11❗️<a href='https://techblock.club/?p=10395'> link</a>
 
-👉PS Plus: Everything You Need to Know About March 2021's Free Games❗️<a href='https://techblock.club/?p=10377'> link</a>
+👉Don't want to spend $39 on Apple's MagSafe iPhone charger? Here are 5 popular alternatives❗️<a href='https://techblock.club/?p=10397'> link</a>
 
-👉🏽How to Record Calls on Samsung Galaxy Phones❗️<a href='https://techblock.club/?p=10379'> link</a>
+👉🏽Nintendo Switch game releases for March 2021: What's new for console and Switch Online❗️<a href='https://techblock.club/?p=10399'> link</a>
 
-👉🏿Intel's unreleased i7-11700K is being sold and shipped in Germany❗️<a href='https://techblock.club/?p=10381'> link</a>
+👉🏿Google Chat for web is now rolling out to personal accounts❗️<a href='https://techblock.club/?p=10401'> link</a>
 
-👉Get the most out of your Galaxy S21 Ultra with these 10 apps and features❗️<a href='https://techblock.club/?p=10383'> link</a>
+👉Why has Trials of Osiris been disabled in Destiny 2?❗️<a href='https://techblock.club/?p=10403'> link</a>
 
-👉🏽Framework Laptop is an easily upgradeable 13.5-inch notebook coming this summer❗️<a href='https://techblock.club/?p=10385'> link</a>
+👉🏽Forever Entertainment to release remakes based on one Square Enix IP❗️<a href='https://techblock.club/?p=10405'> link</a>
 
-👉🏿Why you should be playing Valheim❗️<a href='https://techblock.club/?p=10387'> link</a>
+👉🏿Final Fantasy VII Remake Intergrade Won't Fully Utilize PS5 Tech, Part 2 Will Use All Features❗️<a href='https://techblock.club/?p=10407'> link</a>
 
