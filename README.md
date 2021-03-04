@@ -1,20 +1,20 @@
-<b>Technology NEWS on Wednesday, March 3rd, 2021</b> 📡📡📡 
+<b>Technology NEWS on Thursday, March 4th, 2021</b> 📡📡📡 
 
-👉This HP Chromebook is at its lowest price ever today at Amazon❗️<a href='https://techblock.club/?p=10431'> link</a>
+👉GTA Online Standalone Is Coming Due To GTA 5 Sales Saturation❗️<a href='https://techblock.club/?p=10451'> link</a>
 
-👉🏽Spotify Podcast Listeners to Overtake Apple This Year❗️<a href='https://techblock.club/?p=10433'> link</a>
+👉🏽MLB The Show 21 Gives Us A Deep Dive On The PS5 Exclusive Stadium Creator Mode❗️<a href='https://techblock.club/?p=10453'> link</a>
 
-👉🏿Clubhouse competitor: Twitter launches rival audio chat rooms feature Spaces on Android❗️<a href='https://techblock.club/?p=10435'> link</a>
+👉🏿Square, Inc. to buy majority of Tidal and put Jay-Z on board❗️<a href='https://techblock.club/?p=10455'> link</a>
 
-👉'Smash Ultimate' Pyra/Mythra Stream: Start Time, Release Date and How to Watch❗️<a href='https://techblock.club/?p=10437'> link</a>
+👉Facebook says its new Instagram-trained AI represents a big leap forward for computer vision❗️<a href='https://techblock.club/?p=10457'> link</a>
 
-👉🏽Today only: Save $100+ on Intel's Core i9-10900K and Core i5-10600K❗️<a href='https://techblock.club/?p=10439'> link</a>
+👉🏽Motorsport Games acquires racing simulation tech developer Studio397❗️<a href='https://techblock.club/?p=10459'> link</a>
 
-👉🏿Red Hat's survey results on the state of enterprise open-source software❗️<a href='https://techblock.club/?p=10441'> link</a>
+👉🏿Blade & Soul Unreal Engine 4 upgrade coming to the west❗️<a href='https://techblock.club/?p=10461'> link</a>
 
-👉NBA 2K21 Comes To Xbox Game Pass This Week On Console And Streaming❗️<a href='https://techblock.club/?p=10443'> link</a>
+👉Hitman 3 March Roadmap Revealed – Berlin Egg Hunt, New Elusive Target and More❗️<a href='https://techblock.club/?p=10463'> link</a>
 
-👉🏽"Fortnite" Creator Buys Peer Tonic Games Group❗️<a href='https://techblock.club/?p=10445'> link</a>
+👉🏽Porsche's Taycan Cross Turismo is an all-electric wagon with up to 761 hp and a 456km range❗️<a href='https://techblock.club/?p=10465'> link</a>
 
-👉🏿Google takes next steps towards 'privacy-first' web devoid of third-party cookies❗️<a href='https://techblock.club/?p=10447'> link</a>
+👉🏿Marshall Mode II Review❗️<a href='https://techblock.club/?p=10467'> link</a>
 
