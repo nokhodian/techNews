@@ -1,20 +1,20 @@
-<b>Technology NEWS on Saturday, March 6th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Sunday, March 7th, 2021</b> 📡📡📡 
 
-👉Apple's foldable iPhone is probably coming, just maybe not as soon as we'd hoped❗️<a href='https://techblock.club/?p=10491'> link</a>
+👉Bungie Wants You To "Have Some Fun" With Destiny 2's 12-Person Raid Glitch❗️<a href='https://techblock.club/?p=10511'> link</a>
 
-👉🏽OpenAI reveals human brain-like working of artificial neuron❗️<a href='https://techblock.club/?p=10493'> link</a>
+👉🏽The Division 2: New game mode in development for next major update❗️<a href='https://techblock.club/?p=10513'> link</a>
 
-👉🏿Qualcomm Leaks Snapdragon 775 to Come in Google Pixel 6 and Other Mid-Range Phones❗️<a href='https://techblock.club/?p=10495'> link</a>
+👉🏿Tomb Raider: Definitive Survivor Trilogy appears on the Microsoft Store❗️<a href='https://techblock.club/?p=10515'> link</a>
 
-👉iPad: Apple To Adopt Stunning New Design Next Year, Report Claims❗️<a href='https://techblock.club/?p=10497'> link</a>
+👉Memory Pak: Taking My First Starter Pokémon All The Way To The Elite Four❗️<a href='https://techblock.club/?p=10517'> link</a>
 
-👉🏽Inside the 23000 square-foot Apple Fitness+ studio❗️<a href='https://techblock.club/?p=10499'> link</a>
+👉🏽Five Rookie Mistakes You Should Avoid in Fortnite❗️<a href='https://techblock.club/?p=10519'> link</a>
 
-👉🏿Xbox lead Phil Spencer commends Nintendo's risk-taking in new documentary❗️<a href='https://techblock.club/?p=10501'> link</a>
+👉🏿Microsoft starts testing Edge Chromium browser on Xbox❗️<a href='https://techblock.club/?p=10521'> link</a>
 
-👉Apple Weekly Update: Apple TV woes, iPad hopes, and the iPhone 13 emerges❗️<a href='https://techblock.club/?p=10503'> link</a>
+👉AirTags, AirPods, iMacs — What to expect from a March Apple event or release❗️<a href='https://techblock.club/?p=10523'> link</a>
 
-👉🏽Google Working On 'Wolverine' Project, A Device That Enables 'superhuman Hearing'❗️<a href='https://techblock.club/?p=10505'> link</a>
+👉🏽What is an innerspring mattress?❗️<a href='https://techblock.club/?p=10525'> link</a>
 
-👉🏿New Pokémon Game Goes Off The Beaten Path❗️<a href='https://techblock.club/?p=10507'> link</a>
+👉🏿Samsung Galaxy S21 vs. S20: Which Should You Buy?❗️<a href='https://techblock.club/?p=10527'> link</a>
 
