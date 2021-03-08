@@ -1,20 +1,20 @@
-<b>Technology NEWS on Sunday, March 7th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Monday, March 8th, 2021</b> 📡📡📡 
 
-👉Bungie Wants You To "Have Some Fun" With Destiny 2's 12-Person Raid Glitch❗️<a href='https://techblock.club/?p=10511'> link</a>
+👉Fujifilm launches X-E4 digital mirrorless camera in India with two new lenses❗️<a href='https://techblock.club/?p=10531'> link</a>
 
-👉🏽The Division 2: New game mode in development for next major update❗️<a href='https://techblock.club/?p=10513'> link</a>
+👉🏽ASUS ROG Phone 5 Gaming Flagship With 18GB LPDDR5 Confirmed By SK Hynix❗️<a href='https://techblock.club/?p=10533'> link</a>
 
-👉🏿Tomb Raider: Definitive Survivor Trilogy appears on the Microsoft Store❗️<a href='https://techblock.club/?p=10515'> link</a>
+👉🏿Monster Hunter Stories 2: Wings of Ruin Coming This July, Will Have Friendly Co-op❗️<a href='https://techblock.club/?p=10535'> link</a>
 
-👉Memory Pak: Taking My First Starter Pokémon All The Way To The Elite Four❗️<a href='https://techblock.club/?p=10517'> link</a>
+👉Cardi B doll is all about inclusivity❗️<a href='https://techblock.club/?p=10537'> link</a>
 
-👉🏽Five Rookie Mistakes You Should Avoid in Fortnite❗️<a href='https://techblock.club/?p=10519'> link</a>
+👉🏽Analysts expect foldables to surge in 2021 with new devices from Google, OPPO, Vivo, and Xiaomi❗️<a href='https://techblock.club/?p=10539'> link</a>
 
-👉🏿Microsoft starts testing Edge Chromium browser on Xbox❗️<a href='https://techblock.club/?p=10521'> link</a>
+👉🏿Nioh 2 Update 1.27 Patch Notes❗️<a href='https://techblock.club/?p=10541'> link</a>
 
-👉AirTags, AirPods, iMacs — What to expect from a March Apple event or release❗️<a href='https://techblock.club/?p=10523'> link</a>
+👉Walmart presents spring collection via 'virtual home'❗️<a href='https://techblock.club/?p=10543'> link</a>
 
-👉🏽What is an innerspring mattress?❗️<a href='https://techblock.club/?p=10525'> link</a>
+👉🏽Marvel's Avengers: How to upgrade from PS4 to PS5 for free❗️<a href='https://techblock.club/?p=10545'> link</a>
 
-👉🏿Samsung Galaxy S21 vs. S20: Which Should You Buy?❗️<a href='https://techblock.club/?p=10527'> link</a>
+👉🏿Final Fantasy Composer Nobuo Uematsu May Have Written His Last Full Soundtrack❗️<a href='https://techblock.club/?p=10547'> link</a>
 
