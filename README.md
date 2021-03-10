@@ -1,20 +1,20 @@
-<b>Technology NEWS on Tuesday, March 9th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Wednesday, March 10th, 2021</b> 📡📡📡 
 
-👉Microsoft And Bethesda: 'The Elder Scrolls 6' And 'Starfield' Will Probably Be Xbox/PC Exclusive❗️<a href='https://techblock.club/?p=10551'> link</a>
+👉The best MagSafe accessories we've tried so far for iPhone 12❗️<a href='https://techblock.club/?p=10571'> link</a>
 
-👉🏽Monster Hunter Rise's New Horde Mode, The Rampage, Explained❗️<a href='https://techblock.club/?p=10553'> link</a>
+👉🏽How the ROG Phone 5's crazy controls turbocharge mobile games❗️<a href='https://techblock.club/?p=10573'> link</a>
 
-👉🏿Poco F3 launch soon: Specs, features, India price, and what we know so far❗️<a href='https://techblock.club/?p=10555'> link</a>
+👉🏿LS2 report: CERN's oldest accelerator awakens❗️<a href='https://techblock.club/?p=10575'> link</a>
 
-👉Fortnite Zero Crisis Finale Event Revealed For Season 6, And You Can't Miss It❗️<a href='https://techblock.club/?p=10557'> link</a>
+👉The 'Destiny 2' Exotic Hammer Theory❗️<a href='https://techblock.club/?p=10577'> link</a>
 
-👉🏽ASUS ROG Phone 5 Will Feature An Insane 18GB Of LPDDR5 RAM!❗️<a href='https://techblock.club/?p=10559'> link</a>
+👉🏽HTC shrinks its VR Tracker, debuts new face-tracking accessory❗️<a href='https://techblock.club/?p=10579'> link</a>
 
-👉🏿OPPO F19 Pro+ 5G Is Here With AI Highlight Portrait Video To Add Perfection To Your Videos❗️<a href='https://techblock.club/?p=10561'> link</a>
+👉🏿Astro's Playroom soundtrack coming to Spotify and Apple Music on Friday❗️<a href='https://techblock.club/?p=10581'> link</a>
 
-👉ClubTest First Look: PXG officially launches new Gen4 drivers, fairways, hybrids and irons❗️<a href='https://techblock.club/?p=10563'> link</a>
+👉The launch includes exclusive merchandise from Selena Gomez, Weezer, Lana Del Rey and more.❗️<a href='https://techblock.club/?p=10583'> link</a>
 
-👉🏽Samsung SSD 980 Review❗️<a href='https://techblock.club/?p=10565'> link</a>
+👉🏽'Valheim' devs reveal how 'Breath of the Wild' and 'Skyrim' shaped the indie hit❗️<a href='https://techblock.club/?p=10585'> link</a>
 
-👉🏿10 Things You Didn't Know About Final Fantasy 7 Remake's Development❗️<a href='https://techblock.club/?p=10567'> link</a>
+👉🏿DJI FPV Review: A powerful drone for serious pilots❗️<a href='https://techblock.club/?p=10587'> link</a>
 
