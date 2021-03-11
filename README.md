@@ -1,20 +1,20 @@
-<b>Technology NEWS on Wednesday, March 10th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Thursday, March 11th, 2021</b> 📡📡📡 
 
-👉The best MagSafe accessories we've tried so far for iPhone 12❗️<a href='https://techblock.club/?p=10571'> link</a>
+👉Apple to switch its 'Subscribe' button to 'Follow' on Podcasts❗️<a href='https://techblock.club/?p=10591'> link</a>
 
-👉🏽How the ROG Phone 5's crazy controls turbocharge mobile games❗️<a href='https://techblock.club/?p=10573'> link</a>
+👉🏽New iPad Pro launch soon: Specs, features, India price, and everything we know so far❗️<a href='https://techblock.club/?p=10593'> link</a>
 
-👉🏿LS2 report: CERN's oldest accelerator awakens❗️<a href='https://techblock.club/?p=10575'> link</a>
+👉🏿New Toyota GR Supra Jarama Racetrack Edition launched❗️<a href='https://techblock.club/?p=10595'> link</a>
 
-👉The 'Destiny 2' Exotic Hammer Theory❗️<a href='https://techblock.club/?p=10577'> link</a>
+👉HTC reveals strange Vive Pro face trackers — the future of VR is about tracking your lips❗️<a href='https://techblock.club/?p=10597'> link</a>
 
-👉🏽HTC shrinks its VR Tracker, debuts new face-tracking accessory❗️<a href='https://techblock.club/?p=10579'> link</a>
+👉🏽The 11 Best Smartwatches To Keep You Fit And Connected (And Maybe Tell The Time)❗️<a href='https://techblock.club/?p=10599'> link</a>
 
-👉🏿Astro's Playroom soundtrack coming to Spotify and Apple Music on Friday❗️<a href='https://techblock.club/?p=10581'> link</a>
+👉🏿EA investigates 'EAGate', as employee is accused of selling rare FIFA Ultimate Team cards to FIFA 21 players❗️<a href='https://techblock.club/?p=10601'> link</a>
 
-👉The launch includes exclusive merchandise from Selena Gomez, Weezer, Lana Del Rey and more.❗️<a href='https://techblock.club/?p=10583'> link</a>
+👉Microsoft's Xbox Series X / S consoles are in stock again at Target❗️<a href='https://techblock.club/?p=10603'> link</a>
 
-👉🏽'Valheim' devs reveal how 'Breath of the Wild' and 'Skyrim' shaped the indie hit❗️<a href='https://techblock.club/?p=10585'> link</a>
+👉🏽Notability's Latest Update Brings Powerful iPad Experience to Mac❗️<a href='https://techblock.club/?p=10605'> link</a>
 
-👉🏿DJI FPV Review: A powerful drone for serious pilots❗️<a href='https://techblock.club/?p=10587'> link</a>
+👉🏿Multitasking chatbots are the new Amazon Alexa Prize challenge❗️<a href='https://techblock.club/?p=10607'> link</a>
 
