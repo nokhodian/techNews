@@ -1,20 +1,20 @@
-<b>Technology NEWS on Friday, March 12th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Saturday, March 13th, 2021</b> 📡📡📡 
 
-👉A couple handcuffed themselves together to fix their relationship❗️<a href='https://techblock.club/?p=10611'> link</a>
+👉MLB The Show 21: Pinpoint Pitching system explained❗️<a href='https://techblock.club/?p=10631'> link</a>
 
-👉🏽Netflix Testing New Strategy To Prevent Password Sharing❗️<a href='https://techblock.club/?p=10613'> link</a>
+👉🏽Pokémon: 10 Most Annoying Moves To Face❗️<a href='https://techblock.club/?p=10633'> link</a>
 
-👉🏿Chrome 90 Beta is rolling out, and you can download it right now❗️<a href='https://techblock.club/?p=10615'> link</a>
+👉🏿What Is Roblox? Meet the Game Over Half of US Kids Play❗️<a href='https://techblock.club/?p=10635'> link</a>
 
-👉Retro FPS Dread Templar Announced For PC❗️<a href='https://techblock.club/?p=10617'> link</a>
+👉Outriders Demo Has Been Played a Cumulative Total of 9.5M Hours, New Patch Improves Matchmaking❗️<a href='https://techblock.club/?p=10637'> link</a>
 
-👉🏽Switch Outsells PS5 And Xbox Series X Yet Again In The US, Top 20 Best-Selling Games Revealed For February❗️<a href='https://techblock.club/?p=10619'> link</a>
+👉🏽Who was Haley Link Brinkmeyer? Indiana woman dies 2 days after getting Covid vaccine, mother alleges conspiracy❗️<a href='https://techblock.club/?p=10639'> link</a>
 
-👉🏿PS5 restock in UK — track on Twitter, Argos, Game, Currys and more❗️<a href='https://techblock.club/?p=10621'> link</a>
+👉🏿Shot for Shot: Putting the best Android cameras to the test [Gallery]❗️<a href='https://techblock.club/?p=10641'> link</a>
 
-👉Best Windows 10 apps this week❗️<a href='https://techblock.club/?p=10623'> link</a>
+👉21 Savage models Louis Vuitton's summer collection❗️<a href='https://techblock.club/?p=10643'> link</a>
 
-👉🏽Instagram: How to Recover Recently Deleted Posts❗️<a href='https://techblock.club/?p=10625'> link</a>
+👉🏽Build a better home theater experience with Vankyo projectors on sale from $63 today only❗️<a href='https://techblock.club/?p=10645'> link</a>
 
-👉🏿Madden could hit a Nintendo system for the first time in roughly a decade, according to a job listing❗️<a href='https://techblock.club/?p=10627'> link</a>
+👉🏿Google will now let third party developers create custom Tiles for Wear OS❗️<a href='https://techblock.club/?p=10647'> link</a>
 
