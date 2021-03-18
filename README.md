@@ -1,20 +1,20 @@
-<b>Technology NEWS on Wednesday, March 17th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Thursday, March 18th, 2021</b> 📡📡📡 
 
-👉Amazon PS5 restock expected Thursday — restock time and how to get yours❗️<a href='https://techblock.club/?p=10711'> link</a>
+👉Corsair SP120 and SP140 RGB Elite PWM Fans❗️<a href='https://techblock.club/?p=10731'> link</a>
 
-👉🏽OnePlus Watch Design Shown By Company: Videos❗️<a href='https://techblock.club/?p=10713'> link</a>
+👉🏽Sony Reveals PlayStation VR Controller for PS5❗️<a href='https://techblock.club/?p=10733'> link</a>
 
-👉🏿'Murder on Eridanos' DLC is 'Outer Worlds' at its comedic best❗️<a href='https://techblock.club/?p=10715'> link</a>
+👉🏿How Facebook plans to blend the virtual and real with your wrist❗️<a href='https://techblock.club/?p=10735'> link</a>
 
-👉The video games that helped us through the pandemic this past year❗️<a href='https://techblock.club/?p=10717'> link</a>
+👉ASUS May Announce A "Mini" Flagship Phone With SD888 & 120Hz Display❗️<a href='https://techblock.club/?p=10737'> link</a>
 
-👉🏽Discord Could Be Working on Its Own Version of Clubhouse, Users Report❗️<a href='https://techblock.club/?p=10719'> link</a>
+👉🏽Everything we know about Apple's rumored 2021 iPad Pro update❗️<a href='https://techblock.club/?p=10739'> link</a>
 
-👉🏿The Best Dyson Deals for Afterpay Day, From Vacuums To Hair Dryers❗️<a href='https://techblock.club/?p=10721'> link</a>
+👉🏿Genshin Impact's New Hangouts Are Adorable, And Absolutely Dates❗️<a href='https://techblock.club/?p=10741'> link</a>
 
-👉Zoom Escaper will help you exit an annoying staff call❗️<a href='https://techblock.club/?p=10723'> link</a>
+👉Resident Evil Village – Second Demo Includes Content from Final Game❗️<a href='https://techblock.club/?p=10743'> link</a>
 
-👉🏽AMD Radeon RX 6700 XT Review❗️<a href='https://techblock.club/?p=10725'> link</a>
+👉🏽Medieval open-world action game Rustler coming to PS5, Xbox Series, PS4, Xbox One, and Switch in 2021❗️<a href='https://techblock.club/?p=10745'> link</a>
 
-👉🏿Wyze Plug Review❗️<a href='https://techblock.club/?p=10727'> link</a>
+👉🏿MSI's best gaming PCs will have 11th Gen Intel Rocket Lake-S chips inside❗️<a href='https://techblock.club/?p=10747'> link</a>
 
