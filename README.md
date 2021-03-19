@@ -1,20 +1,20 @@
-<b>Technology NEWS on Thursday, March 18th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Friday, March 19th, 2021</b> 📡📡📡 
 
-👉Corsair SP120 and SP140 RGB Elite PWM Fans❗️<a href='https://techblock.club/?p=10731'> link</a>
+👉The OnePlus Watch gets an early reveal ahead of March 23rd announcement❗️<a href='https://techblock.club/?p=10751'> link</a>
 
-👉🏽Sony Reveals PlayStation VR Controller for PS5❗️<a href='https://techblock.club/?p=10733'> link</a>
+👉🏽Payday 3 Is Coming In 2023, New Image Released❗️<a href='https://techblock.club/?p=10753'> link</a>
 
-👉🏿How Facebook plans to blend the virtual and real with your wrist❗️<a href='https://techblock.club/?p=10735'> link</a>
+👉🏿Tesla EVs restricted for Chinese military over national security concerns❗️<a href='https://techblock.club/?p=10755'> link</a>
 
-👉ASUS May Announce A "Mini" Flagship Phone With SD888 & 120Hz Display❗️<a href='https://techblock.club/?p=10737'> link</a>
+👉The Week in Gaming: Tomb Raider celebrates 25 years, DOOM at hell's end, & next-gen VR for the PS5❗️<a href='https://techblock.club/?p=10757'> link</a>
 
-👉🏽Everything we know about Apple's rumored 2021 iPad Pro update❗️<a href='https://techblock.club/?p=10739'> link</a>
+👉🏽OxygenOS 10.3.9 Boosts OnePlus 6 & 6T Security, Improves Stability❗️<a href='https://techblock.club/?p=10759'> link</a>
 
-👉🏿Genshin Impact's New Hangouts Are Adorable, And Absolutely Dates❗️<a href='https://techblock.club/?p=10741'> link</a>
+👉🏿Samsung Galaxy Buds Pro review: Best 'buds' from Samsung❗️<a href='https://techblock.club/?p=10761'> link</a>
 
-👉Resident Evil Village – Second Demo Includes Content from Final Game❗️<a href='https://techblock.club/?p=10743'> link</a>
+👉Intel's New Adaptive Boost Technology: Floating Turbo Comes to Rocket Lake❗️<a href='https://techblock.club/?p=10763'> link</a>
 
-👉🏽Medieval open-world action game Rustler coming to PS5, Xbox Series, PS4, Xbox One, and Switch in 2021❗️<a href='https://techblock.club/?p=10745'> link</a>
+👉🏽Tim Cook pens WSJ op-ed on COVID-19 and the 'urgency of racial justice'❗️<a href='https://techblock.club/?p=10765'> link</a>
 
-👉🏿MSI's best gaming PCs will have 11th Gen Intel Rocket Lake-S chips inside❗️<a href='https://techblock.club/?p=10747'> link</a>
+👉🏿Destiny 2's next hotfix will make it easier to get Deep Stone Crypt's Exotic rocket launcher❗️<a href='https://techblock.club/?p=10767'> link</a>
 
