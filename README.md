@@ -1,20 +1,20 @@
-<b>Technology NEWS on Saturday, March 20th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Sunday, March 21st, 2021</b> 📡📡📡 
 
-👉The Morning After: A ransomware gang is demanding $50 million from Acer❗️<a href='https://techblock.club/?p=10771'> link</a>
+👉'Black Panther: War for Wakanda' is on the way❗️<a href='https://techblock.club/?p=10791'> link</a>
 
-👉🏽Top Stories: iPad Pro With Thunderbolt?, Intel Mocks M1 Macs, iMac Pro Officially Discontinued❗️<a href='https://techblock.club/?p=10773'> link</a>
+👉🏽Rainbow Six Siege sets new concurrent player record of over 200000❗️<a href='https://techblock.club/?p=10793'> link</a>
 
-👉🏿Xiaomi Redmi Note 10 Pro Max: First impression❗️<a href='https://techblock.club/?p=10775'> link</a>
+👉🏿Covid 'nearly didn't happen' but spread across the world in 'perfect storm'❗️<a href='https://techblock.club/?p=10795'> link</a>
 
-👉5 things to know about the voice chat feature on Telegram❗️<a href='https://techblock.club/?p=10777'> link</a>
+👉Mojo Vision Smart Contact Lens Vs. Apple AR Eye Specs: Mojo Vision Boasts 14000 Pixels Per Inch❗️<a href='https://techblock.club/?p=10797'> link</a>
 
-👉🏽'Valheim' hits 6million players and teases information about its first update❗️<a href='https://techblock.club/?p=10779'> link</a>
+👉🏽Final Fantasy VII Remake Intergrade Had A Dedicated Team of Lighting Experts❗️<a href='https://techblock.club/?p=10799'> link</a>
 
-👉🏿Tips from COVID vaccine hunters who are actually booking appointments❗️<a href='https://techblock.club/?p=10781'> link</a>
+👉🏿This Online Tool Lets You Sabotage Your Own Zoom Calls❗️<a href='https://techblock.club/?p=10801'> link</a>
 
-👉Microsoft may have fixed what wasn't broke with Windows 10 BSOD printer patch❗️<a href='https://techblock.club/?p=10783'> link</a>
+👉PS5 restock updates: Inventory at Amazon, GameStop, Sony, Walmart, Best Buy and other retail spots❗️<a href='https://techblock.club/?p=10803'> link</a>
 
-👉🏽Moto G60 leaks suggest it will be another impressive Motorola mid-ranger❗️<a href='https://techblock.club/?p=10785'> link</a>
+👉🏽Xbox Series X restock updates: Target, Walmart, Best Buy, GameStop, and more retailers❗️<a href='https://techblock.club/?p=10805'> link</a>
 
-👉🏿Doom Eternal Ancient Gods Part 2 World Spear Collectibles Guide❗️<a href='https://techblock.club/?p=10787'> link</a>
+👉🏿Forget MacBook Pro 2021: Samsung Galaxy Book Pro stuns in new leak❗️<a href='https://techblock.club/?p=10807'> link</a>
 
