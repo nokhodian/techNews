@@ -1,20 +1,20 @@
-<b>Technology NEWS on Sunday, March 21st, 2021</b> 📡📡📡 
+<b>Technology NEWS on Monday, March 22nd, 2021</b> 📡📡📡 
 
-👉'Black Panther: War for Wakanda' is on the way❗️<a href='https://techblock.club/?p=10791'> link</a>
+👉Is Xbox Live about to be rebranded?❗️<a href='https://techblock.club/?p=10818'> link</a>
 
-👉🏽Rainbow Six Siege sets new concurrent player record of over 200000❗️<a href='https://techblock.club/?p=10793'> link</a>
+👉🏽Sony could close PS3, Vita and PSP stores in July❗️<a href='https://techblock.club/?p=10820'> link</a>
 
-👉🏿Covid 'nearly didn't happen' but spread across the world in 'perfect storm'❗️<a href='https://techblock.club/?p=10795'> link</a>
+👉🏿MechWarrior 5: Mercenaries Release Date and Launch Platforms Revealed❗️<a href='https://techblock.club/?p=10822'> link</a>
 
-👉Mojo Vision Smart Contact Lens Vs. Apple AR Eye Specs: Mojo Vision Boasts 14000 Pixels Per Inch❗️<a href='https://techblock.club/?p=10797'> link</a>
+👉Brooklyn Beckham and Fiancée Nicola Peltz Pose for Intimate Topless Photo❗️<a href='https://techblock.club/?p=10824'> link</a>
 
-👉🏽Final Fantasy VII Remake Intergrade Had A Dedicated Team of Lighting Experts❗️<a href='https://techblock.club/?p=10799'> link</a>
+👉🏽Battlefield 6 event looks set for May — and it's heading back to the future❗️<a href='https://techblock.club/?p=10826'> link</a>
 
-👉🏿This Online Tool Lets You Sabotage Your Own Zoom Calls❗️<a href='https://techblock.club/?p=10801'> link</a>
+👉🏿Final Fantasy VII Remake Intergrade PS5 Features Showcased in Extended Trailer❗️<a href='https://techblock.club/?p=10828'> link</a>
 
-👉PS5 restock updates: Inventory at Amazon, GameStop, Sony, Walmart, Best Buy and other retail spots❗️<a href='https://techblock.club/?p=10803'> link</a>
+👉[Update: New for March] Best USB-C and Thunderbolt displays for Mac❗️<a href='https://techblock.club/?p=10830'> link</a>
 
-👉🏽Xbox Series X restock updates: Target, Walmart, Best Buy, GameStop, and more retailers❗️<a href='https://techblock.club/?p=10805'> link</a>
+👉🏽New OnePlus 8 & 8T Android 11 Beta Update Brings A Lot Of Bug Fixes❗️<a href='https://techblock.club/?p=10832'> link</a>
 
-👉🏿Forget MacBook Pro 2021: Samsung Galaxy Book Pro stuns in new leak❗️<a href='https://techblock.club/?p=10807'> link</a>
+👉🏿Barnes & Noble taps Lenovo to help design latest Nook Android tablet❗️<a href='https://techblock.club/?p=10834'> link</a>
 
