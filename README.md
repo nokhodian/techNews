@@ -1,20 +1,20 @@
-<b>Technology NEWS on Tuesday, March 23rd, 2021</b> 📡📡📡 
+<b>Technology NEWS on Wednesday, March 24th, 2021</b> 📡📡📡 
 
-👉Rugged Military-Grade Smartwatch is the Ultimate Partner for Challenging Military-Grade Obstacle Course, Amazfit ...❗️<a href='https://techblock.club/?p=10838'> link</a>
+👉Ion Fury's Aftershock Expansion Reloads More '90s-style FPS Action on PC and Consoles Summer 2021❗️<a href='https://techblock.club/?p=10858'> link</a>
 
-👉🏽Company will pay you $2400 to go screenless for 24 hours❗️<a href='https://techblock.club/?p=10840'> link</a>
+👉🏽New Pokémon Snap adds nighttime photography❗️<a href='https://techblock.club/?p=10860'> link</a>
 
-👉🏿Lenovo's new rugged Windows 10 laptops for students boast AMD and Intel CPUs — and start at just $299❗️<a href='https://techblock.club/?p=10842'> link</a>
+👉🏿The Realme 8 Pro is a £279 phone with a 108-megapixel camera❗️<a href='https://techblock.club/?p=10862'> link</a>
 
-👉Apple iPhone 12 sets new iPhone sales records: Report❗️<a href='https://techblock.club/?p=10844'> link</a>
+👉NFT: Digital Mars house by artist Krista Kim sells for $500k❗️<a href='https://techblock.club/?p=10864'> link</a>
 
-👉🏽'Browser Isolation' Takes On Entrenched Web Threats❗️<a href='https://techblock.club/?p=10846'> link</a>
+👉🏽Hundreds of fleeceware apps earn dubious iOS, Android developers over $400 million❗️<a href='https://techblock.club/?p=10866'> link</a>
 
-👉🏿Is Resident Evil 8 On The Same Timeline As RE2 & RE3❗️<a href='https://techblock.club/?p=10848'> link</a>
+👉🏿PS5 restock tips — how to win at every retailer❗️<a href='https://techblock.club/?p=10868'> link</a>
 
-👉LG's exit from smartphone business looks increasingly likely after buyers pull out❗️<a href='https://techblock.club/?p=10850'> link</a>
+👉'Final Fantasy XI' Reboot Intended for PC and Mobile Will No Longer Happen; Developers are Not Happy with Quality❗️<a href='https://techblock.club/?p=10870'> link</a>
 
-👉🏽'Apex Legends' Update 1.62 Brings Back Inspect But Causes Bugs and Crashes❗️<a href='https://techblock.club/?p=10852'> link</a>
+👉🏽Bentley Continental GT Speed Sets a New Level of Grand Touring Sportiness❗️<a href='https://techblock.club/?p=10872'> link</a>
 
-👉🏿Report: Upgraded Switch Will Use New Nvidia Chip To Upscale To 4K❗️<a href='https://techblock.club/?p=10854'> link</a>
+👉🏿Google, Microsoft want to fix browser compatibility for good❗️<a href='https://techblock.club/?p=10874'> link</a>
 
