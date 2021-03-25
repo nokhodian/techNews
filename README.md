@@ -1,20 +1,20 @@
-<b>Technology NEWS on Wednesday, March 24th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Thursday, March 25th, 2021</b> 📡📡📡 
 
-👉Ion Fury's Aftershock Expansion Reloads More '90s-style FPS Action on PC and Consoles Summer 2021❗️<a href='https://techblock.club/?p=10858'> link</a>
+👉Nokia X20 Rumors: FCC Certification Hints At Handset Debuting At HMD Global Event❗️<a href='https://techblock.club/?p=10878'> link</a>
 
-👉🏽New Pokémon Snap adds nighttime photography❗️<a href='https://techblock.club/?p=10860'> link</a>
+👉🏽'Final Fantasy XI' mobile reboot has been cancelled❗️<a href='https://techblock.club/?p=10880'> link</a>
 
-👉🏿The Realme 8 Pro is a £279 phone with a 108-megapixel camera❗️<a href='https://techblock.club/?p=10862'> link</a>
+👉🏿Spotify updates its desktop and web apps to match its mobile experience❗️<a href='https://techblock.club/?p=10882'> link</a>
 
-👉NFT: Digital Mars house by artist Krista Kim sells for $500k❗️<a href='https://techblock.club/?p=10864'> link</a>
+👉MLB The Show 21's custom stadiums and new loadouts await players next month❗️<a href='https://techblock.club/?p=10884'> link</a>
 
-👉🏽Hundreds of fleeceware apps earn dubious iOS, Android developers over $400 million❗️<a href='https://techblock.club/?p=10866'> link</a>
+👉🏽Samsung has updated these phones to Android 11❗️<a href='https://techblock.club/?p=10886'> link</a>
 
-👉🏿PS5 restock tips — how to win at every retailer❗️<a href='https://techblock.club/?p=10868'> link</a>
+👉🏿Researchers design an AI-powered backpack for the visually impaired❗️<a href='https://techblock.club/?p=10888'> link</a>
 
-👉'Final Fantasy XI' Reboot Intended for PC and Mobile Will No Longer Happen; Developers are Not Happy with Quality❗️<a href='https://techblock.club/?p=10870'> link</a>
+👉Twitter Is Testing Emoji Reactions (Again)❗️<a href='https://techblock.club/?p=10890'> link</a>
 
-👉🏽Bentley Continental GT Speed Sets a New Level of Grand Touring Sportiness❗️<a href='https://techblock.club/?p=10872'> link</a>
+👉🏽How to Choose a Laptop CPU in 2021❗️<a href='https://techblock.club/?p=10892'> link</a>
 
-👉🏿Google, Microsoft want to fix browser compatibility for good❗️<a href='https://techblock.club/?p=10874'> link</a>
+👉🏿25 Years Ago, Resident Evil Gave Horror a New Name❗️<a href='https://techblock.club/?p=10894'> link</a>
 
