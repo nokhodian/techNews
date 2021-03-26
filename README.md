@@ -1,20 +1,20 @@
-<b>Technology NEWS on Thursday, March 25th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Friday, March 26th, 2021</b> 📡📡📡 
 
-👉Nokia X20 Rumors: FCC Certification Hints At Handset Debuting At HMD Global Event❗️<a href='https://techblock.club/?p=10878'> link</a>
+👉How to turn iPhone location services on or off❗️<a href='https://techblock.club/?p=10898'> link</a>
 
-👉🏽'Final Fantasy XI' mobile reboot has been cancelled❗️<a href='https://techblock.club/?p=10880'> link</a>
+👉🏽Xbox indie games showcase: how to watch the ID@Xbox live stream❗️<a href='https://techblock.club/?p=10900'> link</a>
 
-👉🏿Spotify updates its desktop and web apps to match its mobile experience❗️<a href='https://techblock.club/?p=10882'> link</a>
+👉🏿[First Cut] Realme 8: The 8 without the 108!❗️<a href='https://techblock.club/?p=10902'> link</a>
 
-👉MLB The Show 21's custom stadiums and new loadouts await players next month❗️<a href='https://techblock.club/?p=10884'> link</a>
+👉A new Android spyware masquerades as a 'system update'❗️<a href='https://techblock.club/?p=10904'> link</a>
 
-👉🏽Samsung has updated these phones to Android 11❗️<a href='https://techblock.club/?p=10886'> link</a>
+👉🏽Call of Duty 2021 is Called WWII: Vanguard, Set in Alternate History 1950s Where WW2 Didn't End – Rumour❗️<a href='https://techblock.club/?p=10906'> link</a>
 
-👉🏿Researchers design an AI-powered backpack for the visually impaired❗️<a href='https://techblock.club/?p=10888'> link</a>
+👉🏿Should Twitter Add Emoji Reactions Or Leave Them To Facebook?❗️<a href='https://techblock.club/?p=10908'> link</a>
 
-👉Twitter Is Testing Emoji Reactions (Again)❗️<a href='https://techblock.club/?p=10890'> link</a>
+👉'STALKER 2' devs are spending a lot of time on teeth❗️<a href='https://techblock.club/?p=10910'> link</a>
 
-👉🏽How to Choose a Laptop CPU in 2021❗️<a href='https://techblock.club/?p=10892'> link</a>
+👉🏽Cheating in Outriders will earn players a permanent brand❗️<a href='https://techblock.club/?p=10912'> link</a>
 
-👉🏿25 Years Ago, Resident Evil Gave Horror a New Name❗️<a href='https://techblock.club/?p=10894'> link</a>
+👉🏿Instagram will allow users to draft stories to save them for later❗️<a href='https://techblock.club/?p=10914'> link</a>
 
