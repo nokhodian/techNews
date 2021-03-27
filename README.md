@@ -1,20 +1,20 @@
-<b>Technology NEWS on Friday, March 26th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Saturday, March 27th, 2021</b> 📡📡📡 
 
-👉How to turn iPhone location services on or off❗️<a href='https://techblock.club/?p=10898'> link</a>
+👉'Genshin Impact' Update 1.5 Leaks: Everything We Know From Release Date To New Characters❗️<a href='https://techblock.club/?p=10918'> link</a>
 
-👉🏽Xbox indie games showcase: how to watch the ID@Xbox live stream❗️<a href='https://techblock.club/?p=10900'> link</a>
+👉🏽Samsung in collaboration with Marvell develops new System-on-a-Chip for 5G networks❗️<a href='https://techblock.club/?p=10920'> link</a>
 
-👉🏿[First Cut] Realme 8: The 8 without the 108!❗️<a href='https://techblock.club/?p=10902'> link</a>
+👉🏿Kensington SD7000 Surface Pro Docking Station review❗️<a href='https://techblock.club/?p=10922'> link</a>
 
-👉A new Android spyware masquerades as a 'system update'❗️<a href='https://techblock.club/?p=10904'> link</a>
+👉Cold War & Modern Warfare Have Less 6v6 Multiplayer Content Than Ever❗️<a href='https://techblock.club/?p=10924'> link</a>
 
-👉🏽Call of Duty 2021 is Called WWII: Vanguard, Set in Alternate History 1950s Where WW2 Didn't End – Rumour❗️<a href='https://techblock.club/?p=10906'> link</a>
+👉🏽First Cadillac Blackwing Sedans Sold At Auction For Combined $430000❗️<a href='https://techblock.club/?p=10926'> link</a>
 
-👉🏿Should Twitter Add Emoji Reactions Or Leave Them To Facebook?❗️<a href='https://techblock.club/?p=10908'> link</a>
+👉🏿Huawei files patent CN112564295A, to work on wireless charging technology: Report❗️<a href='https://techblock.club/?p=10928'> link</a>
 
-👉'STALKER 2' devs are spending a lot of time on teeth❗️<a href='https://techblock.club/?p=10910'> link</a>
+👉Fortnite's Epic Games Appears To Be Cracking Down On Wager Matches❗️<a href='https://techblock.club/?p=10930'> link</a>
 
-👉🏽Cheating in Outriders will earn players a permanent brand❗️<a href='https://techblock.club/?p=10912'> link</a>
+👉🏽Rust Console Edition will be released in May for PS4 and Xbox One❗️<a href='https://techblock.club/?p=10932'> link</a>
 
-👉🏿Instagram will allow users to draft stories to save them for later❗️<a href='https://techblock.club/?p=10914'> link</a>
+👉🏿Samsung Galaxy S21: 5 Hidden Features You Should Know About❗️<a href='https://techblock.club/?p=10934'> link</a>
 
