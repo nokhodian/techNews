@@ -1,20 +1,20 @@
-<b>Technology NEWS on Saturday, March 27th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Sunday, March 28th, 2021</b> 📡📡📡 
 
-👉'Genshin Impact' Update 1.5 Leaks: Everything We Know From Release Date To New Characters❗️<a href='https://techblock.club/?p=10918'> link</a>
+👉Where to buy a PS5: Everything you need to know about how to get Sony's new console❗️<a href='https://techblock.club/?p=10938'> link</a>
 
-👉🏽Samsung in collaboration with Marvell develops new System-on-a-Chip for 5G networks❗️<a href='https://techblock.club/?p=10920'> link</a>
+👉🏽Rewind and slow forward: The history of the music cassette and why it refuses to die❗️<a href='https://techblock.club/?p=10940'> link</a>
 
-👉🏿Kensington SD7000 Surface Pro Docking Station review❗️<a href='https://techblock.club/?p=10922'> link</a>
+👉🏿7 of the Best Apple MacBook Air Accessories to Buy❗️<a href='https://techblock.club/?p=10942'> link</a>
 
-👉Cold War & Modern Warfare Have Less 6v6 Multiplayer Content Than Ever❗️<a href='https://techblock.club/?p=10924'> link</a>
+👉Save on PS5, Xbox and Nintendo Switch game deals with this 3 for 2 offer at Amazon❗️<a href='https://techblock.club/?p=10944'> link</a>
 
-👉🏽First Cadillac Blackwing Sedans Sold At Auction For Combined $430000❗️<a href='https://techblock.club/?p=10926'> link</a>
+👉🏽'Anthem' director Jonathan Warner leaves BioWare❗️<a href='https://techblock.club/?p=10946'> link</a>
 
-👉🏿Huawei files patent CN112564295A, to work on wireless charging technology: Report❗️<a href='https://techblock.club/?p=10928'> link</a>
+👉🏿EA Sends Out Battlefield Survey to Gauge Interest in Free-to-Play Element, Battle Pass, and More❗️<a href='https://techblock.club/?p=10948'> link</a>
 
-👉Fortnite's Epic Games Appears To Be Cracking Down On Wager Matches❗️<a href='https://techblock.club/?p=10930'> link</a>
+👉Activision demand shut down of 'Call of Duty: Warzone' stat site❗️<a href='https://techblock.club/?p=10950'> link</a>
 
-👉🏽Rust Console Edition will be released in May for PS4 and Xbox One❗️<a href='https://techblock.club/?p=10932'> link</a>
+👉🏽Monster Hunter Rise review: Rises to meet my expectations on Switch❗️<a href='https://techblock.club/?p=10952'> link</a>
 
-👉🏿Samsung Galaxy S21: 5 Hidden Features You Should Know About❗️<a href='https://techblock.club/?p=10934'> link</a>
+👉🏿Amazon's All-new Echo Show 10 falls to low of $210 (Save $40), more Alexa deals from $17❗️<a href='https://techblock.club/?p=10954'> link</a>
 
