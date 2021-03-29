@@ -1,20 +1,20 @@
-<b>Technology NEWS on Sunday, March 28th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Monday, March 29th, 2021</b> 📡📡📡 
 
-👉Where to buy a PS5: Everything you need to know about how to get Sony's new console❗️<a href='https://techblock.club/?p=10938'> link</a>
+👉Microsoft Exchange Hack Highlights Broader Concerns❗️<a href='https://techblock.club/?p=10958'> link</a>
 
-👉🏽Rewind and slow forward: The history of the music cassette and why it refuses to die❗️<a href='https://techblock.club/?p=10940'> link</a>
+👉🏽10 minutes of video gaming everyday may enhance esport skills: Study❗️<a href='https://techblock.club/?p=10960'> link</a>
 
-👉🏿7 of the Best Apple MacBook Air Accessories to Buy❗️<a href='https://techblock.club/?p=10942'> link</a>
+👉🏿League of Legends: Wild Rift is a perfect fit for the Nintendo Switch❗️<a href='https://techblock.club/?p=10962'> link</a>
 
-👉Save on PS5, Xbox and Nintendo Switch game deals with this 3 for 2 offer at Amazon❗️<a href='https://techblock.club/?p=10944'> link</a>
+👉Leica Camera From Former Apple Designers Jony Ive and Mark Newson Heading to Auction❗️<a href='https://techblock.club/?p=10964'> link</a>
 
-👉🏽'Anthem' director Jonathan Warner leaves BioWare❗️<a href='https://techblock.club/?p=10946'> link</a>
+👉🏽Twitch streamer Ludwig has been live for two WEEKS charging viewers $15 a minute – and he's made '$1.2million'❗️<a href='https://techblock.club/?p=10966'> link</a>
 
-👉🏿EA Sends Out Battlefield Survey to Gauge Interest in Free-to-Play Element, Battle Pass, and More❗️<a href='https://techblock.club/?p=10948'> link</a>
+👉🏿Mila air purifier review: Breathe better, and make a fashion statement❗️<a href='https://techblock.club/?p=10968'> link</a>
 
-👉Activision demand shut down of 'Call of Duty: Warzone' stat site❗️<a href='https://techblock.club/?p=10950'> link</a>
+👉Weaponise the plague in Souls-like Thymesia❗️<a href='https://techblock.club/?p=10970'> link</a>
 
-👉🏽Monster Hunter Rise review: Rises to meet my expectations on Switch❗️<a href='https://techblock.club/?p=10952'> link</a>
+👉🏽Boston Dynamics Unveils a New Warehouse Robot Called Stretch❗️<a href='https://techblock.club/?p=10972'> link</a>
 
-👉🏿Amazon's All-new Echo Show 10 falls to low of $210 (Save $40), more Alexa deals from $17❗️<a href='https://techblock.club/?p=10954'> link</a>
+👉🏿Nordisk Acquires 30.7% Stake In The Dark Pictures Creator Supermassive Games❗️<a href='https://techblock.club/?p=10974'> link</a>
 
