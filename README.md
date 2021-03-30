@@ -1,20 +1,20 @@
-<b>Technology NEWS on Monday, March 29th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Tuesday, March 30th, 2021</b> 📡📡📡 
 
-👉Microsoft Exchange Hack Highlights Broader Concerns❗️<a href='https://techblock.club/?p=10958'> link</a>
+👉Guess removes bag from sale after accusations of 'stealing' black-owned brand Telfar's design❗️<a href='https://techblock.club/?p=10978'> link</a>
 
-👉🏽10 minutes of video gaming everyday may enhance esport skills: Study❗️<a href='https://techblock.club/?p=10960'> link</a>
+👉🏽Xiaomi's first foldable phone is here with a record-breaking display❗️<a href='https://techblock.club/?p=10980'> link</a>
 
-👉🏿League of Legends: Wild Rift is a perfect fit for the Nintendo Switch❗️<a href='https://techblock.club/?p=10962'> link</a>
+👉🏿Cyberpunk 2077 1.2 Update is Live With Hundreds Of Fixes❗️<a href='https://techblock.club/?p=10982'> link</a>
 
-👉Leica Camera From Former Apple Designers Jony Ive and Mark Newson Heading to Auction❗️<a href='https://techblock.club/?p=10964'> link</a>
+👉Students Can Win WWDC 2021 Swag in Apple's Annual Swift Coding Challenge❗️<a href='https://techblock.club/?p=10984'> link</a>
 
-👉🏽Twitch streamer Ludwig has been live for two WEEKS charging viewers $15 a minute – and he's made '$1.2million'❗️<a href='https://techblock.club/?p=10966'> link</a>
+👉🏽Hitman 3 March Patch Notes: New Update Prepares The Game For The Season Of Greed❗️<a href='https://techblock.club/?p=10986'> link</a>
 
-👉🏿Mila air purifier review: Breathe better, and make a fashion statement❗️<a href='https://techblock.club/?p=10968'> link</a>
+👉🏿Monster Hunter Rise Is Tough To Get Into As A Newcomer❗️<a href='https://techblock.club/?p=10988'> link</a>
 
-👉Weaponise the plague in Souls-like Thymesia❗️<a href='https://techblock.club/?p=10970'> link</a>
+👉Buka Entertainment Announces Brutal Hack & Slasher 'Demon Skin' For PC, Consoles❗️<a href='https://techblock.club/?p=10990'> link</a>
 
-👉🏽Boston Dynamics Unveils a New Warehouse Robot Called Stretch❗️<a href='https://techblock.club/?p=10972'> link</a>
+👉🏽PS3, Vita and PSP stores officially closing — what you need to know❗️<a href='https://techblock.club/?p=10992'> link</a>
 
-👉🏿Nordisk Acquires 30.7% Stake In The Dark Pictures Creator Supermassive Games❗️<a href='https://techblock.club/?p=10974'> link</a>
+👉🏿Niantic reveals its Pikmin App has entered into regional testing❗️<a href='https://techblock.club/?p=10994'> link</a>
 
