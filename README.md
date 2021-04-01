@@ -1,20 +1,20 @@
-<b>Technology NEWS on Wednesday, March 31st, 2021</b> 📡📡📡 
+<b>Technology NEWS on Thursday, April 1st, 2021</b> 📡📡📡 
 
-👉Epic Games complains about Apple to UK competition watchdog❗️<a href='https://techblock.club/?p=10998'> link</a>
+👉How to restart a Macbook Pro❗️<a href='https://techblock.club/?p=11018'> link</a>
 
-👉🏽Call of Duty: Warzone's season 2 Reloaded patch finally nerfs the AUG❗️<a href='https://techblock.club/?p=11000'> link</a>
+👉🏽West MI Whitecaps begin 40-day countdown to baseball❗️<a href='https://techblock.club/?p=11020'> link</a>
 
-👉🏿Redmi Note 10 Series Crossed Rs. 500 Crores in Sales in India Within First 2 Weeks, Xiaomi Says❗️<a href='https://techblock.club/?p=11002'> link</a>
+👉🏿Realistic Huawei P50 Pro Concept Shows The Phone's Huge Camera Setup❗️<a href='https://techblock.club/?p=11022'> link</a>
 
-👉New Facebook feature enables comments to be restricted❗️<a href='https://techblock.club/?p=11004'> link</a>
+👉Apple Knowingly Sold 2016-17 MacBook Pro Models With 'Flexgate' Display Defect, Judge Says❗️<a href='https://techblock.club/?p=11024'> link</a>
 
-👉🏽A 'disingenuous' Samsung tried to convince a SA court the Galaxy S7 is not a telephone❗️<a href='https://techblock.club/?p=11006'> link</a>
+👉🏽Relatively few camera upgrades in iPhone 13❗️<a href='https://techblock.club/?p=11026'> link</a>
 
-👉🏿Fortnite maker Epic Games files complaint against Apple❗️<a href='https://techblock.club/?p=11008'> link</a>
+👉🏿Save Big On Acer Laptops, Monitors, Gaming Mice & More – Today Only❗️<a href='https://techblock.club/?p=11028'> link</a>
 
-👉Super Mario Bros fans are panicking over rumors that Mario is going to die❗️<a href='https://techblock.club/?p=11010'> link</a>
+👉Twitter Users Can Now Add GIFs and Stickers to Ephemeral 'Fleets'❗️<a href='https://techblock.club/?p=11030'> link</a>
 
-👉🏽Witcher 3 is getting a huge upgrade for PS5 and Xbox Series X in latter 2021 — what you need to know❗️<a href='https://techblock.club/?p=11012'> link</a>
+👉🏽As Pokémon Card Prices Soar, One Company Is Letting Investors Buy Shares In Individual Cards❗️<a href='https://techblock.club/?p=11032'> link</a>
 
-👉🏿Asus ZenBook 13 UM325U review: One of the best Ultrabooks you can buy today❗️<a href='https://techblock.club/?p=11014'> link</a>
+👉🏿Better Buy: Advanced Micro Devices (AMD) vs. Intel❗️<a href='https://techblock.club/?p=11034'> link</a>
 
