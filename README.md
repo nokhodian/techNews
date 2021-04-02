@@ -1,20 +1,20 @@
-<b>Technology NEWS on Thursday, April 1st, 2021</b> 📡📡📡 
+<b>Technology NEWS on Friday, April 2nd, 2021</b> 📡📡📡 
 
-👉How to restart a Macbook Pro❗️<a href='https://techblock.club/?p=11018'> link</a>
+👉Lego Star Wars: The Skywalker Saga Delayed❗️<a href='https://techblock.club/?p=11038'> link</a>
 
-👉🏽West MI Whitecaps begin 40-day countdown to baseball❗️<a href='https://techblock.club/?p=11020'> link</a>
+👉🏽International Fact Checking Day: Google unveils new features to track fake news❗️<a href='https://techblock.club/?p=11040'> link</a>
 
-👉🏿Realistic Huawei P50 Pro Concept Shows The Phone's Huge Camera Setup❗️<a href='https://techblock.club/?p=11022'> link</a>
+👉🏿Resident Evil Village Receives First PS4 Pro Gameplay❗️<a href='https://techblock.club/?p=11042'> link</a>
 
-👉Apple Knowingly Sold 2016-17 MacBook Pro Models With 'Flexgate' Display Defect, Judge Says❗️<a href='https://techblock.club/?p=11024'> link</a>
+👉Game Dev Digest Issue #88 - Find Out How To Optimize Your Code, Visuals, and Animation❗️<a href='https://techblock.club/?p=11044'> link</a>
 
-👉🏽Relatively few camera upgrades in iPhone 13❗️<a href='https://techblock.club/?p=11026'> link</a>
+👉🏽Ex-Apple Exec Launches App to Mint Free NFTs❗️<a href='https://techblock.club/?p=11046'> link</a>
 
-👉🏿Save Big On Acer Laptops, Monitors, Gaming Mice & More – Today Only❗️<a href='https://techblock.club/?p=11028'> link</a>
+👉🏿Check out Real-Life Images of OnePlus Nord SE That Has Been Canceled❗️<a href='https://techblock.club/?p=11048'> link</a>
 
-👉Twitter Users Can Now Add GIFs and Stickers to Ephemeral 'Fleets'❗️<a href='https://techblock.club/?p=11030'> link</a>
+👉PS5 bundles are in stock at GameStop [UPDATE: Sold Out]❗️<a href='https://techblock.club/?p=11050'> link</a>
 
-👉🏽As Pokémon Card Prices Soar, One Company Is Letting Investors Buy Shares In Individual Cards❗️<a href='https://techblock.club/?p=11032'> link</a>
+👉🏽Watch Dogs: Legion 60 FPS Performance Mode Coming In Future Update❗️<a href='https://techblock.club/?p=11052'> link</a>
 
-👉🏿Better Buy: Advanced Micro Devices (AMD) vs. Intel❗️<a href='https://techblock.club/?p=11034'> link</a>
+👉🏿iPhone Users Spent Average of $138 on Apps Last Year❗️<a href='https://techblock.club/?p=11054'> link</a>
 
