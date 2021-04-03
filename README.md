@@ -1,20 +1,20 @@
-<b>Technology NEWS on Friday, April 2nd, 2021</b> 📡📡📡 
+<b>Technology NEWS on Saturday, April 3rd, 2021</b> 📡📡📡 
 
-👉Lego Star Wars: The Skywalker Saga Delayed❗️<a href='https://techblock.club/?p=11038'> link</a>
+👉WhatsApp latest feature: You may soon be able to change app colours, says report❗️<a href='https://techblock.club/?p=11058'> link</a>
 
-👉🏽International Fact Checking Day: Google unveils new features to track fake news❗️<a href='https://techblock.club/?p=11040'> link</a>
+👉🏽Xbox Series X restock update: Availability at Walmart, Target, Best Buy, GameStop and more❗️<a href='https://techblock.club/?p=11060'> link</a>
 
-👉🏿Resident Evil Village Receives First PS4 Pro Gameplay❗️<a href='https://techblock.club/?p=11042'> link</a>
+👉🏿Amazon Apologizes for Tweet, Vows to Improve Driver Conditions❗️<a href='https://techblock.club/?p=11062'> link</a>
 
-👉Game Dev Digest Issue #88 - Find Out How To Optimize Your Code, Visuals, and Animation❗️<a href='https://techblock.club/?p=11044'> link</a>
+👉As Twitter Spaces allows Android, iOS users to hold live conversations, netizens react with memes❗️<a href='https://techblock.club/?p=11064'> link</a>
 
-👉🏽Ex-Apple Exec Launches App to Mint Free NFTs❗️<a href='https://techblock.club/?p=11046'> link</a>
+👉🏽Samsung Galaxy F12 Price In India: What Will Be The Price Of Galaxy F12 In India?❗️<a href='https://techblock.club/?p=11066'> link</a>
 
-👉🏿Check out Real-Life Images of OnePlus Nord SE That Has Been Canceled❗️<a href='https://techblock.club/?p=11048'> link</a>
+👉🏿Get PlayStation Plus, a VPN, and 1000 online courses for under $70❗️<a href='https://techblock.club/?p=11068'> link</a>
 
-👉PS5 bundles are in stock at GameStop [UPDATE: Sold Out]❗️<a href='https://techblock.club/?p=11050'> link</a>
+👉iPhone 13 might not be Apple's next flagship, thanks to superstition❗️<a href='https://techblock.club/?p=11070'> link</a>
 
-👉🏽Watch Dogs: Legion 60 FPS Performance Mode Coming In Future Update❗️<a href='https://techblock.club/?p=11052'> link</a>
+👉🏽T-Mobile unveils partnership with Google❗️<a href='https://techblock.club/?p=11072'> link</a>
 
-👉🏿iPhone Users Spent Average of $138 on Apps Last Year❗️<a href='https://techblock.club/?p=11054'> link</a>
+👉🏿Impact Of Covid Pandemic On Mobile Gaming Industry❗️<a href='https://techblock.club/?p=11074'> link</a>
 
