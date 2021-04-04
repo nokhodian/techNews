@@ -1,20 +1,20 @@
-<b>Technology NEWS on Saturday, April 3rd, 2021</b> 📡📡📡 
+<b>Technology NEWS on Sunday, April 4th, 2021</b> 📡📡📡 
 
-👉WhatsApp latest feature: You may soon be able to change app colours, says report❗️<a href='https://techblock.club/?p=11058'> link</a>
+👉Solar Opposites creators have a brilliant idea for a spinoff game❗️<a href='https://techblock.club/?p=11078'> link</a>
 
-👉🏽Xbox Series X restock update: Availability at Walmart, Target, Best Buy, GameStop and more❗️<a href='https://techblock.club/?p=11060'> link</a>
+👉🏽Science unravels the mystery of the head-walking rabbits❗️<a href='https://techblock.club/?p=11080'> link</a>
 
-👉🏿Amazon Apologizes for Tweet, Vows to Improve Driver Conditions❗️<a href='https://techblock.club/?p=11062'> link</a>
+👉🏿We tested the EKSA PRO 900 gaming headset (€ 36.99).❗️<a href='https://techblock.club/?p=11082'> link</a>
 
-👉As Twitter Spaces allows Android, iOS users to hold live conversations, netizens react with memes❗️<a href='https://techblock.club/?p=11064'> link</a>
+👉Outriders Servers Are Stabilizing, Devs Will Explain What Went Wrong❗️<a href='https://techblock.club/?p=11084'> link</a>
 
-👉🏽Samsung Galaxy F12 Price In India: What Will Be The Price Of Galaxy F12 In India?❗️<a href='https://techblock.club/?p=11066'> link</a>
+👉🏽New reports say the Pixel 6 will feature a custom Google “Whitechapel” SoC❗️<a href='https://techblock.club/?p=11086'> link</a>
 
-👉🏿Get PlayStation Plus, a VPN, and 1000 online courses for under $70❗️<a href='https://techblock.club/?p=11068'> link</a>
+👉🏿Random: Balan Wonderworld Accused Of Including "Knock-Off" Ghostbusters Song❗️<a href='https://techblock.club/?p=11088'> link</a>
 
-👉iPhone 13 might not be Apple's next flagship, thanks to superstition❗️<a href='https://techblock.club/?p=11070'> link</a>
+👉The Made In Boning Knife Boasts Sleek, Sharp, and Flexible Blade For Precise Cuts❗️<a href='https://techblock.club/?p=11090'> link</a>
 
-👉🏽T-Mobile unveils partnership with Google❗️<a href='https://techblock.club/?p=11072'> link</a>
+👉🏽Apex Legends director: “If you're a Titanfall fan, hang on for Season 9”❗️<a href='https://techblock.club/?p=11092'> link</a>
 
-👉🏿Impact Of Covid Pandemic On Mobile Gaming Industry❗️<a href='https://techblock.club/?p=11074'> link</a>
+👉🏿Google promotes vaccines with emotional “Get back to what you love” video❗️<a href='https://techblock.club/?p=11094'> link</a>
 
