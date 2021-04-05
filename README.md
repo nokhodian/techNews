@@ -1,20 +1,20 @@
-<b>Technology NEWS on Sunday, April 4th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Monday, April 5th, 2021</b> 📡📡📡 
 
-👉Solar Opposites creators have a brilliant idea for a spinoff game❗️<a href='https://techblock.club/?p=11078'> link</a>
+👉Brunswick Sheriff's Deputy dies at 30 after battling COVID-19❗️<a href='https://techblock.club/?p=11098'> link</a>
 
-👉🏽Science unravels the mystery of the head-walking rabbits❗️<a href='https://techblock.club/?p=11080'> link</a>
+👉🏽Get RM208 worth of free gift with your OPPO Reno5 Series 5G purchase!❗️<a href='https://techblock.club/?p=11100'> link</a>
 
-👉🏿We tested the EKSA PRO 900 gaming headset (€ 36.99).❗️<a href='https://techblock.club/?p=11082'> link</a>
+👉🏿Researchers show animal DNA can be collected from the air❗️<a href='https://techblock.club/?p=11102'> link</a>
 
-👉Outriders Servers Are Stabilizing, Devs Will Explain What Went Wrong❗️<a href='https://techblock.club/?p=11084'> link</a>
+👉These face recognition games aim to guess your emotions❗️<a href='https://techblock.club/?p=11104'> link</a>
 
-👉🏽New reports say the Pixel 6 will feature a custom Google “Whitechapel” SoC❗️<a href='https://techblock.club/?p=11086'> link</a>
+👉🏽Monster Hunter Rise Sells 5 Million Copies In First Week, Boosts Entire Series Beyond 70M❗️<a href='https://techblock.club/?p=11106'> link</a>
 
-👉🏿Random: Balan Wonderworld Accused Of Including "Knock-Off" Ghostbusters Song❗️<a href='https://techblock.club/?p=11088'> link</a>
+👉🏿Flipkart launches Nokia Bluetooth headset T2000, TWS ANC T3110 in India: Price, specifications❗️<a href='https://techblock.club/?p=11108'> link</a>
 
-👉The Made In Boning Knife Boasts Sleek, Sharp, and Flexible Blade For Precise Cuts❗️<a href='https://techblock.club/?p=11090'> link</a>
+👉Resident Evil Village gameplay footage drops, confirms camera mode❗️<a href='https://techblock.club/?p=11110'> link</a>
 
-👉🏽Apex Legends director: “If you're a Titanfall fan, hang on for Season 9”❗️<a href='https://techblock.club/?p=11092'> link</a>
+👉🏽Microsoft Edge is starting to claw back on Firefox❗️<a href='https://techblock.club/?p=11112'> link</a>
 
-👉🏿Google promotes vaccines with emotional “Get back to what you love” video❗️<a href='https://techblock.club/?p=11094'> link</a>
+👉🏿Big Android 12 upgrade just leaked — this will save you time❗️<a href='https://techblock.club/?p=11114'> link</a>
 
