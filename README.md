@@ -1,20 +1,20 @@
-<b>Technology NEWS on Tuesday, April 6th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Wednesday, April 7th, 2021</b> 📡📡📡 
 
-👉(PRNewsfoto/SyncDog Inc.)❗️<a href='https://techblock.club/?p=11118'> link</a>
+👉Ring has big plans for its smart security gadgets and radar is at the core❗️<a href='https://techblock.club/?p=11138'> link</a>
 
-👉🏽Sonos Roam Review❗️<a href='https://techblock.club/?p=11120'> link</a>
+👉🏽5 Ways to Tap Into Your Smartphone's Audio Powers❗️<a href='https://techblock.club/?p=11140'> link</a>
 
-👉🏿E3 2021 goes virtual in June❗️<a href='https://techblock.club/?p=11122'> link</a>
+👉🏿Hackers target LinkedIn users with fake job offers❗️<a href='https://techblock.club/?p=11142'> link</a>
 
-👉16 iPhone settings you'll wonder why you didn't change sooner❗️<a href='https://techblock.club/?p=11124'> link</a>
+👉Thailand braced for infections spike after detecting UK COVID-19 variant❗️<a href='https://techblock.club/?p=11144'> link</a>
 
-👉🏽LG Will Roll Out Android 12 for Some Phones Despite Exiting Phone Business❗️<a href='https://techblock.club/?p=11126'> link</a>
+👉🏽Should Toyota build a GR 86 convertible?❗️<a href='https://techblock.club/?p=11146'> link</a>
 
-👉🏿Latest Pixel 5 Software Update Significantly Enhances Gaming Performance❗️<a href='https://techblock.club/?p=11128'> link</a>
+👉🏿TikTok Adds Auto-Generated Captions❗️<a href='https://techblock.club/?p=11148'> link</a>
 
-👉Today: Polk Co. holds no-appointment, drive-in vaccine clinic while supplies last❗️<a href='https://techblock.club/?p=11130'> link</a>
+👉Hands On With the OnePlus Watch: Lots of Promise for Just $159❗️<a href='https://techblock.club/?p=11150'> link</a>
 
-👉🏽Snapdragon 888-powered LG V70 was probably not too far❗️<a href='https://techblock.club/?p=11132'> link</a>
+👉🏽WhatsApp now adds 'Vaccines for All sticker pack: Here are the details❗️<a href='https://techblock.club/?p=11152'> link</a>
 
-👉🏿Apple may have just fixed everything that's wrong with Apple Arcade❗️<a href='https://techblock.club/?p=11134'> link</a>
+👉🏿Prominent Google Brain manager Samy Bengio has quit the company months after 2 fellow AI researchers were fired❗️<a href='https://techblock.club/?p=11154'> link</a>
 
