@@ -1,20 +1,20 @@
-<b>Technology NEWS on Wednesday, April 7th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Thursday, April 8th, 2021</b> 📡📡📡 
 
-👉Ring has big plans for its smart security gadgets and radar is at the core❗️<a href='https://techblock.club/?p=11138'> link</a>
+👉Developer clarifies Abandoned is not a 'secret Hideo Kojima project'❗️<a href='https://techblock.club/?p=11158'> link</a>
 
-👉🏽5 Ways to Tap Into Your Smartphone's Audio Powers❗️<a href='https://techblock.club/?p=11140'> link</a>
+👉🏽Ark/8 has partnered with Bungie for new Destiny clothing line❗️<a href='https://techblock.club/?p=11160'> link</a>
 
-👉🏿Hackers target LinkedIn users with fake job offers❗️<a href='https://techblock.club/?p=11142'> link</a>
+👉🏿Hitman 3 Season of Greed roadmap brings a new Escalation, Elusive Targets, and more❗️<a href='https://techblock.club/?p=11162'> link</a>
 
-👉Thailand braced for infections spike after detecting UK COVID-19 variant❗️<a href='https://techblock.club/?p=11144'> link</a>
+👉Disco Elysium - The Final Cut (for PC) Review❗️<a href='https://techblock.club/?p=11164'> link</a>
 
-👉🏽Should Toyota build a GR 86 convertible?❗️<a href='https://techblock.club/?p=11146'> link</a>
+👉🏽Epic lays out its case as the injured party in dispute with Apple that it created❗️<a href='https://techblock.club/?p=11166'> link</a>
 
-👉🏿TikTok Adds Auto-Generated Captions❗️<a href='https://techblock.club/?p=11148'> link</a>
+👉🏿The Council on American-Islamic Relations speaks out against Six Days in Fallujah❗️<a href='https://techblock.club/?p=11168'> link</a>
 
-👉Hands On With the OnePlus Watch: Lots of Promise for Just $159❗️<a href='https://techblock.club/?p=11150'> link</a>
+👉New Streets Of Rage 4 DLC Adds New Fighters And Survival Mode, Coming This Year❗️<a href='https://techblock.club/?p=11170'> link</a>
 
-👉🏽WhatsApp now adds 'Vaccines for All sticker pack: Here are the details❗️<a href='https://techblock.club/?p=11152'> link</a>
+👉🏽Samsung's Galaxy SmartTag With UWB Beats AirTags to Market, Launches April 16 for $39.99❗️<a href='https://techblock.club/?p=11172'> link</a>
 
-👉🏿Prominent Google Brain manager Samy Bengio has quit the company months after 2 fellow AI researchers were fired❗️<a href='https://techblock.club/?p=11154'> link</a>
+👉🏿The Best OLED TV Deals❗️<a href='https://techblock.club/?p=11174'> link</a>
 
