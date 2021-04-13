@@ -1,20 +1,20 @@
-<b>Technology NEWS on Monday, April 12th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Tuesday, April 13th, 2021</b> 📡📡📡 
 
-👉Sony Is Adapting PlayStation Games for Release on Mobile Platforms❗️<a href='https://techblock.club/?p=11238'> link</a>
+👉Blue Nintendo Switch Lite Launches May 21❗️<a href='https://techblock.club/?p=11258'> link</a>
 
-👉🏽Google Drive partial outage takes down Docs, Sheets, and Slides❗️<a href='https://techblock.club/?p=11240'> link</a>
+👉🏽Epic Games Completes $1 Billion Funding Round❗️<a href='https://techblock.club/?p=11260'> link</a>
 
-👉🏿Galaxy Z Fold 3 leaks suggest launch could come sooner than expected❗️<a href='https://techblock.club/?p=11242'> link</a>
+👉🏿Roku Voice Remote Pro Review❗️<a href='https://techblock.club/?p=11262'> link</a>
 
-👉Apple and Google block UK COVID app update for breaking data-sharing rules❗️<a href='https://techblock.club/?p=11244'> link</a>
+👉Apple iOS 15: Expected features, release date, compatible devices, and more❗️<a href='https://techblock.club/?p=11264'> link</a>
 
-👉🏽Nokia 4.2 Android 11 update starts rolling out in select markets❗️<a href='https://techblock.club/?p=11246'> link</a>
+👉🏽Here's What Horizon Zero Dawn's Aloy 'Fortnite' Leaked Skin Looks Like❗️<a href='https://techblock.club/?p=11266'> link</a>
 
-👉🏿This Weirdly Lifelike Human Eye Could Replace Your Webcam During Video Calls❗️<a href='https://techblock.club/?p=11248'> link</a>
+👉🏿Siri may have spilled the beans on Apple's next event❗️<a href='https://techblock.club/?p=11268'> link</a>
 
-👉How to Find (& Beat) Hemovorous in Borderlands 3❗️<a href='https://techblock.club/?p=11250'> link</a>
+👉The most important game of the century is finally back on Xbox Game Pass❗️<a href='https://techblock.club/?p=11270'> link</a>
 
-👉🏽Clash of Clans Town Hall 14 Update Patch Notes❗️<a href='https://techblock.club/?p=11252'> link</a>
+👉🏽OnePlus Watch Review❗️<a href='https://techblock.club/?p=11272'> link</a>
 
-👉🏿Crestron Horizon Thermostat Offers Premier Aesthetics and Two-Wire Retrofit Design❗️<a href='https://techblock.club/?p=11254'> link</a>
+👉🏿OnePlus 9 Pro Overheating Issues Seemingly Resolved With OxygenOS 11.2.3.3 Update, Another OTA Update ...❗️<a href='https://techblock.club/?p=11274'> link</a>
 
