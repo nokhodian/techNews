@@ -1,20 +1,20 @@
-<b>Technology NEWS on Tuesday, April 13th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Wednesday, April 14th, 2021</b> 📡📡📡 
 
-👉Blue Nintendo Switch Lite Launches May 21❗️<a href='https://techblock.club/?p=11258'> link</a>
+👉Report: iPhone 13 Notch Expected to Be Smaller❗️<a href='https://techblock.club/?p=11278'> link</a>
 
-👉🏽Epic Games Completes $1 Billion Funding Round❗️<a href='https://techblock.club/?p=11260'> link</a>
+👉🏽New Amazon Echo Buds get updated design and improved performance, start at $100❗️<a href='https://techblock.club/?p=11280'> link</a>
 
-👉🏿Roku Voice Remote Pro Review❗️<a href='https://techblock.club/?p=11262'> link</a>
+👉🏿Coinbase going public could signal new era for cryptocurrency❗️<a href='https://techblock.club/?p=11282'> link</a>
 
-👉Apple iOS 15: Expected features, release date, compatible devices, and more❗️<a href='https://techblock.club/?p=11264'> link</a>
+👉Coinbase Is Here ... a Digital Currency Exchange Goes Public❗️<a href='https://techblock.club/?p=11284'> link</a>
 
-👉🏽Here's What Horizon Zero Dawn's Aloy 'Fortnite' Leaked Skin Looks Like❗️<a href='https://techblock.club/?p=11266'> link</a>
+👉🏽Apple may be on the brink of a smart home breakthrough❗️<a href='https://techblock.club/?p=11286'> link</a>
 
-👉🏿Siri may have spilled the beans on Apple's next event❗️<a href='https://techblock.club/?p=11268'> link</a>
+👉🏿iOS 14.5's release date, major new features and more: Everything we know❗️<a href='https://techblock.club/?p=11288'> link</a>
 
-👉The most important game of the century is finally back on Xbox Game Pass❗️<a href='https://techblock.club/?p=11270'> link</a>
+👉Bitcoin trades near $64000 as focus turns to Coinbase debut❗️<a href='https://techblock.club/?p=11290'> link</a>
 
-👉🏽OnePlus Watch Review❗️<a href='https://techblock.club/?p=11272'> link</a>
+👉🏽Sony pumps another $200m into Fortnite maker Epic Games as part of $1bn funding round❗️<a href='https://techblock.club/?p=11292'> link</a>
 
-👉🏿OnePlus 9 Pro Overheating Issues Seemingly Resolved With OxygenOS 11.2.3.3 Update, Another OTA Update ...❗️<a href='https://techblock.club/?p=11274'> link</a>
+👉🏿Cyber criminals are installing cryptojacking malware on unpatched Microsoft Exchange servers❗️<a href='https://techblock.club/?p=11294'> link</a>
 
