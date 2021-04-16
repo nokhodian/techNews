@@ -1,20 +1,20 @@
-<b>Technology NEWS on Thursday, April 15th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Friday, April 16th, 2021</b> 📡📡📡 
 
-👉Microsoft Surface Laptop 4 (15-Inch) Review❗️<a href='https://techblock.club/?p=11298'> link</a>
+👉Oppo A74 5G Price in India Confirmed to Be Under Rs. 20000 Ahead of Official Launch❗️<a href='https://techblock.club/?p=11318'> link</a>
 
-👉🏽DJI Air 2S Review❗️<a href='https://techblock.club/?p=11300'> link</a>
+👉🏽Square Enix Denies Microsoft Or Sony Are Trying To Buy Them [Update]❗️<a href='https://techblock.club/?p=11320'> link</a>
 
-👉🏿Cable's Broadband Dominance Faces Threats From A Host Of Issues❗️<a href='https://techblock.club/?p=11302'> link</a>
+👉🏿The Year Earth Changed – David Attenborough's timely reminder❗️<a href='https://techblock.club/?p=11322'> link</a>
 
-👉Trisha Yearwood launches her own Pet Collection, inspired and tested by her beloved rescues Emmy and Millie❗️<a href='https://techblock.club/?p=11304'> link</a>
+👉This wireless earbuds case could be a fire hazard — here's how to return it❗️<a href='https://techblock.club/?p=11324'> link</a>
 
-👉🏽Google confirms adblockers affect Docs — and it's up to them to fix it❗️<a href='https://techblock.club/?p=11306'> link</a>
+👉🏽Motorola to launch Moto G60, Moto G40 Fusion in India on April 20❗️<a href='https://techblock.club/?p=11326'> link</a>
 
-👉🏿Returnal's nightmarish monsters have custom tentacle technology❗️<a href='https://techblock.club/?p=11308'> link</a>
+👉🏿Apple TV 4K, Google Chromecast, Amazon Fire Stick & More: Best Streaming Devices in India, In Photos❗️<a href='https://techblock.club/?p=11328'> link</a>
 
-👉Disney Plus announces first scripted UK originals from makers of Gentleman Jack, The Night Manager and Killing Eve❗️<a href='https://techblock.club/?p=11310'> link</a>
+👉Leisure Suit Larry - Wet Dreams Dry Twice Is Coming To Consoles In May❗️<a href='https://techblock.club/?p=11330'> link</a>
 
-👉🏽This is the best Windows File Explorer design concept I've ever seen❗️<a href='https://techblock.club/?p=11312'> link</a>
+👉🏽Why now is a great time to start playing Magic: The Gathering❗️<a href='https://techblock.club/?p=11332'> link</a>
 
-👉🏿Forget Samsung Galaxy Z Fold 3: This Fold 'N Roll concept is stunning❗️<a href='https://techblock.club/?p=11314'> link</a>
+👉🏿OnePlus has updated these phones to Android 11❗️<a href='https://techblock.club/?p=11334'> link</a>
 
