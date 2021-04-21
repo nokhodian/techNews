@@ -1,20 +1,20 @@
-<b>Technology NEWS on Tuesday, April 20th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Wednesday, April 21st, 2021</b> 📡📡📡 
 
-👉HTC Vive Air concept looks like a fitness-focused VR headset❗️<a href='https://techblock.club/?p=11398'> link</a>
+👉The Tamagotchi Pix lets you take digital pet selfies❗️<a href='https://techblock.club/?p=11418'> link</a>
 
-👉🏽Man builds, donates giant Nintendo Switch❗️<a href='https://techblock.club/?p=11400'> link</a>
+👉🏽Campagnolo announces new Bora Ultra WTO wheelset❗️<a href='https://techblock.club/?p=11420'> link</a>
 
-👉🏿Cervelo unveils Aspero-5: a lighter, racier gravel bike❗️<a href='https://techblock.club/?p=11402'> link</a>
+👉🏿Ferrari teases an even faster 812 Superfast❗️<a href='https://techblock.club/?p=11422'> link</a>
 
-👉The whole story of the FBI iPhone fight only shows how right Apple was❗️<a href='https://techblock.club/?p=11404'> link</a>
+👉M1 iMac Configurations and Pricing Breakdown❗️<a href='https://techblock.club/?p=11424'> link</a>
 
-👉🏽Xbox Game Pass vs. Xbox Live Gold: What's the difference?❗️<a href='https://techblock.club/?p=11406'> link</a>
+👉🏽New production studio coming to Knoxville❗️<a href='https://techblock.club/?p=11426'> link</a>
 
-👉🏿Campaign seeks funds for Vic Elford cancer fight❗️<a href='https://techblock.club/?p=11408'> link</a>
+👉🏿Samsung expands its Upcycle program for reusing old Galaxy phones at home❗️<a href='https://techblock.club/?p=11428'> link</a>
 
-👉Moto G60 quick review: New mid-range king?❗️<a href='https://techblock.club/?p=11410'> link</a>
+👉Realme 8 5G India launch tomorrow, price, specifications, and everything else you can expect❗️<a href='https://techblock.club/?p=11430'> link</a>
 
-👉🏽Windows 10: We're bringing 'news and interests' in the taskbar to more people, says Microsoft❗️<a href='https://techblock.club/?p=11412'> link</a>
+👉🏽Instagram lets users filter out abusive messages❗️<a href='https://techblock.club/?p=11432'> link</a>
 
-👉🏿The Dying Light x Rust cross-over event is now live❗️<a href='https://techblock.club/?p=11414'> link</a>
+👉🏿Bowers & Wilkins unveils its first TWS headsets, PI7 and PI5, with premium audio❗️<a href='https://techblock.club/?p=11434'> link</a>
 
