@@ -1,20 +1,20 @@
-<b>Technology NEWS on Wednesday, April 21st, 2021</b> 📡📡📡 
+<b>Technology NEWS on Thursday, April 22nd, 2021</b> 📡📡📡 
 
-👉The Tamagotchi Pix lets you take digital pet selfies❗️<a href='https://techblock.club/?p=11418'> link</a>
+👉Fujifilm Instax Mini 40 Camera With 'Selfie Mode' Launched in India: Price, Specifications❗️<a href='https://techblock.club/?p=11438'> link</a>
 
-👉🏽Campagnolo announces new Bora Ultra WTO wheelset❗️<a href='https://techblock.club/?p=11420'> link</a>
+👉🏽Elon Musk's $150 million charity spending spree❗️<a href='https://techblock.club/?p=11440'> link</a>
 
-👉🏿Ferrari teases an even faster 812 Superfast❗️<a href='https://techblock.club/?p=11422'> link</a>
+👉🏿Mi Portable Bluetooth Speaker (16W) Review: Loud, Yet Affordable❗️<a href='https://techblock.club/?p=11442'> link</a>
 
-👉M1 iMac Configurations and Pricing Breakdown❗️<a href='https://techblock.club/?p=11424'> link</a>
+👉Realme 8 5G quick review: The 5G phone for the masses?❗️<a href='https://techblock.club/?p=11444'> link</a>
 
-👉🏽New production studio coming to Knoxville❗️<a href='https://techblock.club/?p=11426'> link</a>
+👉🏽6 ways the new 24-inch M1 iMac still falls frustratingly short❗️<a href='https://techblock.club/?p=11446'> link</a>
 
-👉🏿Samsung expands its Upcycle program for reusing old Galaxy phones at home❗️<a href='https://techblock.club/?p=11428'> link</a>
+👉🏿Realme launches new Realme 8 5G at ₹14999: Details here❗️<a href='https://techblock.club/?p=11448'> link</a>
 
-👉Realme 8 5G India launch tomorrow, price, specifications, and everything else you can expect❗️<a href='https://techblock.club/?p=11430'> link</a>
+👉Tesla CEO Elon Musk stole my meme❗️<a href='https://techblock.club/?p=11450'> link</a>
 
-👉🏽Instagram lets users filter out abusive messages❗️<a href='https://techblock.club/?p=11432'> link</a>
+👉🏽11-inch M1 iPad Pro vs iPad Air: Back on top❗️<a href='https://techblock.club/?p=11452'> link</a>
 
-👉🏿Bowers & Wilkins unveils its first TWS headsets, PI7 and PI5, with premium audio❗️<a href='https://techblock.club/?p=11434'> link</a>
+👉🏿NVIDIA's Relationship With Healthcare Is Worth More Than You Think❗️<a href='https://techblock.club/?p=11454'> link</a>
 
