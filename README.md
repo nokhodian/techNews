@@ -1,20 +1,20 @@
-<b>Technology NEWS on Friday, April 23rd, 2021</b> 📡📡📡 
+<b>Technology NEWS on Saturday, April 24th, 2021</b> 📡📡📡 
 
-👉SpaceX rocketship launches 4 astronauts on NASA mission to space station❗️<a href='https://techblock.club/?p=11458'> link</a>
+👉Ferrari is the new maximum of twelve cylinders in the atmosphere❗️<a href='https://techblock.club/?p=11478'> link</a>
 
-👉🏽'Destiny 2' Debuts The Worst Of All Possible Transmog Systems❗️<a href='https://techblock.club/?p=11460'> link</a>
+👉🏽Humble Bundle to cap how much money from each purchase goes to charity❗️<a href='https://techblock.club/?p=11480'> link</a>
 
-👉🏿Galaxy S21 FE Concept Shows A Realistic Design In Various Colors❗️<a href='https://techblock.club/?p=11462'> link</a>
+👉🏿Microsoft fixing Windows 10 gaming issue caused by update KB5000842 using “Known Issue Rollback”❗️<a href='https://techblock.club/?p=11482'> link</a>
 
-👉You can now order the AirTag and the purple iPhone 12, delivers April 30❗️<a href='https://techblock.club/?p=11464'> link</a>
+👉Where to buy the Xbox Series X and S: Restock updates at Walmart, Best Buy, Target, Microsoft and more❗️<a href='https://techblock.club/?p=11484'> link</a>
 
-👉🏽Blood Banks In Need Of Blood Donors Amid Pandemic; No Longer In Need Of Plasma From COVID Survivors❗️<a href='https://techblock.club/?p=11466'> link</a>
+👉🏽Assassin's Creed DLC details leak for Wrath of the Druids❗️<a href='https://techblock.club/?p=11486'> link</a>
 
-👉🏿Apex Legends Season 9: Map Changes and Leaks From Trailer❗️<a href='https://techblock.club/?p=11468'> link</a>
+👉🏿Apple iOS 14.5: Dazzling New iPhone Upgrade Reveals Secrets In Final Beta❗️<a href='https://techblock.club/?p=11488'> link</a>
 
-👉Where to Find (& Unlock) Safes in Fortnite (Week 6 Challenge)❗️<a href='https://techblock.club/?p=11470'> link</a>
+👉The Switch Pro will force Nintendo to make tough decisions about gaming's future❗️<a href='https://techblock.club/?p=11490'> link</a>
 
-👉🏽Learn the principles of Python and Django for only $29.99❗️<a href='https://techblock.club/?p=11472'> link</a>
+👉🏽AMD's Radeon RX 6800/6900 Coming to Apple's Macs: Supported by MacOS 11.4❗️<a href='https://techblock.club/?p=11492'> link</a>
 
-👉🏿Xiaomi launches its most expensive smart TV in India with 75-inch QLED screen: Details here❗️<a href='https://techblock.club/?p=11474'> link</a>
+👉🏿Where to buy a PS5: Everything you need to know to purchase Sony's new console❗️<a href='https://techblock.club/?p=11494'> link</a>
 
