@@ -1,20 +1,20 @@
-<b>Technology NEWS on Sunday, April 25th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Monday, April 26th, 2021</b> 📡📡📡 
 
-👉Resident Evil Village Includes Funny Resident Evil 4 Reference❗️<a href='https://techblock.club/?p=11498'> link</a>
+👉Apple's AirDrop Vulnerability Can Leak User Details to Anyone in Proximity: Researchers❗️<a href='https://techblock.club/?p=11518'> link</a>
 
-👉🏽Where to buy the Xbox Series X and S: Restocks Walmart, Amazon, Best Buy, Target, Microsoft and more❗️<a href='https://techblock.club/?p=11500'> link</a>
+👉🏽May Day, International Museum Day, and wedding season come to Animal Crossing: New Horizons❗️<a href='https://techblock.club/?p=11520'> link</a>
 
-👉🏿Mother's Day Gift Ideas for Our Tech and Gaming Moms!❗️<a href='https://techblock.club/?p=11502'> link</a>
+👉🏿Apple iPhone 13 Mini Image Leak: Check Price, Specifications❗️<a href='https://techblock.club/?p=11522'> link</a>
 
-👉With Judgment Out for New Consoles, Sega Is Teasing a May 7 Announcement With a Countdown❗️<a href='https://techblock.club/?p=11504'> link</a>
+👉Spotify's new tie-up to allow listeners play music, podcasts from Facebook app❗️<a href='https://techblock.club/?p=11524'> link</a>
 
-👉🏽Humble Bundle Will Begin To Cap Charity Donations Next Month❗️<a href='https://techblock.club/?p=11506'> link</a>
+👉🏽Zoom can now put you in the same virtual background as your coworkers, here's how❗️<a href='https://techblock.club/?p=11526'> link</a>
 
-👉🏿Call Of Duty: Warzone Bug Reveals Gross Alien Weapon Skin❗️<a href='https://techblock.club/?p=11508'> link</a>
+👉🏿Apple to Build New Campus in North Carolina❗️<a href='https://techblock.club/?p=11528'> link</a>
 
-👉If You Want An AirTag Soon, It's Probably Best To Skip Engraving❗️<a href='https://techblock.club/?p=11510'> link</a>
+👉To Be Tracked or Not? Apple Is Now Giving Us the Choice.❗️<a href='https://techblock.club/?p=11530'> link</a>
 
-👉🏽Nintendo Switch Is Now The Sixth Best-Selling Video Game System In Japan❗️<a href='https://techblock.club/?p=11512'> link</a>
+👉🏽What if health is the Galaxy Z Fold 3's most exciting feature?❗️<a href='https://techblock.club/?p=11532'> link</a>
 
-👉🏿Is Naraka: Bladepoint free to play?❗️<a href='https://techblock.club/?p=11514'> link</a>
+👉🏿Call Of Duty Has A New General Manager, Johanna Faries❗️<a href='https://techblock.club/?p=11534'> link</a>
 
