@@ -1,20 +1,20 @@
-<b>Technology NEWS on Monday, April 26th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Tuesday, April 27th, 2021</b> 📡📡📡 
 
-👉Apple's AirDrop Vulnerability Can Leak User Details to Anyone in Proximity: Researchers❗️<a href='https://techblock.club/?p=11518'> link</a>
+👉Redmi K40 Gaming Edition With MediaTek Dimensity 1200 SoC, 120Hz Refresh Rate Launched: Price, Specifications❗️<a href='https://techblock.club/?p=11538'> link</a>
 
-👉🏽May Day, International Museum Day, and wedding season come to Animal Crossing: New Horizons❗️<a href='https://techblock.club/?p=11520'> link</a>
+👉🏽An EEG-equipped set of headphones aims to monitor how well you focus❗️<a href='https://techblock.club/?p=11540'> link</a>
 
-👉🏿Apple iPhone 13 Mini Image Leak: Check Price, Specifications❗️<a href='https://techblock.club/?p=11522'> link</a>
+👉🏿Facebook now has to ask permission to track your iPhone. Here's how to stop it.❗️<a href='https://techblock.club/?p=11542'> link</a>
 
-👉Spotify's new tie-up to allow listeners play music, podcasts from Facebook app❗️<a href='https://techblock.club/?p=11524'> link</a>
+👉One of WhatsApp's best features is getting a big upgrade❗️<a href='https://techblock.club/?p=11544'> link</a>
 
-👉🏽Zoom can now put you in the same virtual background as your coworkers, here's how❗️<a href='https://techblock.club/?p=11526'> link</a>
+👉🏽Google will be shutting down the 'Question & Answers' section in Search on 30 June❗️<a href='https://techblock.club/?p=11546'> link</a>
 
-👉🏿Apple to Build New Campus in North Carolina❗️<a href='https://techblock.club/?p=11528'> link</a>
+👉🏿Actively exploited Mac 0-day neutered core OS security defenses❗️<a href='https://techblock.club/?p=11548'> link</a>
 
-👉To Be Tracked or Not? Apple Is Now Giving Us the Choice.❗️<a href='https://techblock.club/?p=11530'> link</a>
+👉Hidden settings in Windows 10 unlock new Sun Valley floating menus❗️<a href='https://techblock.club/?p=11550'> link</a>
 
-👉🏽What if health is the Galaxy Z Fold 3's most exciting feature?❗️<a href='https://techblock.club/?p=11532'> link</a>
+👉🏽Future Valorant Maps Will Shift & Change Over Time to Tell Stories & Highlight Lore❗️<a href='https://techblock.club/?p=11552'> link</a>
 
-👉🏿Call Of Duty Has A New General Manager, Johanna Faries❗️<a href='https://techblock.club/?p=11534'> link</a>
+👉🏿Xbox Series X restock update today: track now on Best Buy, Twitter, Walmart and more❗️<a href='https://techblock.club/?p=11554'> link</a>
 
