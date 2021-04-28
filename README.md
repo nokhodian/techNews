@@ -1,20 +1,20 @@
-<b>Technology NEWS on Tuesday, April 27th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Wednesday, April 28th, 2021</b> 📡📡📡 
 
-👉Redmi K40 Gaming Edition With MediaTek Dimensity 1200 SoC, 120Hz Refresh Rate Launched: Price, Specifications❗️<a href='https://techblock.club/?p=11538'> link</a>
+👉Netflix launches 'Play Something' for moments when you can't decide what to watch❗️<a href='https://techblock.club/?p=11558'> link</a>
 
-👉🏽An EEG-equipped set of headphones aims to monitor how well you focus❗️<a href='https://techblock.club/?p=11540'> link</a>
+👉🏽Dashlane's New Essentials Plan: Because Everyone Should Have a Password Manager❗️<a href='https://techblock.club/?p=11560'> link</a>
 
-👉🏿Facebook now has to ask permission to track your iPhone. Here's how to stop it.❗️<a href='https://techblock.club/?p=11542'> link</a>
+👉🏿Total War: Rome Remastered Review❗️<a href='https://techblock.club/?p=11562'> link</a>
 
-👉One of WhatsApp's best features is getting a big upgrade❗️<a href='https://techblock.club/?p=11544'> link</a>
+👉Motorola Edge 2 leaked alongside three other Edge phones❗️<a href='https://techblock.club/?p=11564'> link</a>
 
-👉🏽Google will be shutting down the 'Question & Answers' section in Search on 30 June❗️<a href='https://techblock.club/?p=11546'> link</a>
+👉🏽Samsung launches Galaxy Book Pro starting at $999, Galaxy Book Pro 360 at $1199❗️<a href='https://techblock.club/?p=11566'> link</a>
 
-👉🏿Actively exploited Mac 0-day neutered core OS security defenses❗️<a href='https://techblock.club/?p=11548'> link</a>
+👉🏿New iPads: What we want vs what we need vs. what we ordered❗️<a href='https://techblock.club/?p=11568'> link</a>
 
-👉Hidden settings in Windows 10 unlock new Sun Valley floating menus❗️<a href='https://techblock.club/?p=11550'> link</a>
+👉ZTE USA launches Blade 11 Prime LTE smartphone, priced under USD 200❗️<a href='https://techblock.club/?p=11570'> link</a>
 
-👉🏽Future Valorant Maps Will Shift & Change Over Time to Tell Stories & Highlight Lore❗️<a href='https://techblock.club/?p=11552'> link</a>
+👉🏽Returnal Launch Trailer Shows This Is One Existential Roguelite❗️<a href='https://techblock.club/?p=11572'> link</a>
 
-👉🏿Xbox Series X restock update today: track now on Best Buy, Twitter, Walmart and more❗️<a href='https://techblock.club/?p=11554'> link</a>
+👉🏿The Queen's golden Nintendo Wii is up for sale❗️<a href='https://techblock.club/?p=11574'> link</a>
 
