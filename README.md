@@ -1,20 +1,20 @@
-<b>Technology NEWS on Wednesday, April 28th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Thursday, April 29th, 2021</b> 📡📡📡 
 
-👉Netflix launches 'Play Something' for moments when you can't decide what to watch❗️<a href='https://techblock.club/?p=11558'> link</a>
+👉The royal Wii? Gold-plated Nintendo console made for Queen Elizabeth is up for sale❗️<a href='https://techblock.club/?p=11578'> link</a>
 
-👉🏽Dashlane's New Essentials Plan: Because Everyone Should Have a Password Manager❗️<a href='https://techblock.club/?p=11560'> link</a>
+👉🏽Spotify makes it easier to navigate your library on the go❗️<a href='https://techblock.club/?p=11580'> link</a>
 
-👉🏿Total War: Rome Remastered Review❗️<a href='https://techblock.club/?p=11562'> link</a>
+👉🏿Microsoft Fixes a Very Annoying Windows 10 Application Layout Bug❗️<a href='https://techblock.club/?p=11582'> link</a>
 
-👉Motorola Edge 2 leaked alongside three other Edge phones❗️<a href='https://techblock.club/?p=11564'> link</a>
+👉Outer Wilds – Echoes of the Eye Spotted on SteamDB❗️<a href='https://techblock.club/?p=11584'> link</a>
 
-👉🏽Samsung launches Galaxy Book Pro starting at $999, Galaxy Book Pro 360 at $1199❗️<a href='https://techblock.club/?p=11566'> link</a>
+👉🏽Planet Coaster: Console Edition embraces the movie magic with new Ghostbusters and Studios Packs❗️<a href='https://techblock.club/?p=11586'> link</a>
 
-👉🏿New iPads: What we want vs what we need vs. what we ordered❗️<a href='https://techblock.club/?p=11568'> link</a>
+👉🏿What you need to know about taking collagen supplements❗️<a href='https://techblock.club/?p=11588'> link</a>
 
-👉ZTE USA launches Blade 11 Prime LTE smartphone, priced under USD 200❗️<a href='https://techblock.club/?p=11570'> link</a>
+👉Smartphones are back in demand as shipments grow by 25% – Samsung, Apple, Xiaomi consolidate market share❗️<a href='https://techblock.club/?p=11590'> link</a>
 
-👉🏽Returnal Launch Trailer Shows This Is One Existential Roguelite❗️<a href='https://techblock.club/?p=11572'> link</a>
+👉🏽Epic won't let Microsoft add streaming support for Fortnite on 'competitor' xCloud❗️<a href='https://techblock.club/?p=11592'> link</a>
 
-👉🏿The Queen's golden Nintendo Wii is up for sale❗️<a href='https://techblock.club/?p=11574'> link</a>
+👉🏿Warhammer Age of Sigmar: Storm Ground gameplay overview trailer❗️<a href='https://techblock.club/?p=11594'> link</a>
 
