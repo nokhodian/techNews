@@ -1,20 +1,20 @@
-<b>Technology NEWS on Thursday, April 29th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Friday, April 30th, 2021</b> 📡📡📡 
 
-👉The royal Wii? Gold-plated Nintendo console made for Queen Elizabeth is up for sale❗️<a href='https://techblock.club/?p=11578'> link</a>
+👉Apple AirTag: 7 tricks to help you master Apple's Tile-like tracker❗️<a href='https://techblock.club/?p=11598'> link</a>
 
-👉🏽Spotify makes it easier to navigate your library on the go❗️<a href='https://techblock.club/?p=11580'> link</a>
+👉🏽Apple unveils new 2021 products: iPad Pro, AirTag and more❗️<a href='https://techblock.club/?p=11600'> link</a>
 
-👉🏿Microsoft Fixes a Very Annoying Windows 10 Application Layout Bug❗️<a href='https://techblock.club/?p=11582'> link</a>
+👉🏿'Outriders' Patch Notes: Tons Of Fixes, No Inventory Restoration, And A New Armor Bug❗️<a href='https://techblock.club/?p=11602'> link</a>
 
-👉Outer Wilds – Echoes of the Eye Spotted on SteamDB❗️<a href='https://techblock.club/?p=11584'> link</a>
+👉Apple iPhone 12 Pro review❗️<a href='https://techblock.club/?p=11604'> link</a>
 
-👉🏽Planet Coaster: Console Edition embraces the movie magic with new Ghostbusters and Studios Packs❗️<a href='https://techblock.club/?p=11586'> link</a>
+👉🏽UK company insolvencies fall to lowest since 1989❗️<a href='https://techblock.club/?p=11606'> link</a>
 
-👉🏿What you need to know about taking collagen supplements❗️<a href='https://techblock.club/?p=11588'> link</a>
+👉🏿Outriders Update 1.07/1.007 Arrives For PS4 And PS5 With Bugs And Crashing Issues Fixed❗️<a href='https://techblock.club/?p=11608'> link</a>
 
-👉Smartphones are back in demand as shipments grow by 25% – Samsung, Apple, Xiaomi consolidate market share❗️<a href='https://techblock.club/?p=11590'> link</a>
+👉Resident Evil Village Makes For A Delightfully Demented Puppet Show❗️<a href='https://techblock.club/?p=11610'> link</a>
 
-👉🏽Epic won't let Microsoft add streaming support for Fortnite on 'competitor' xCloud❗️<a href='https://techblock.club/?p=11592'> link</a>
+👉🏽Channel Your Inner Wildlife Photographer And Chill Out With 'New Pokémon Snap'❗️<a href='https://techblock.club/?p=11612'> link</a>
 
-👉🏿Warhammer Age of Sigmar: Storm Ground gameplay overview trailer❗️<a href='https://techblock.club/?p=11594'> link</a>
+👉🏿Samsung Internet Now Has An Optional Bookmarks Bar❗️<a href='https://techblock.club/?p=11614'> link</a>
 
