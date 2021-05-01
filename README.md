@@ -1,20 +1,20 @@
-<b>Technology NEWS on Friday, April 30th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Saturday, May 1st, 2021</b> 📡📡📡 
 
-👉Apple AirTag: 7 tricks to help you master Apple's Tile-like tracker❗️<a href='https://techblock.club/?p=11598'> link</a>
+👉How Apex Legends' New Character Ties In To Titanfall 2❗️<a href='https://techblock.club/?p=11618'> link</a>
 
-👉🏽Apple unveils new 2021 products: iPad Pro, AirTag and more❗️<a href='https://techblock.club/?p=11600'> link</a>
+👉🏽Poco F3 GT Indian version roundup: Gaming buttons, Dimensity chip and more❗️<a href='https://techblock.club/?p=11620'> link</a>
 
-👉🏿'Outriders' Patch Notes: Tons Of Fixes, No Inventory Restoration, And A New Armor Bug❗️<a href='https://techblock.club/?p=11602'> link</a>
+👉🏿SpaceX's NASA Contract Win Now On Hold Following Blue Origin Challenge❗️<a href='https://techblock.club/?p=11622'> link</a>
 
-👉Apple iPhone 12 Pro review❗️<a href='https://techblock.club/?p=11604'> link</a>
+👉Konami Gives Update On Key Projects, Won't Be At E3 2021❗️<a href='https://techblock.club/?p=11624'> link</a>
 
-👉🏽UK company insolvencies fall to lowest since 1989❗️<a href='https://techblock.club/?p=11606'> link</a>
+👉🏽Sony Survey Reportedly Asking Fans If They've Heard Of The Burnout Series❗️<a href='https://techblock.club/?p=11626'> link</a>
 
-👉🏿Outriders Update 1.07/1.007 Arrives For PS4 And PS5 With Bugs And Crashing Issues Fixed❗️<a href='https://techblock.club/?p=11608'> link</a>
+👉🏿Marketbull.co.uk review (best broker?)❗️<a href='https://techblock.club/?p=11628'> link</a>
 
-👉Resident Evil Village Makes For A Delightfully Demented Puppet Show❗️<a href='https://techblock.club/?p=11610'> link</a>
+👉2022 Honda Civic adds wireless connections for CarPlay, Android Auto❗️<a href='https://techblock.club/?p=11630'> link</a>
 
-👉🏽Channel Your Inner Wildlife Photographer And Chill Out With 'New Pokémon Snap'❗️<a href='https://techblock.club/?p=11612'> link</a>
+👉🏽Alexa, is today Mother's Day? How to connect with mom when it is❗️<a href='https://techblock.club/?p=11632'> link</a>
 
-👉🏿Samsung Internet Now Has An Optional Bookmarks Bar❗️<a href='https://techblock.club/?p=11614'> link</a>
+👉🏿Bennyqt's Wanwan stars as Aura PH outduels Bren Esports in clash of MPL champions❗️<a href='https://techblock.club/?p=11634'> link</a>
 
