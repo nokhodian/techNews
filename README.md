@@ -1,20 +1,20 @@
-<b>Technology NEWS on Saturday, May 1st, 2021</b> 📡📡📡 
+<b>Technology NEWS on Sunday, May 2nd, 2021</b> 📡📡📡 
 
-👉How Apex Legends' New Character Ties In To Titanfall 2❗️<a href='https://techblock.club/?p=11618'> link</a>
+👉Mother's Day 2021 deals: Save on the best tech for mom❗️<a href='https://techblock.club/?p=11638'> link</a>
 
-👉🏽Poco F3 GT Indian version roundup: Gaming buttons, Dimensity chip and more❗️<a href='https://techblock.club/?p=11620'> link</a>
+👉🏽Amazon Echo Frames review: About as useful as an Echo Dot taped to your forehead❗️<a href='https://techblock.club/?p=11640'> link</a>
 
-👉🏿SpaceX's NASA Contract Win Now On Hold Following Blue Origin Challenge❗️<a href='https://techblock.club/?p=11622'> link</a>
+👉🏿Nier Reincarnation Is Nierly Ready For English Release❗️<a href='https://techblock.club/?p=11642'> link</a>
 
-👉Konami Gives Update On Key Projects, Won't Be At E3 2021❗️<a href='https://techblock.club/?p=11624'> link</a>
+👉New Pokémon Snap: What's Your Favorite Pollen Guide❗️<a href='https://techblock.club/?p=11644'> link</a>
 
-👉🏽Sony Survey Reportedly Asking Fans If They've Heard Of The Burnout Series❗️<a href='https://techblock.club/?p=11626'> link</a>
+👉🏽iPhone 13: price, release date, performance, design … everything you need to know about Apple's next smartphone❗️<a href='https://techblock.club/?p=11646'> link</a>
 
-👉🏿Marketbull.co.uk review (best broker?)❗️<a href='https://techblock.club/?p=11628'> link</a>
+👉🏿Microsoft Excel VBA: First Steps – Simply Explained❗️<a href='https://techblock.club/?p=11648'> link</a>
 
-👉2022 Honda Civic adds wireless connections for CarPlay, Android Auto❗️<a href='https://techblock.club/?p=11630'> link</a>
+👉Game Review | Monster Hunter Rise❗️<a href='https://techblock.club/?p=11650'> link</a>
 
-👉🏽Alexa, is today Mother's Day? How to connect with mom when it is❗️<a href='https://techblock.club/?p=11632'> link</a>
+👉🏽PS5 Restock: Target, Best Buy, GameStop, and Walmart Expected to Drop This Week – May 3-9❗️<a href='https://techblock.club/?p=11652'> link</a>
 
-👉🏿Bennyqt's Wanwan stars as Aura PH outduels Bren Esports in clash of MPL champions❗️<a href='https://techblock.club/?p=11634'> link</a>
+👉🏿Do not ignore the latest WhatsApp warning or you will be blocked from sending text messages❗️<a href='https://techblock.club/?p=11654'> link</a>
 
