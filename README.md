@@ -1,20 +1,20 @@
-<b>Technology NEWS on Sunday, May 2nd, 2021</b> 📡📡📡 
+<b>Technology NEWS on Monday, May 3rd, 2021</b> 📡📡📡 
 
-👉Mother's Day 2021 deals: Save on the best tech for mom❗️<a href='https://techblock.club/?p=11638'> link</a>
+👉Verizon is selling its media group to Apollo for $5 billion❗️<a href='https://techblock.club/?p=11658'> link</a>
 
-👉🏽Amazon Echo Frames review: About as useful as an Echo Dot taped to your forehead❗️<a href='https://techblock.club/?p=11640'> link</a>
+👉🏽You can roll back iOS 14.5 to iOS 14.4. But should you? Probably not. Here are 3 reasons why❗️<a href='https://techblock.club/?p=11660'> link</a>
 
-👉🏿Nier Reincarnation Is Nierly Ready For English Release❗️<a href='https://techblock.club/?p=11642'> link</a>
+👉🏿Galaxy Z Fold 3 Leaks: Foldable Phone To Come With S Pen; Here Are More Details❗️<a href='https://techblock.club/?p=11662'> link</a>
 
-👉New Pokémon Snap: What's Your Favorite Pollen Guide❗️<a href='https://techblock.club/?p=11644'> link</a>
+👉Apple Watch Likely to Gain Blood Pressure, Blood Glucose, and Blood Alcohol Monitoring❗️<a href='https://techblock.club/?p=11664'> link</a>
 
-👉🏽iPhone 13: price, release date, performance, design … everything you need to know about Apple's next smartphone❗️<a href='https://techblock.club/?p=11646'> link</a>
+👉🏽New Spectre variants reportedly affect all Intel and AMD chips❗️<a href='https://techblock.club/?p=11666'> link</a>
 
-👉🏿Microsoft Excel VBA: First Steps – Simply Explained❗️<a href='https://techblock.club/?p=11648'> link</a>
+👉🏿Clubhouse Android App Announced To Have Started Beta Testing: Here Are The Details❗️<a href='https://techblock.club/?p=11668'> link</a>
 
-👉Game Review | Monster Hunter Rise❗️<a href='https://techblock.club/?p=11650'> link</a>
+👉Apple's foldable iPhone release date was just leaked by a top insider❗️<a href='https://techblock.club/?p=11670'> link</a>
 
-👉🏽PS5 Restock: Target, Best Buy, GameStop, and Walmart Expected to Drop This Week – May 3-9❗️<a href='https://techblock.club/?p=11652'> link</a>
+👉🏽iQoo Z3 India launch soon, multiple certifications cleared❗️<a href='https://techblock.club/?p=11672'> link</a>
 
-👉🏿Do not ignore the latest WhatsApp warning or you will be blocked from sending text messages❗️<a href='https://techblock.club/?p=11654'> link</a>
+👉🏿Spotify Doubles Android Downloads to 1 Billion in Just Two Years❗️<a href='https://techblock.club/?p=11674'> link</a>
 
