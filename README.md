@@ -1,20 +1,20 @@
-<b>Technology NEWS on Monday, May 3rd, 2021</b> 📡📡📡 
+<b>Technology NEWS on Tuesday, May 4th, 2021</b> 📡📡📡 
 
-👉Verizon is selling its media group to Apollo for $5 billion❗️<a href='https://techblock.club/?p=11658'> link</a>
+👉Samsung Galaxy Z Fold 3, Galaxy Z Flip 3 leaks reveal revamped camera design❗️<a href='https://techblock.club/?p=11678'> link</a>
 
-👉🏽You can roll back iOS 14.5 to iOS 14.4. But should you? Probably not. Here are 3 reasons why❗️<a href='https://techblock.club/?p=11660'> link</a>
+👉🏽Adobe Flash: Microsoft lays out plans to remove it from Windows 10 PCs for good❗️<a href='https://techblock.club/?p=11680'> link</a>
 
-👉🏿Galaxy Z Fold 3 Leaks: Foldable Phone To Come With S Pen; Here Are More Details❗️<a href='https://techblock.club/?p=11662'> link</a>
+👉🏿Random: Want To Develop For Nintendo Switch? Better Make Sure You're Not A Yakuza, Then❗️<a href='https://techblock.club/?p=11682'> link</a>
 
-👉Apple Watch Likely to Gain Blood Pressure, Blood Glucose, and Blood Alcohol Monitoring❗️<a href='https://techblock.club/?p=11664'> link</a>
+👉These Galaxy Z Flip 3 Renders Are Based On Leaked Images❗️<a href='https://techblock.club/?p=11684'> link</a>
 
-👉🏽New Spectre variants reportedly affect all Intel and AMD chips❗️<a href='https://techblock.club/?p=11666'> link</a>
+👉🏽Mi 11 Ultra review: Finally, a worthy flagship from Xiaomi❗️<a href='https://techblock.club/?p=11686'> link</a>
 
-👉🏿Clubhouse Android App Announced To Have Started Beta Testing: Here Are The Details❗️<a href='https://techblock.club/?p=11668'> link</a>
+👉🏿Skydio starts shipping first X2 enterprise drones with prices from $10999❗️<a href='https://techblock.club/?p=11688'> link</a>
 
-👉Apple's foldable iPhone release date was just leaked by a top insider❗️<a href='https://techblock.club/?p=11670'> link</a>
+👉'Apex Legends Legacy Patch' to Launch on May 4: Patch Notes Include Valkyrie, New Arenas Mode and MORE❗️<a href='https://techblock.club/?p=11690'> link</a>
 
-👉🏽iQoo Z3 India launch soon, multiple certifications cleared❗️<a href='https://techblock.club/?p=11672'> link</a>
+👉🏽FIFA 21 and Red Dead Online are now free on Xbox Game Pass❗️<a href='https://techblock.club/?p=11692'> link</a>
 
-👉🏿Spotify Doubles Android Downloads to 1 Billion in Just Two Years❗️<a href='https://techblock.club/?p=11674'> link</a>
+👉🏿Blizzard is making changes to matchmaking in Burning Crusade Classic arena to promote a 'healthier PvP environment'❗️<a href='https://techblock.club/?p=11694'> link</a>
 
