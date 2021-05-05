@@ -1,20 +1,20 @@
-<b>Technology NEWS on Tuesday, May 4th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Wednesday, May 5th, 2021</b> 📡📡📡 
 
-👉Samsung Galaxy Z Fold 3, Galaxy Z Flip 3 leaks reveal revamped camera design❗️<a href='https://techblock.club/?p=11678'> link</a>
+👉All about Apple's new AirTag❗️<a href='https://techblock.club/?p=11698'> link</a>
 
-👉🏽Adobe Flash: Microsoft lays out plans to remove it from Windows 10 PCs for good❗️<a href='https://techblock.club/?p=11680'> link</a>
+👉🏽This is the Ferrari 812 Competizione and Competizione A❗️<a href='https://techblock.club/?p=11700'> link</a>
 
-👉🏿Random: Want To Develop For Nintendo Switch? Better Make Sure You're Not A Yakuza, Then❗️<a href='https://techblock.club/?p=11682'> link</a>
+👉🏿Here Is Destiny 2's Season Of The Splicer Roadmap❗️<a href='https://techblock.club/?p=11702'> link</a>
 
-👉These Galaxy Z Flip 3 Renders Are Based On Leaked Images❗️<a href='https://techblock.club/?p=11684'> link</a>
+👉II-VI stock bounces after Apple more than doubles awards from manufacturing fund❗️<a href='https://techblock.club/?p=11704'> link</a>
 
-👉🏽Mi 11 Ultra review: Finally, a worthy flagship from Xiaomi❗️<a href='https://techblock.club/?p=11686'> link</a>
+👉🏽Facebook sets its sights on Nextdoor with new Neighborhoods feature❗️<a href='https://techblock.club/?p=11706'> link</a>
 
-👉🏿Skydio starts shipping first X2 enterprise drones with prices from $10999❗️<a href='https://techblock.club/?p=11688'> link</a>
+👉🏿Apex Legends sets new Steam record following Season 9 launch❗️<a href='https://techblock.club/?p=11708'> link</a>
 
-👉'Apex Legends Legacy Patch' to Launch on May 4: Patch Notes Include Valkyrie, New Arenas Mode and MORE❗️<a href='https://techblock.club/?p=11690'> link</a>
+👉Xbox Cloud Gaming beta hands-on: How to play Xbox games on your iPad or laptop❗️<a href='https://techblock.club/?p=11710'> link</a>
 
-👉🏽FIFA 21 and Red Dead Online are now free on Xbox Game Pass❗️<a href='https://techblock.club/?p=11692'> link</a>
+👉🏽SmartTags: 8 must-know tips for using Samsung's answer to AirTag and Tile❗️<a href='https://techblock.club/?p=11712'> link</a>
 
-👉🏿Blizzard is making changes to matchmaking in Burning Crusade Classic arena to promote a 'healthier PvP environment'❗️<a href='https://techblock.club/?p=11694'> link</a>
+👉🏿2021 Ford Explorer Timberline aims to ruggedize the family SUV❗️<a href='https://techblock.club/?p=11714'> link</a>
 
