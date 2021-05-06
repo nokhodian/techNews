@@ -1,20 +1,20 @@
-<b>Technology NEWS on Wednesday, May 5th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Thursday, May 6th, 2021</b> 📡📡📡 
 
-👉All about Apple's new AirTag❗️<a href='https://techblock.club/?p=11698'> link</a>
+👉Apple's Anti-Epic Argument Using Xbox Is A Little Hard To Refute❗️<a href='https://techblock.club/?p=11718'> link</a>
 
-👉🏽This is the Ferrari 812 Competizione and Competizione A❗️<a href='https://techblock.club/?p=11700'> link</a>
+👉🏽Krafton to launch Battlegrounds Mobile India to regain PUBG Mobile glory❗️<a href='https://techblock.club/?p=11720'> link</a>
 
-👉🏿Here Is Destiny 2's Season Of The Splicer Roadmap❗️<a href='https://techblock.club/?p=11702'> link</a>
+👉🏿What Activision Blizzard's Q1 Results Say About Its Stock?❗️<a href='https://techblock.club/?p=11722'> link</a>
 
-👉II-VI stock bounces after Apple more than doubles awards from manufacturing fund❗️<a href='https://techblock.club/?p=11704'> link</a>
+👉Wilder Ferrari 812 Competizione models revealed❗️<a href='https://techblock.club/?p=11724'> link</a>
 
-👉🏽Facebook sets its sights on Nextdoor with new Neighborhoods feature❗️<a href='https://techblock.club/?p=11706'> link</a>
+👉🏽How to pre-order Nintendo Switch Lite Blue: where to buy it and price❗️<a href='https://techblock.club/?p=11726'> link</a>
 
-👉🏿Apex Legends sets new Steam record following Season 9 launch❗️<a href='https://techblock.club/?p=11708'> link</a>
+👉🏿Wedding surge good for vendors, bad for couples❗️<a href='https://techblock.club/?p=11728'> link</a>
 
-👉Xbox Cloud Gaming beta hands-on: How to play Xbox games on your iPad or laptop❗️<a href='https://techblock.club/?p=11710'> link</a>
+👉Is there a pattern to the universe?❗️<a href='https://techblock.club/?p=11730'> link</a>
 
-👉🏽SmartTags: 8 must-know tips for using Samsung's answer to AirTag and Tile❗️<a href='https://techblock.club/?p=11712'> link</a>
+👉🏽Nintendo warns chip crunch could hit Switch supplies after sales soared amid the Covid-19 pandemic gaming boom❗️<a href='https://techblock.club/?p=11732'> link</a>
 
-👉🏿2021 Ford Explorer Timberline aims to ruggedize the family SUV❗️<a href='https://techblock.club/?p=11714'> link</a>
+👉🏿Moonfire $60m seed fund invests in dozen start-ups❗️<a href='https://techblock.club/?p=11734'> link</a>
 
