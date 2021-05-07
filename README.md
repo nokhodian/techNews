@@ -1,20 +1,20 @@
-<b>Technology NEWS on Thursday, May 6th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Friday, May 7th, 2021</b> 📡📡📡 
 
-👉Apple's Anti-Epic Argument Using Xbox Is A Little Hard To Refute❗️<a href='https://techblock.club/?p=11718'> link</a>
+👉Nintendo profits boom as people stuck at home play games❗️<a href='https://techblock.club/?p=11738'> link</a>
 
-👉🏽Krafton to launch Battlegrounds Mobile India to regain PUBG Mobile glory❗️<a href='https://techblock.club/?p=11720'> link</a>
+👉🏽The Apple Podcasts app redesign is a crime against humanity❗️<a href='https://techblock.club/?p=11740'> link</a>
 
-👉🏿What Activision Blizzard's Q1 Results Say About Its Stock?❗️<a href='https://techblock.club/?p=11722'> link</a>
+👉🏿Here Are The 23 'Destiny 2' Season Of The Splicer Weapons We Know About❗️<a href='https://techblock.club/?p=11742'> link</a>
 
-👉Wilder Ferrari 812 Competizione models revealed❗️<a href='https://techblock.club/?p=11724'> link</a>
+👉'Play with a purpose' | Electric scooter businesses now legal in Racine❗️<a href='https://techblock.club/?p=11744'> link</a>
 
-👉🏽How to pre-order Nintendo Switch Lite Blue: where to buy it and price❗️<a href='https://techblock.club/?p=11726'> link</a>
+👉🏽How to stop apps tracking you on iPhone and iPad❗️<a href='https://techblock.club/?p=11746'> link</a>
 
-👉🏿Wedding surge good for vendors, bad for couples❗️<a href='https://techblock.club/?p=11728'> link</a>
+👉🏿Google Plans to Level Up Security: Will Enroll All Users to Two-Factor Authentication By Default❗️<a href='https://techblock.club/?p=11748'> link</a>
 
-👉Is there a pattern to the universe?❗️<a href='https://techblock.club/?p=11730'> link</a>
+👉Galaxy Z Flip 3 Charging Speed Revealed, And It's Not Impressive❗️<a href='https://techblock.club/?p=11750'> link</a>
 
-👉🏽Nintendo warns chip crunch could hit Switch supplies after sales soared amid the Covid-19 pandemic gaming boom❗️<a href='https://techblock.club/?p=11732'> link</a>
+👉🏽OnePlus set to add new Theme Store in OxygenOS 12❗️<a href='https://techblock.club/?p=11752'> link</a>
 
-👉🏿Moonfire $60m seed fund invests in dozen start-ups❗️<a href='https://techblock.club/?p=11734'> link</a>
+👉🏿WhatsApp working on making sticker search easier and other features❗️<a href='https://techblock.club/?p=11754'> link</a>
 
