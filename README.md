@@ -1,20 +1,20 @@
-<b>Technology NEWS on Sunday, May 9th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Monday, May 10th, 2021</b> 📡📡📡 
 
-👉Google takes on Roku as it adds YuTube TV to main YT app❗️<a href='https://techblock.club/?p=11778'> link</a>
+👉Brooks launches astronaut-inspired running shoe with nitrogen foam❗️<a href='https://techblock.club/?p=11798'> link</a>
 
-👉🏽Samsung Galaxy Z Fold 3 and Galaxy Z Flip 3: Thing to know❗️<a href='https://techblock.club/?p=11780'> link</a>
+👉🏽What Genshin Impact Version 1.6's Release Date Is❗️<a href='https://techblock.club/?p=11800'> link</a>
 
-👉🏿Nintendo's new game teaches people how to make video games❗️<a href='https://techblock.club/?p=11782'> link</a>
+👉🏿HyperX Launches Lightning Fast DDR4-5333 Memory For AMD Ryzen And Intel Core Gaming Rigs❗️<a href='https://techblock.club/?p=11802'> link</a>
 
-👉Asus ZenFone 8 series roundup: Expected specs, features, price and more❗️<a href='https://techblock.club/?p=11784'> link</a>
+👉Xiaomi's iPad Pro rival may launch later this year❗️<a href='https://techblock.club/?p=11804'> link</a>
 
-👉🏽Call of Duty no longer working with Ghost voice actor after sexism allegations❗️<a href='https://techblock.club/?p=11786'> link</a>
+👉🏽Hood: Outlaws & Legends Looks Thrilling in its Epic Launch Trailer❗️<a href='https://techblock.club/?p=11806'> link</a>
 
-👉🏿Jessica McNamee wants Mortal Kombat sequels❗️<a href='https://techblock.club/?p=11788'> link</a>
+👉🏿Leaked Photos Give Us a Peek at the Next Generation of Sony's Excellent Noise-Cancelling Earbuds❗️<a href='https://techblock.club/?p=11808'> link</a>
 
-👉Apple Gave Zoom Access to Special API to Use iPad Camera During Split View Multitasking❗️<a href='https://techblock.club/?p=11790'> link</a>
+👉Roku Responds To Google's Latest YouTube TV Move❗️<a href='https://techblock.club/?p=11810'> link</a>
 
-👉🏽Chimamanda Ngozi Adichie: 'My Madness Will Now Bare Itself'❗️<a href='https://techblock.club/?p=11792'> link</a>
+👉🏽Battlefield 6 Trailer Coming This Week, Hints Music Artist❗️<a href='https://techblock.club/?p=11812'> link</a>
 
-👉🏿PUBG Mobile India launch: How Covid-19 lockdown, FAU-G's failure will impact Battlegrounds Mobile India❗️<a href='https://techblock.club/?p=11794'> link</a>
+👉🏿John McClane and Rambo are heading to Verdansk❗️<a href='https://techblock.club/?p=11814'> link</a>
 
