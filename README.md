@@ -1,20 +1,20 @@
-<b>Technology NEWS on Tuesday, May 11th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Wednesday, May 12th, 2021</b> 📡📡📡 
 
-👉New iPad game Pok Pok Playroom brings a fresh approach to playtime for kids❗️<a href='https://techblock.club/?p=11818'> link</a>
+👉Amazon reveals newly updated Echo Show 8 and 5 – here's how to pre-order❗️<a href='https://techblock.club/?p=11838'> link</a>
 
-👉🏽Roku Express 4K Plus review: The new go-to Roku❗️<a href='https://techblock.club/?p=11820'> link</a>
+👉🏽Amazon wins $303 million court fight in blow to EU tax crusade❗️<a href='https://techblock.club/?p=11840'> link</a>
 
-👉🏿Epic v Apple trial debates appropriateness of Fortnite's naked banana man Peely❗️<a href='https://techblock.club/?p=11822'> link</a>
+👉🏿Ubisoft Shifting To More 'High-End Free-To-Play' Games, And It's Already Starting❗️<a href='https://techblock.club/?p=11842'> link</a>
 
-👉Apex Legends: Advanced Arenas Strategies And Tips To Win❗️<a href='https://techblock.club/?p=11824'> link</a>
+👉EU court says Amazon won't have to pay its $300 million tax bill❗️<a href='https://techblock.club/?p=11844'> link</a>
 
-👉🏽Galaxy Z Fold 3 To Use Sony's Camera Sensor Under Its Foldable Display❗️<a href='https://techblock.club/?p=11826'> link</a>
+👉🏽New M1 iPad Pro is much faster than older iPad Pro, suggest benchmarks❗️<a href='https://techblock.club/?p=11846'> link</a>
 
-👉🏿Fortnite: How to Get Gold Lara Croft❗️<a href='https://techblock.club/?p=11828'> link</a>
+👉🏿Make your Outlook work more like Gmail. Here's how❗️<a href='https://techblock.club/?p=11848'> link</a>
 
-👉Could the Apple Watch 7 really measure blood glucose – and why is it important?❗️<a href='https://techblock.club/?p=11830'> link</a>
+👉EU court says Amazon was wrongly ordered to pay $300 million in back taxes❗️<a href='https://techblock.club/?p=11850'> link</a>
 
-👉🏽Canyon Grizl CF SL 8 1BY - First look gallery❗️<a href='https://techblock.club/?p=11832'> link</a>
+👉🏽Apple iCloud Documents ends next year: how to save your data❗️<a href='https://techblock.club/?p=11852'> link</a>
 
-👉🏿MacBook Air 2021 colors just leaked — here's what to expect❗️<a href='https://techblock.club/?p=11834'> link</a>
+👉🏿Assassin's Creed Valhalla: Wrath of the Druids Review❗️<a href='https://techblock.club/?p=11854'> link</a>
 
