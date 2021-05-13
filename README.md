@@ -1,20 +1,20 @@
-<b>Technology NEWS on Wednesday, May 12th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Thursday, May 13th, 2021</b> 📡📡📡 
 
-👉Amazon reveals newly updated Echo Show 8 and 5 – here's how to pre-order❗️<a href='https://techblock.club/?p=11838'> link</a>
+👉Japanese tycoon planning space station visit, then moon trip❗️<a href='https://techblock.club/?p=11863'> link</a>
 
-👉🏽Amazon wins $303 million court fight in blow to EU tax crusade❗️<a href='https://techblock.club/?p=11840'> link</a>
+👉🏽E3 2021 gets own online portal and app for virtual event❗️<a href='https://techblock.club/?p=11865'> link</a>
 
-👉🏿Ubisoft Shifting To More 'High-End Free-To-Play' Games, And It's Already Starting❗️<a href='https://techblock.club/?p=11842'> link</a>
+👉🏿Brain Computer Interface Turns Mental Handwriting Into Text on Screen, Could Help People With Paralysis❗️<a href='https://techblock.club/?p=11867'> link</a>
 
-👉EU court says Amazon won't have to pay its $300 million tax bill❗️<a href='https://techblock.club/?p=11844'> link</a>
+👉Mass Effect: Legendary Edition remasters your 2007 nostalgia beautifully❗️<a href='https://techblock.club/?p=11869'> link</a>
 
-👉🏽New M1 iPad Pro is much faster than older iPad Pro, suggest benchmarks❗️<a href='https://techblock.club/?p=11846'> link</a>
+👉🏽'Assassin's Creed Valhalla: Wrath of the Druids' spoiler-free review❗️<a href='https://techblock.club/?p=11871'> link</a>
 
-👉🏿Make your Outlook work more like Gmail. Here's how❗️<a href='https://techblock.club/?p=11848'> link</a>
+👉🏿Huawei P50 Cameras Shown In Images, They Look Rather Interesting❗️<a href='https://techblock.club/?p=11873'> link</a>
 
-👉EU court says Amazon was wrongly ordered to pay $300 million in back taxes❗️<a href='https://techblock.club/?p=11850'> link</a>
+👉An interior designer's guide to creating a stylish outdoor living space❗️<a href='https://techblock.club/?p=11875'> link</a>
 
-👉🏽Apple iCloud Documents ends next year: how to save your data❗️<a href='https://techblock.club/?p=11852'> link</a>
+👉🏽New Dragon Quest Will Be Announced Later This Month❗️<a href='https://techblock.club/?p=11877'> link</a>
 
-👉🏿Assassin's Creed Valhalla: Wrath of the Druids Review❗️<a href='https://techblock.club/?p=11854'> link</a>
+👉🏿MediaTek Dimensity 900 6nm 5G SoC for Mid-Range Smartphones Announced❗️<a href='https://techblock.club/?p=11879'> link</a>
 
