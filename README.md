@@ -1,20 +1,20 @@
-<b>Technology NEWS on Thursday, May 13th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Friday, May 14th, 2021</b> 📡📡📡 
 
-👉Japanese tycoon planning space station visit, then moon trip❗️<a href='https://techblock.club/?p=11863'> link</a>
+👉Flipkart Apple Days sale ends tonight: Deals on iPhone 12 series, iPhone 11 and more❗️<a href='https://techblock.club/?p=11883'> link</a>
 
-👉🏽E3 2021 gets own online portal and app for virtual event❗️<a href='https://techblock.club/?p=11865'> link</a>
+👉🏽New Device Allows Man With Paralysis to Type by Imagining Handwriting❗️<a href='https://techblock.club/?p=11885'> link</a>
 
-👉🏿Brain Computer Interface Turns Mental Handwriting Into Text on Screen, Could Help People With Paralysis❗️<a href='https://techblock.club/?p=11867'> link</a>
+👉🏿Google I/O 2021 event: date, how to watch and the latest rumours on product announcements❗️<a href='https://techblock.club/?p=11887'> link</a>
 
-👉Mass Effect: Legendary Edition remasters your 2007 nostalgia beautifully❗️<a href='https://techblock.club/?p=11869'> link</a>
+👉PS5 controller black and red versions: Confirmed price, release date and where to pre-order❗️<a href='https://techblock.club/?p=11889'> link</a>
 
-👉🏽'Assassin's Creed Valhalla: Wrath of the Druids' spoiler-free review❗️<a href='https://techblock.club/?p=11871'> link</a>
+👉🏽How Ratchet & Clank: Rift Apart is bringing Pixar magic to the PS5❗️<a href='https://techblock.club/?p=11891'> link</a>
 
-👉🏿Huawei P50 Cameras Shown In Images, They Look Rather Interesting❗️<a href='https://techblock.club/?p=11873'> link</a>
+👉🏿Poco M3 Pro launch date set for May 19; everything we know so far❗️<a href='https://techblock.club/?p=11893'> link</a>
 
-👉An interior designer's guide to creating a stylish outdoor living space❗️<a href='https://techblock.club/?p=11875'> link</a>
+👉Deja vu for Windows 10 users as latest update causes havoc once again❗️<a href='https://techblock.club/?p=11895'> link</a>
 
-👉🏽New Dragon Quest Will Be Announced Later This Month❗️<a href='https://techblock.club/?p=11877'> link</a>
+👉🏽'FragAttacks': New set of WiFi vulnerabilities expose millions of devices to attacks❗️<a href='https://techblock.club/?p=11897'> link</a>
 
-👉🏿MediaTek Dimensity 900 6nm 5G SoC for Mid-Range Smartphones Announced❗️<a href='https://techblock.club/?p=11879'> link</a>
+👉🏿Undying Moon arrives on Steam Early Access❗️<a href='https://techblock.club/?p=11899'> link</a>
 
