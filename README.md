@@ -1,20 +1,20 @@
-<b>Technology NEWS on Friday, May 14th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Saturday, May 15th, 2021</b> 📡📡📡 
 
-👉Flipkart Apple Days sale ends tonight: Deals on iPhone 12 series, iPhone 11 and more❗️<a href='https://techblock.club/?p=11883'> link</a>
+👉The Apple Trial Has Made 'Roblox' Nervous Enough To Make Weirdly Specific Changes❗️<a href='https://techblock.club/?p=11903'> link</a>
 
-👉🏽New Device Allows Man With Paralysis to Type by Imagining Handwriting❗️<a href='https://techblock.club/?p=11885'> link</a>
+👉🏽Windows 10 update is coming: Make sure you know these top features first❗️<a href='https://techblock.club/?p=11905'> link</a>
 
-👉🏿Google I/O 2021 event: date, how to watch and the latest rumours on product announcements❗️<a href='https://techblock.club/?p=11887'> link</a>
+👉🏿Xbox Series X and S are getting Dolby Vision gaming, Microsoft confirms❗️<a href='https://techblock.club/?p=11907'> link</a>
 
-👉PS5 controller black and red versions: Confirmed price, release date and where to pre-order❗️<a href='https://techblock.club/?p=11889'> link</a>
+👉3 AirPods upgrades I want Apple to make this year❗️<a href='https://techblock.club/?p=11909'> link</a>
 
-👉🏽How Ratchet & Clank: Rift Apart is bringing Pixar magic to the PS5❗️<a href='https://techblock.club/?p=11891'> link</a>
+👉🏽Sony has 25 new games in development, PS5 production to be ramped up❗️<a href='https://techblock.club/?p=11911'> link</a>
 
-👉🏿Poco M3 Pro launch date set for May 19; everything we know so far❗️<a href='https://techblock.club/?p=11893'> link</a>
+👉🏿Xiaomi could revive Redmi Note 8 with an upgraded 2021 version❗️<a href='https://techblock.club/?p=11913'> link</a>
 
-👉Deja vu for Windows 10 users as latest update causes havoc once again❗️<a href='https://techblock.club/?p=11895'> link</a>
+👉New FFXIV Endwalker Job Is Reaper; What We Know About The Scythe-Wielding Class❗️<a href='https://techblock.club/?p=11915'> link</a>
 
-👉🏽'FragAttacks': New set of WiFi vulnerabilities expose millions of devices to attacks❗️<a href='https://techblock.club/?p=11897'> link</a>
+👉🏽Amazon Echo Buds 2 review: The best cheap AirPods Pro alternative❗️<a href='https://techblock.club/?p=11917'> link</a>
 
-👉🏿Undying Moon arrives on Steam Early Access❗️<a href='https://techblock.club/?p=11899'> link</a>
+👉🏿Apple's Find My Feature Can be Exploited by Hackers, Research Suggests❗️<a href='https://techblock.club/?p=11919'> link</a>
 
