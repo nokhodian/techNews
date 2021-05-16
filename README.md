@@ -1,20 +1,20 @@
-<b>Technology NEWS on Saturday, May 15th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Sunday, May 16th, 2021</b> 📡📡📡 
 
-👉The Apple Trial Has Made 'Roblox' Nervous Enough To Make Weirdly Specific Changes❗️<a href='https://techblock.club/?p=11903'> link</a>
+👉ESA partners with startup to launch first debris removal mission in 2025❗️<a href='https://techblock.club/?p=11923'> link</a>
 
-👉🏽Windows 10 update is coming: Make sure you know these top features first❗️<a href='https://techblock.club/?p=11905'> link</a>
+👉🏽Xiaomi Redmi Note 10 Pro gets a price cut in India, to be now available in open sale❗️<a href='https://techblock.club/?p=11925'> link</a>
 
-👉🏿Xbox Series X and S are getting Dolby Vision gaming, Microsoft confirms❗️<a href='https://techblock.club/?p=11907'> link</a>
+👉🏿Resident Evil Village is best on the PS5 — here's why❗️<a href='https://techblock.club/?p=11927'> link</a>
 
-👉3 AirPods upgrades I want Apple to make this year❗️<a href='https://techblock.club/?p=11909'> link</a>
+👉These Tools Can Help You Find Your Lost Devices❗️<a href='https://techblock.club/?p=11929'> link</a>
 
-👉🏽Sony has 25 new games in development, PS5 production to be ramped up❗️<a href='https://techblock.club/?p=11911'> link</a>
+👉🏽Windows 10 update is coming soon: Make sure you know these top tips and tricks first❗️<a href='https://techblock.club/?p=11931'> link</a>
 
-👉🏿Xiaomi could revive Redmi Note 8 with an upgraded 2021 version❗️<a href='https://techblock.club/?p=11913'> link</a>
+👉🏿Samsung Galaxy A11 Receiving Android 11 Based One UI Core 3.1 Update❗️<a href='https://techblock.club/?p=11933'> link</a>
 
-👉New FFXIV Endwalker Job Is Reaper; What We Know About The Scythe-Wielding Class❗️<a href='https://techblock.club/?p=11915'> link</a>
+👉Sunday, May 16th Weather❗️<a href='https://techblock.club/?p=11935'> link</a>
 
-👉🏽Amazon Echo Buds 2 review: The best cheap AirPods Pro alternative❗️<a href='https://techblock.club/?p=11917'> link</a>
+👉🏽Poco M3 Pro 5G roundup❗️<a href='https://techblock.club/?p=11937'> link</a>
 
-👉🏿Apple's Find My Feature Can be Exploited by Hackers, Research Suggests❗️<a href='https://techblock.club/?p=11919'> link</a>
+👉🏿Google Photos to end free uploads: What it means to you❗️<a href='https://techblock.club/?p=11939'> link</a>
 
