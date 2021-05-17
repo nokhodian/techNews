@@ -1,20 +1,20 @@
-<b>Technology NEWS on Sunday, May 16th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Monday, May 17th, 2021</b> 📡📡📡 
 
-👉ESA partners with startup to launch first debris removal mission in 2025❗️<a href='https://techblock.club/?p=11923'> link</a>
+👉iOS 14.6: Release date and all the rumors we've heard about new features❗️<a href='https://techblock.club/?p=11943'> link</a>
 
-👉🏽Xiaomi Redmi Note 10 Pro gets a price cut in India, to be now available in open sale❗️<a href='https://techblock.club/?p=11925'> link</a>
+👉🏽How to Remove (and Restore) Built-In iOS Apps❗️<a href='https://techblock.club/?p=11945'> link</a>
 
-👉🏿Resident Evil Village is best on the PS5 — here's why❗️<a href='https://techblock.club/?p=11927'> link</a>
+👉🏿Apple teases imminent launch of major Music 'change' as lossless rumors mount❗️<a href='https://techblock.club/?p=11947'> link</a>
 
-👉These Tools Can Help You Find Your Lost Devices❗️<a href='https://techblock.club/?p=11929'> link</a>
+👉Italy's Serie A seals deal with Google against online piracy apps❗️<a href='https://techblock.club/?p=11949'> link</a>
 
-👉🏽Windows 10 update is coming soon: Make sure you know these top tips and tricks first❗️<a href='https://techblock.club/?p=11931'> link</a>
+👉🏽Greenhouse Gas Emissions Are Shrinking The Stratosphere, Study Finds❗️<a href='https://techblock.club/?p=11951'> link</a>
 
-👉🏿Samsung Galaxy A11 Receiving Android 11 Based One UI Core 3.1 Update❗️<a href='https://techblock.club/?p=11933'> link</a>
+👉🏿Mass Effect Legendary Edition: Screen Tearing Reported by Some Players❗️<a href='https://techblock.club/?p=11953'> link</a>
 
-👉Sunday, May 16th Weather❗️<a href='https://techblock.club/?p=11935'> link</a>
+👉Reliance Jio to deploy two new subsea cable systems centred around India❗️<a href='https://techblock.club/?p=11955'> link</a>
 
-👉🏽Poco M3 Pro 5G roundup❗️<a href='https://techblock.club/?p=11937'> link</a>
+👉🏽BMW 2-series prototype drive: the last of its kind❗️<a href='https://techblock.club/?p=11957'> link</a>
 
-👉🏿Google Photos to end free uploads: What it means to you❗️<a href='https://techblock.club/?p=11939'> link</a>
+👉🏿Twitter Blue reportedly coming for $2.99 per month — here's what it is❗️<a href='https://techblock.club/?p=11959'> link</a>
 
