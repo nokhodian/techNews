@@ -1,20 +1,20 @@
-<b>Technology NEWS on Tuesday, May 18th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Wednesday, May 19th, 2021</b> 📡📡📡 
 
-👉Apple iMac M1 review: A colorful new Mac for the post-quarantine world❗️<a href='https://techblock.club/?p=11963'> link</a>
+👉Android 12: Top new tools in Google's new phone OS we think you'll love❗️<a href='https://techblock.club/?p=11983'> link</a>
 
-👉🏽Biomutant – Here's What Players Will Actually Do in The Game❗️<a href='https://techblock.club/?p=11965'> link</a>
+👉🏽House of Ashes Teaser Trailer Released to Promote May 27 Gameplay Reveal❗️<a href='https://techblock.club/?p=11985'> link</a>
 
-👉🏿Insta360 ONE R gets a big update with Horizon Lock, Loop Recording and more❗️<a href='https://techblock.club/?p=11967'> link</a>
+👉🏿Facebook reportedly eyes sports for its next push in online events❗️<a href='https://techblock.club/?p=11987'> link</a>
 
-👉Genshin Impact Improves Security With Two-Factor Authorization❗️<a href='https://techblock.club/?p=11969'> link</a>
+👉Google plans to build a practical quantum computer by 2029 at new center❗️<a href='https://techblock.club/?p=11989'> link</a>
 
-👉🏽GTA, Red Dead Online Summer Updates Announced❗️<a href='https://techblock.club/?p=11971'> link</a>
+👉🏽How to get the Windows 10 May 2021 Update right now❗️<a href='https://techblock.club/?p=11991'> link</a>
 
-👉🏿La Mans Sky launches Beachhead, its second expedition❗️<a href='https://techblock.club/?p=11973'> link</a>
+👉🏿The Witcher Voice Actor Felt 'Really Bad' for CD Projekt RED Following Cyberpunk 2077 Launch Woes❗️<a href='https://techblock.club/?p=11993'> link</a>
 
-👉Hugo Barra Is Leaving Facebook to Enter Healthcare Tech Space Amid Coronavirus Pandemic❗️<a href='https://techblock.club/?p=11975'> link</a>
+👉Here's how Deathloop's death loops work❗️<a href='https://techblock.club/?p=11995'> link</a>
 
-👉🏽Elite Dangerous: Odyssey Launch Trailer Sets Up Planetary Exploration❗️<a href='https://techblock.club/?p=11977'> link</a>
+👉🏽Summer Game Fest 2021 Will Have A Dozen World Premieres And Announcements On June 10❗️<a href='https://techblock.club/?p=11997'> link</a>
 
-👉🏿Fantasy fantasy sport Blaseball developers score $3M seed funding to go mobile❗️<a href='https://techblock.club/?p=11979'> link</a>
+👉🏿Official NBA jerseys are coming to Fortnite this week❗️<a href='https://techblock.club/?p=11999'> link</a>
 
