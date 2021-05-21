@@ -1,20 +1,20 @@
-<b>Technology NEWS on Thursday, May 20th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Friday, May 21st, 2021</b> 📡📡📡 
 
-👉Amazon's $599 M1 Mac mini deal offers cheapest price on record❗️<a href='https://techblock.club/?p=12003'> link</a>
+👉iOS 14.7 public beta brings Weather's air quality index to more users❗️<a href='https://techblock.club/?p=12023'> link</a>
 
-👉🏽Starfield set to release "way later than most people expect" according to reporter❗️<a href='https://techblock.club/?p=12005'> link</a>
+👉🏽Snap acquires AR startup WaveOptics, which provides tech for Spectacles, for over $500M❗️<a href='https://techblock.club/?p=12025'> link</a>
 
-👉🏿India in touch with US entities for vaccine procurement: MEA❗️<a href='https://techblock.club/?p=12007'> link</a>
+👉🏿Spotify brings offline playback to Apple Watch❗️<a href='https://techblock.club/?p=12027'> link</a>
 
-👉Tesla's fastest EV ever is getting a special event in June❗️<a href='https://techblock.club/?p=12009'> link</a>
+👉Mass Effect's legendary Normandy starship is coming to No Man's Sky, if you snag it soon❗️<a href='https://techblock.club/?p=12029'> link</a>
 
-👉🏽Ni no Kuni II: Revenant Kingdom – Prince's Edition Announced for Switch❗️<a href='https://techblock.club/?p=12011'> link</a>
+👉🏽Blizzard's upcoming 'Overwatch 2' is rolling out big changes to first-person shooter game❗️<a href='https://techblock.club/?p=12031'> link</a>
 
-👉🏿Valheim Reaches Nearly 7 Million Sales, And It's Still Growing❗️<a href='https://techblock.club/?p=12013'> link</a>
+👉🏿Amouranth could lose up to £338K a year after Twitch ads removed – as net worth takes a hit❗️<a href='https://techblock.club/?p=12033'> link</a>
 
-👉Users asked to rethink that sketchy Tinder message – and it works❗️<a href='https://techblock.club/?p=12015'> link</a>
+👉10 Tips to Get the Most Out of Google Assistant❗️<a href='https://techblock.club/?p=12035'> link</a>
 
-👉🏽New Back 4 Blood Trailer Introduces The Game's Cast And The Disturbing Ridden❗️<a href='https://techblock.club/?p=12017'> link</a>
+👉🏽Overwatch 2's Massive 5v5 Move Is Actually The Right Call❗️<a href='https://techblock.club/?p=12037'> link</a>
 
-👉🏿Fortnite: Where To Build And Destroy Sandcastles❗️<a href='https://techblock.club/?p=12019'> link</a>
+👉🏿Tim Cook Takes the Stand to Defend Apple as Trial Winds Down❗️<a href='https://techblock.club/?p=12039'> link</a>
 
