@@ -1,20 +1,20 @@
-<b>Technology NEWS on Friday, May 21st, 2021</b> 📡📡📡 
+<b>Technology NEWS on Saturday, May 22nd, 2021</b> 📡📡📡 
 
-👉iOS 14.7 public beta brings Weather's air quality index to more users❗️<a href='https://techblock.club/?p=12023'> link</a>
+👉This week's top stories: Google Phone Caller ID announcement, Android 12 beta, more❗️<a href='https://techblock.club/?p=12043'> link</a>
 
-👉🏽Snap acquires AR startup WaveOptics, which provides tech for Spectacles, for over $500M❗️<a href='https://techblock.club/?p=12025'> link</a>
+👉🏽Report: 'Messed Up Planning' Means 'Overwatch 2' And 'Diablo 4' May Release Together❗️<a href='https://techblock.club/?p=12045'> link</a>
 
-👉🏿Spotify brings offline playback to Apple Watch❗️<a href='https://techblock.club/?p=12027'> link</a>
+👉🏿The Last of Us Part 2 Has Better PS5 Haptics After Updates❗️<a href='https://techblock.club/?p=12047'> link</a>
 
-👉Mass Effect's legendary Normandy starship is coming to No Man's Sky, if you snag it soon❗️<a href='https://techblock.club/?p=12029'> link</a>
+👉This Week's Awesome Tech Stories From Around the Web (Through May 22)❗️<a href='https://techblock.club/?p=12049'> link</a>
 
-👉🏽Blizzard's upcoming 'Overwatch 2' is rolling out big changes to first-person shooter game❗️<a href='https://techblock.club/?p=12031'> link</a>
+👉🏽Facebook plans to send Instagram 2FA codes through WhatsApp❗️<a href='https://techblock.club/?p=12051'> link</a>
 
-👉🏿Amouranth could lose up to £338K a year after Twitch ads removed – as net worth takes a hit❗️<a href='https://techblock.club/?p=12033'> link</a>
+👉🏿Vox Media's Eric Arredondo on working as IT support❗️<a href='https://techblock.club/?p=12053'> link</a>
 
-👉10 Tips to Get the Most Out of Google Assistant❗️<a href='https://techblock.club/?p=12035'> link</a>
+👉Netflix Could Enter Gaming Industry Soon, Said to Be Looking for Executive to Lead Expansion❗️<a href='https://techblock.club/?p=12055'> link</a>
 
-👉🏽Overwatch 2's Massive 5v5 Move Is Actually The Right Call❗️<a href='https://techblock.club/?p=12037'> link</a>
+👉🏽OnePlus Watch is getting a CyberPunk 2077 makeover❗️<a href='https://techblock.club/?p=12057'> link</a>
 
-👉🏿Tim Cook Takes the Stand to Defend Apple as Trial Winds Down❗️<a href='https://techblock.club/?p=12039'> link</a>
+👉🏿New iPod Touch 2021 tipped for fall launch — here's your first look❗️<a href='https://techblock.club/?p=12059'> link</a>
 
