@@ -1,20 +1,20 @@
-<b>Technology NEWS on Saturday, May 22nd, 2021</b> 📡📡📡 
+<b>Technology NEWS on Sunday, May 23rd, 2021</b> 📡📡📡 
 
-👉This week's top stories: Google Phone Caller ID announcement, Android 12 beta, more❗️<a href='https://techblock.club/?p=12043'> link</a>
+👉Google's new Samsung smartwatch partnership looks a lot like giving up❗️<a href='https://techblock.club/?p=12063'> link</a>
 
-👉🏽Report: 'Messed Up Planning' Means 'Overwatch 2' And 'Diablo 4' May Release Together❗️<a href='https://techblock.club/?p=12045'> link</a>
+👉🏽Twitch for iOS adds over 350 tags for the 'Your Community' tab❗️<a href='https://techblock.club/?p=12065'> link</a>
 
-👉🏿The Last of Us Part 2 Has Better PS5 Haptics After Updates❗️<a href='https://techblock.club/?p=12047'> link</a>
+👉🏿PUBG Mobile India user data still lying online, is it a threat for Battlegrounds Mobile India?❗️<a href='https://techblock.club/?p=12067'> link</a>
 
-👉This Week's Awesome Tech Stories From Around the Web (Through May 22)❗️<a href='https://techblock.club/?p=12049'> link</a>
+👉Roblox should expand its reach on PS5 and Nintendo Switch❗️<a href='https://techblock.club/?p=12069'> link</a>
 
-👉🏽Facebook plans to send Instagram 2FA codes through WhatsApp❗️<a href='https://techblock.club/?p=12051'> link</a>
+👉🏽M1 iPad Pro can download software updates over 5G, Apple confirms in new support document❗️<a href='https://techblock.club/?p=12071'> link</a>
 
-👉🏿Vox Media's Eric Arredondo on working as IT support❗️<a href='https://techblock.club/?p=12053'> link</a>
+👉🏿Homepod to Support Apple Music Lossless Audio in an Update — Airpods Will Remain Unable to❗️<a href='https://techblock.club/?p=12073'> link</a>
 
-👉Netflix Could Enter Gaming Industry Soon, Said to Be Looking for Executive to Lead Expansion❗️<a href='https://techblock.club/?p=12055'> link</a>
+👉7 things you didn't know robot vacuums could do❗️<a href='https://techblock.club/?p=12075'> link</a>
 
-👉🏽OnePlus Watch is getting a CyberPunk 2077 makeover❗️<a href='https://techblock.club/?p=12057'> link</a>
+👉🏽Knockout City is a kid-friendly 'shooter' that trades guns for dodgeballs❗️<a href='https://techblock.club/?p=12077'> link</a>
 
-👉🏿New iPod Touch 2021 tipped for fall launch — here's your first look❗️<a href='https://techblock.club/?p=12059'> link</a>
+👉🏿Beats Studio Buds could launch sooner than expected❗️<a href='https://techblock.club/?p=12079'> link</a>
 
