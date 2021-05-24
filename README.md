@@ -1,20 +1,20 @@
-<b>Technology NEWS on Sunday, May 23rd, 2021</b> 📡📡📡 
+<b>Technology NEWS on Monday, May 24th, 2021</b> 📡📡📡 
 
-👉Google's new Samsung smartwatch partnership looks a lot like giving up❗️<a href='https://techblock.club/?p=12063'> link</a>
+👉Verizon offers free Apple Arcade and Google Play Plus for select unlimited subscribers❗️<a href='https://techblock.club/?p=12083'> link</a>
 
-👉🏽Twitch for iOS adds over 350 tags for the 'Your Community' tab❗️<a href='https://techblock.club/?p=12065'> link</a>
+👉🏽Best headphones for graduation 2021❗️<a href='https://techblock.club/?p=12085'> link</a>
 
-👉🏿PUBG Mobile India user data still lying online, is it a threat for Battlegrounds Mobile India?❗️<a href='https://techblock.club/?p=12067'> link</a>
+👉🏿Fireflies.ai puts $14M into its AI videoconferencing assistant❗️<a href='https://techblock.club/?p=12087'> link</a>
 
-👉Roblox should expand its reach on PS5 and Nintendo Switch❗️<a href='https://techblock.club/?p=12069'> link</a>
+👉Five Android and iOS Apps to Help You Track and Monitor Blood Oxygen Levels❗️<a href='https://techblock.club/?p=12089'> link</a>
 
-👉🏽M1 iPad Pro can download software updates over 5G, Apple confirms in new support document❗️<a href='https://techblock.club/?p=12071'> link</a>
+👉🏽Crytek Hints at Crysis 2 Remaster❗️<a href='https://techblock.club/?p=12091'> link</a>
 
-👉🏿Homepod to Support Apple Music Lossless Audio in an Update — Airpods Will Remain Unable to❗️<a href='https://techblock.club/?p=12073'> link</a>
+👉🏿More of the Battlefield 6 reveal trailer has reportedly been leaked❗️<a href='https://techblock.club/?p=12093'> link</a>
 
-👉7 things you didn't know robot vacuums could do❗️<a href='https://techblock.club/?p=12075'> link</a>
+👉Yes, Bitcoin Is Useless. Many Will Say: So What?❗️<a href='https://techblock.club/?p=12095'> link</a>
 
-👉🏽Knockout City is a kid-friendly 'shooter' that trades guns for dodgeballs❗️<a href='https://techblock.club/?p=12077'> link</a>
+👉🏽Nvidia GeForce RTX 3080 Ti and RTX 3070 Ti already spotted in Razer PCs❗️<a href='https://techblock.club/?p=12097'> link</a>
 
-👉🏿Beats Studio Buds could launch sooner than expected❗️<a href='https://techblock.club/?p=12079'> link</a>
+👉🏿Five Eagle Hospitality Trust properties put on auction receive qualified bids❗️<a href='https://techblock.club/?p=12099'> link</a>
 
