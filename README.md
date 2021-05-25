@@ -1,20 +1,20 @@
-<b>Technology NEWS on Monday, May 24th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Tuesday, May 25th, 2021</b> 📡📡📡 
 
-👉Verizon offers free Apple Arcade and Google Play Plus for select unlimited subscribers❗️<a href='https://techblock.club/?p=12083'> link</a>
+👉Virtua Fighter 5: Ultimate Showdown Announced For PS4, Releases June 1❗️<a href='https://techblock.club/?p=12103'> link</a>
 
-👉🏽Best headphones for graduation 2021❗️<a href='https://techblock.club/?p=12085'> link</a>
+👉🏽We'll get our first glimpse of 'Horizon Forbidden West' gameplay Thursday❗️<a href='https://techblock.club/?p=12105'> link</a>
 
-👉🏿Fireflies.ai puts $14M into its AI videoconferencing assistant❗️<a href='https://techblock.club/?p=12087'> link</a>
+👉🏿Pixel 6 and Pixel 6 Pro leak reveals key specs — Can Google take on the Galaxy S21?❗️<a href='https://techblock.club/?p=12107'> link</a>
 
-👉Five Android and iOS Apps to Help You Track and Monitor Blood Oxygen Levels❗️<a href='https://techblock.club/?p=12089'> link</a>
+👉OnePlus Nord CE 5G and OnePlus Nord 2 may launch in India soon❗️<a href='https://techblock.club/?p=12109'> link</a>
 
-👉🏽Crytek Hints at Crysis 2 Remaster❗️<a href='https://techblock.club/?p=12091'> link</a>
+👉🏽Wahoo Elemnt Bolt vs Roam: a cycling computer head to head❗️<a href='https://techblock.club/?p=12111'> link</a>
 
-👉🏿More of the Battlefield 6 reveal trailer has reportedly been leaked❗️<a href='https://techblock.club/?p=12093'> link</a>
+👉🏿Video: Get An In-Depth Look At Warhammer Age Of Sigmar: Storm Ground's Strategic Battles❗️<a href='https://techblock.club/?p=12113'> link</a>
 
-👉Yes, Bitcoin Is Useless. Many Will Say: So What?❗️<a href='https://techblock.club/?p=12095'> link</a>
+👉Roku Wants To Challenge Amazon & Google by Entering The Smart Home Market❗️<a href='https://techblock.club/?p=12115'> link</a>
 
-👉🏽Nvidia GeForce RTX 3080 Ti and RTX 3070 Ti already spotted in Razer PCs❗️<a href='https://techblock.club/?p=12097'> link</a>
+👉🏽Google Docs Finally Gets a Feature Word Has Had Since the 1990s❗️<a href='https://techblock.club/?p=12117'> link</a>
 
-👉🏿Five Eagle Hospitality Trust properties put on auction receive qualified bids❗️<a href='https://techblock.club/?p=12099'> link</a>
+👉🏿2021 2nd-Generation Siri Remote Review: The star of the show❗️<a href='https://techblock.club/?p=12119'> link</a>
 
