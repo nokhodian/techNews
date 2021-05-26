@@ -1,20 +1,20 @@
-<b>Technology NEWS on Tuesday, May 25th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Wednesday, May 26th, 2021</b> 📡📡📡 
 
-👉Virtua Fighter 5: Ultimate Showdown Announced For PS4, Releases June 1❗️<a href='https://techblock.club/?p=12103'> link</a>
+👉Amazon's Big Day❗️<a href='https://techblock.club/?p=12123'> link</a>
 
-👉🏽We'll get our first glimpse of 'Horizon Forbidden West' gameplay Thursday❗️<a href='https://techblock.club/?p=12105'> link</a>
+👉🏽You Can Get A Taste Of New Android 12 UI Thanks To Chrome❗️<a href='https://techblock.club/?p=12125'> link</a>
 
-👉🏿Pixel 6 and Pixel 6 Pro leak reveals key specs — Can Google take on the Galaxy S21?❗️<a href='https://techblock.club/?p=12107'> link</a>
+👉🏿Scammy iOS app discovered that refuses to open unless you give it a good review❗️<a href='https://techblock.club/?p=12127'> link</a>
 
-👉OnePlus Nord CE 5G and OnePlus Nord 2 may launch in India soon❗️<a href='https://techblock.club/?p=12109'> link</a>
+👉Knockout City is the best team-deathmatch game we've played in years❗️<a href='https://techblock.club/?p=12129'> link</a>
 
-👉🏽Wahoo Elemnt Bolt vs Roam: a cycling computer head to head❗️<a href='https://techblock.club/?p=12111'> link</a>
+👉🏽Breath of the Wild 2 likely to be at E3 2021 — alongside other new Zelda games❗️<a href='https://techblock.club/?p=12131'> link</a>
 
-👉🏿Video: Get An In-Depth Look At Warhammer Age Of Sigmar: Storm Ground's Strategic Battles❗️<a href='https://techblock.club/?p=12113'> link</a>
+👉🏿Bungie is once again hiring for its unnanounced esports game, and it could be a hero shooter❗️<a href='https://techblock.club/?p=12133'> link</a>
 
-👉Roku Wants To Challenge Amazon & Google by Entering The Smart Home Market❗️<a href='https://techblock.club/?p=12115'> link</a>
+👉Honeybee 'Trojan horse' virus relies on bees' habit of cannibalizing their young❗️<a href='https://techblock.club/?p=12135'> link</a>
 
-👉🏽Google Docs Finally Gets a Feature Word Has Had Since the 1990s❗️<a href='https://techblock.club/?p=12117'> link</a>
+👉🏽Latest USB Type-C Spec Increases Power Delivery to 240 Watts❗️<a href='https://techblock.club/?p=12137'> link</a>
 
-👉🏿2021 2nd-Generation Siri Remote Review: The star of the show❗️<a href='https://techblock.club/?p=12119'> link</a>
+👉🏿Realme Narzo 30 5G goes official with 90Hz display and MediaTek Dimensity 700 processor❗️<a href='https://techblock.club/?p=12139'> link</a>
 
