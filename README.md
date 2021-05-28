@@ -1,20 +1,20 @@
-<b>Technology NEWS on Thursday, May 27th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Friday, May 28th, 2021</b> 📡📡📡 
 
-👉Borderlands 3 is getting crossplay support, but not on PlayStation❗️<a href='https://techblock.club/?p=12143'> link</a>
+👉SolarWinds hackers are back with a new mass campaign, Microsoft says❗️<a href='https://techblock.club/?p=12163'> link</a>
 
-👉🏽2021 Siri Remote review: A pricey but worthwhile upgrade for your Apple TV❗️<a href='https://techblock.club/?p=12145'> link</a>
+👉🏽Reading The Game: In 'Mass Effect,' The Story Starts With The Spaceship❗️<a href='https://techblock.club/?p=12165'> link</a>
 
-👉🏿'Fall Guys' and 'Bomberman' are having a crossover event❗️<a href='https://techblock.club/?p=12147'> link</a>
+👉🏿Rare "super flower blood moon" lunar eclipse captured in stunning photos from around the world❗️<a href='https://techblock.club/?p=12167'> link</a>
 
-👉Gwyneth Paltrow joins Rent the Runway❗️<a href='https://techblock.club/?p=12149'> link</a>
+👉Microsoft: Here comes the biggest change to Outlook for Windows since 1997❗️<a href='https://techblock.club/?p=12169'> link</a>
 
-👉🏽Epic Games Allows Early Access of Unreal Engine 5 to Game Developers❗️<a href='https://techblock.club/?p=12151'> link</a>
+👉🏽Twitter Blue subscription service unveiled - but its missing a crucial feature❗️<a href='https://techblock.club/?p=12171'> link</a>
 
-👉🏿iTrapped: All the things Apple won't let you do with your iPhone❗️<a href='https://techblock.club/?p=12153'> link</a>
+👉🏿Rainbow Six Siege Plans Crossplay & Crossprogression Between PC & Cloud Gaming Platforms❗️<a href='https://techblock.club/?p=12173'> link</a>
 
-👉Xiaomi joins the affordable 5G phone battle with the new Redmi Note 10 5G❗️<a href='https://techblock.club/?p=12155'> link</a>
+👉Apps Reportedly Limited to Maximum of 5GB RAM in iPadOS, Even With 16GB M1 iPad Pro❗️<a href='https://techblock.club/?p=12175'> link</a>
 
-👉🏽LuminarAI Adds Support For Apple M1 Devices, HEIC Images, and More❗️<a href='https://techblock.club/?p=12157'> link</a>
+👉🏽Fortnite June Crew Pack: Release Date, First Look, Price❗️<a href='https://techblock.club/?p=12177'> link</a>
 
-👉🏿OnePlus' Digital WellPaper visualizes your app usage as a funky live wallpaper❗️<a href='https://techblock.club/?p=12159'> link</a>
+👉🏿Monster Hunter Rise Reaches 7 Million Units Sold; gift for players❗️<a href='https://techblock.club/?p=12179'> link</a>
 
