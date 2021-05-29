@@ -1,20 +1,20 @@
-<b>Technology NEWS on Friday, May 28th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Saturday, May 29th, 2021</b> 📡📡📡 
 
-👉SolarWinds hackers are back with a new mass campaign, Microsoft says❗️<a href='https://techblock.club/?p=12163'> link</a>
+👉'Bloodstained: Ritual of the Night' sequel revealed to be in development❗️<a href='https://techblock.club/?p=12183'> link</a>
 
-👉🏽Reading The Game: In 'Mass Effect,' The Story Starts With The Spaceship❗️<a href='https://techblock.club/?p=12165'> link</a>
+👉🏽Twitter is working on Facebook-like tweet reactions view❗️<a href='https://techblock.club/?p=12185'> link</a>
 
-👉🏿Rare "super flower blood moon" lunar eclipse captured in stunning photos from around the world❗️<a href='https://techblock.club/?p=12167'> link</a>
+👉🏿Bugatti Ceramique Edition One Pur Sport, Le Noire, Divo Smartwatch Models With 90 Sports Modes Launched❗️<a href='https://techblock.club/?p=12187'> link</a>
 
-👉Microsoft: Here comes the biggest change to Outlook for Windows since 1997❗️<a href='https://techblock.club/?p=12169'> link</a>
+👉Fitbit snore tracking just leaked — and it's kinda creepy❗️<a href='https://techblock.club/?p=12189'> link</a>
 
-👉🏽Twitter Blue subscription service unveiled - but its missing a crucial feature❗️<a href='https://techblock.club/?p=12171'> link</a>
+👉🏽Acer shows off new Predator gaming laptops with RTX 30 graphics, Mini LED displays❗️<a href='https://techblock.club/?p=12191'> link</a>
 
-👉🏿Rainbow Six Siege Plans Crossplay & Crossprogression Between PC & Cloud Gaming Platforms❗️<a href='https://techblock.club/?p=12173'> link</a>
+👉🏿Little Nightmares Is Free On Steam Until May 30❗️<a href='https://techblock.club/?p=12193'> link</a>
 
-👉Apps Reportedly Limited to Maximum of 5GB RAM in iPadOS, Even With 16GB M1 iPad Pro❗️<a href='https://techblock.club/?p=12175'> link</a>
+👉16 emergency apps for wildfires, earthquakes and other disasters❗️<a href='https://techblock.club/?p=12195'> link</a>
 
-👉🏽Fortnite June Crew Pack: Release Date, First Look, Price❗️<a href='https://techblock.club/?p=12177'> link</a>
+👉🏽Samsung Galaxy Tab S8 Ultra leaked — and it towers over the new iPad Pro❗️<a href='https://techblock.club/?p=12197'> link</a>
 
-👉🏿Monster Hunter Rise Reaches 7 Million Units Sold; gift for players❗️<a href='https://techblock.club/?p=12179'> link</a>
+👉🏿Smash Bros.'s creator announces he's not leaving the gaming industry❗️<a href='https://techblock.club/?p=12199'> link</a>
 
