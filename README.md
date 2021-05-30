@@ -1,20 +1,20 @@
-<b>Technology NEWS on Saturday, May 29th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Sunday, May 30th, 2021</b> 📡📡📡 
 
-👉'Bloodstained: Ritual of the Night' sequel revealed to be in development❗️<a href='https://techblock.club/?p=12183'> link</a>
+👉Why Resident Evil 7's Opening Is Stronger Than Resident Evil Village's❗️<a href='https://techblock.club/?p=12203'> link</a>
 
-👉🏽Twitter is working on Facebook-like tweet reactions view❗️<a href='https://techblock.club/?p=12185'> link</a>
+👉🏽Apple expected to unveil new AirPods Pro in 2022 with health tracking features❗️<a href='https://techblock.club/?p=12205'> link</a>
 
-👉🏿Bugatti Ceramique Edition One Pur Sport, Le Noire, Divo Smartwatch Models With 90 Sports Modes Launched❗️<a href='https://techblock.club/?p=12187'> link</a>
+👉🏿The Witcher 3 gets Berserk Guts and Original Witcher Mods❗️<a href='https://techblock.club/?p=12207'> link</a>
 
-👉Fitbit snore tracking just leaked — and it's kinda creepy❗️<a href='https://techblock.club/?p=12189'> link</a>
+👉Cloudflare is Ordered to Disclose Identity of Over Two Dozen Piracy Sites Operators❗️<a href='https://techblock.club/?p=12209'> link</a>
 
-👉🏽Acer shows off new Predator gaming laptops with RTX 30 graphics, Mini LED displays❗️<a href='https://techblock.club/?p=12191'> link</a>
+👉🏽WhatsApp caves — wont restrict features for users who don't accept new privacy policy❗️<a href='https://techblock.club/?p=12211'> link</a>
 
-👉🏿Little Nightmares Is Free On Steam Until May 30❗️<a href='https://techblock.club/?p=12193'> link</a>
+👉🏿Why GTA 6 Should Return To Europe❗️<a href='https://techblock.club/?p=12213'> link</a>
 
-👉16 emergency apps for wildfires, earthquakes and other disasters❗️<a href='https://techblock.club/?p=12195'> link</a>
+👉OnePlus Nord CE 5G specs leak — and it's a mid-range powerhouse❗️<a href='https://techblock.club/?p=12215'> link</a>
 
-👉🏽Samsung Galaxy Tab S8 Ultra leaked — and it towers over the new iPad Pro❗️<a href='https://techblock.club/?p=12197'> link</a>
+👉🏽Google Photos free unlimited storage ends on 1 June: New plans, prices, alternate options❗️<a href='https://techblock.club/?p=12217'> link</a>
 
-👉🏿Smash Bros.'s creator announces he's not leaving the gaming industry❗️<a href='https://techblock.club/?p=12199'> link</a>
+👉🏿Acer updates its gaming portfolio with new notebooks, monitors and desktops❗️<a href='https://techblock.club/?p=12219'> link</a>
 
