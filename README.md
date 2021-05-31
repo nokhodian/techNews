@@ -1,20 +1,20 @@
-<b>Technology NEWS on Sunday, May 30th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Monday, May 31st, 2021</b> 📡📡📡 
 
-👉Why Resident Evil 7's Opening Is Stronger Than Resident Evil Village's❗️<a href='https://techblock.club/?p=12203'> link</a>
+👉Tencent helps Chinese students skip prohibitively low speeds for school websites overseas – TechCrunch❗️<a href='https://techblock.club/?p=12223'> link</a>
 
-👉🏽Apple expected to unveil new AirPods Pro in 2022 with health tracking features❗️<a href='https://techblock.club/?p=12205'> link</a>
+👉🏽Android 12 Will Block Third-Party Share Sheets❗️<a href='https://techblock.club/?p=12225'> link</a>
 
-👉🏿The Witcher 3 gets Berserk Guts and Original Witcher Mods❗️<a href='https://techblock.club/?p=12207'> link</a>
+👉🏿Nintendo Shares Its May eShop Highlights❗️<a href='https://techblock.club/?p=12227'> link</a>
 
-👉Cloudflare is Ordered to Disclose Identity of Over Two Dozen Piracy Sites Operators❗️<a href='https://techblock.club/?p=12209'> link</a>
+👉A Battlefield 6 alpha may launch in July❗️<a href='https://techblock.club/?p=12229'> link</a>
 
-👉🏽WhatsApp caves — wont restrict features for users who don't accept new privacy policy❗️<a href='https://techblock.club/?p=12211'> link</a>
+👉🏽Tales of Arise – Alphen, Shionne, Rinwell, and Law 'Mystic Artes' trailer, screenshots❗️<a href='https://techblock.club/?p=12231'> link</a>
 
-👉🏿Why GTA 6 Should Return To Europe❗️<a href='https://techblock.club/?p=12213'> link</a>
+👉🏿WhatsApp flip-flops on privacy policy threats, again❗️<a href='https://techblock.club/?p=12233'> link</a>
 
-👉OnePlus Nord CE 5G specs leak — and it's a mid-range powerhouse❗️<a href='https://techblock.club/?p=12215'> link</a>
+👉Build the University of Your Dreams With Two Point Campus, Brought to You by Two Point Hospital Devs❗️<a href='https://techblock.club/?p=12235'> link</a>
 
-👉🏽Google Photos free unlimited storage ends on 1 June: New plans, prices, alternate options❗️<a href='https://techblock.club/?p=12217'> link</a>
+👉🏽'Moonlighter' and 'SteamWorld Quest' Discounted to Their Lowest Prices Yet on iOS❗️<a href='https://techblock.club/?p=12237'> link</a>
 
-👉🏿Acer updates its gaming portfolio with new notebooks, monitors and desktops❗️<a href='https://techblock.club/?p=12219'> link</a>
+👉🏿Japanese space agency to put Transformable Lunar Robot on the moon❗️<a href='https://techblock.club/?p=12239'> link</a>
 
