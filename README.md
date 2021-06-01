@@ -1,20 +1,20 @@
-<b>Technology NEWS on Monday, May 31st, 2021</b> 📡📡📡 
+<b>Technology NEWS on Tuesday, June 1st, 2021</b> 📡📡📡 
 
-👉Tencent helps Chinese students skip prohibitively low speeds for school websites overseas – TechCrunch❗️<a href='https://techblock.club/?p=12223'> link</a>
+👉iQoo Z3 launch date confirmed for India; expected specs and price❗️<a href='https://techblock.club/?p=12243'> link</a>
 
-👉🏽Android 12 Will Block Third-Party Share Sheets❗️<a href='https://techblock.club/?p=12225'> link</a>
+👉🏽Facebook wants to prove VR's popularity, but content challenges remain❗️<a href='https://techblock.club/?p=12245'> link</a>
 
-👉🏿Nintendo Shares Its May eShop Highlights❗️<a href='https://techblock.club/?p=12227'> link</a>
+👉🏿Keep pools safe with chemistry and lifeguards❗️<a href='https://techblock.club/?p=12247'> link</a>
 
-👉A Battlefield 6 alpha may launch in July❗️<a href='https://techblock.club/?p=12229'> link</a>
+👉iPhone 12 photography tricks: Take your best images yet with just your phone❗️<a href='https://techblock.club/?p=12249'> link</a>
 
-👉🏽Tales of Arise – Alphen, Shionne, Rinwell, and Law 'Mystic Artes' trailer, screenshots❗️<a href='https://techblock.club/?p=12231'> link</a>
+👉🏽Windows 10 update has a super annoying pop-up — here's the fix❗️<a href='https://techblock.club/?p=12251'> link</a>
 
-👉🏿WhatsApp flip-flops on privacy policy threats, again❗️<a href='https://techblock.club/?p=12233'> link</a>
+👉🏿Jio teams up with SEGA, a Japanese gaming company, to launch Sonic the Hedgehog 2, Streets of Rage 3 games❗️<a href='https://techblock.club/?p=12253'> link</a>
 
-👉Build the University of Your Dreams With Two Point Campus, Brought to You by Two Point Hospital Devs❗️<a href='https://techblock.club/?p=12235'> link</a>
+👉Today's Bobbie Thomas Honors Late Husband Michael Marion on Their Wedding Anniversary❗️<a href='https://techblock.club/?p=12255'> link</a>
 
-👉🏽'Moonlighter' and 'SteamWorld Quest' Discounted to Their Lowest Prices Yet on iOS❗️<a href='https://techblock.club/?p=12237'> link</a>
+👉🏽Twitter vs. Misinformation: How Twitter Will Handle Social Media Misinformation with Warning Labels❗️<a href='https://techblock.club/?p=12257'> link</a>
 
-👉🏿Japanese space agency to put Transformable Lunar Robot on the moon❗️<a href='https://techblock.club/?p=12239'> link</a>
+👉🏿Xiaomi's 200W Charger Can Recharge a Phone in 8 Minutes❗️<a href='https://techblock.club/?p=12259'> link</a>
 
