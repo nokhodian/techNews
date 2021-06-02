@@ -1,20 +1,20 @@
-<b>Technology NEWS on Tuesday, June 1st, 2021</b> 📡📡📡 
+<b>Technology NEWS on Wednesday, June 2nd, 2021</b> 📡📡📡 
 
-👉iQoo Z3 launch date confirmed for India; expected specs and price❗️<a href='https://techblock.club/?p=12243'> link</a>
+👉Nintendo's E3 Direct To Air 15th June❗️<a href='https://techblock.club/?p=12263'> link</a>
 
-👉🏽Facebook wants to prove VR's popularity, but content challenges remain❗️<a href='https://techblock.club/?p=12245'> link</a>
+👉🏽Insider: Halo Infinite at E3 will be all about multiplayer❗️<a href='https://techblock.club/?p=12265'> link</a>
 
-👉🏿Keep pools safe with chemistry and lifeguards❗️<a href='https://techblock.club/?p=12247'> link</a>
+👉🏿Apple Highlights Winners of WWDC 2021 Swift Student Challenge❗️<a href='https://techblock.club/?p=12267'> link</a>
 
-👉iPhone 12 photography tricks: Take your best images yet with just your phone❗️<a href='https://techblock.club/?p=12249'> link</a>
+👉Microsoft celebrates Pride Month with its most inclusive lineup of products yet❗️<a href='https://techblock.club/?p=12269'> link</a>
 
-👉🏽Windows 10 update has a super annoying pop-up — here's the fix❗️<a href='https://techblock.club/?p=12251'> link</a>
+👉🏽Know Your Value and Forbes releases its inaugural '50 over 50' list❗️<a href='https://techblock.club/?p=12271'> link</a>
 
-👉🏿Jio teams up with SEGA, a Japanese gaming company, to launch Sonic the Hedgehog 2, Streets of Rage 3 games❗️<a href='https://techblock.club/?p=12253'> link</a>
+👉🏿The next iPhone: Bigger battery, smaller notch, and a souped-up camera❗️<a href='https://techblock.club/?p=12273'> link</a>
 
-👉Today's Bobbie Thomas Honors Late Husband Michael Marion on Their Wedding Anniversary❗️<a href='https://techblock.club/?p=12255'> link</a>
+👉End procrastination with this productivity bundle on sale now❗️<a href='https://techblock.club/?p=12275'> link</a>
 
-👉🏽Twitter vs. Misinformation: How Twitter Will Handle Social Media Misinformation with Warning Labels❗️<a href='https://techblock.club/?p=12257'> link</a>
+👉🏽SNK Delays The King of Fighters XV to 2022❗️<a href='https://techblock.club/?p=12277'> link</a>
 
-👉🏿Xiaomi's 200W Charger Can Recharge a Phone in 8 Minutes❗️<a href='https://techblock.club/?p=12259'> link</a>
+👉🏿StanChart halves maximum cashback earned on Spree credit card to S$30❗️<a href='https://techblock.club/?p=12279'> link</a>
 
