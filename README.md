@@ -1,20 +1,20 @@
-<b>Technology NEWS on Wednesday, June 2nd, 2021</b> 📡📡📡 
+<b>Technology NEWS on Thursday, June 3rd, 2021</b> 📡📡📡 
 
-👉Nintendo's E3 Direct To Air 15th June❗️<a href='https://techblock.club/?p=12263'> link</a>
+👉Microsoft looks ready to launch Windows 11❗️<a href='https://techblock.club/?p=12283'> link</a>
 
-👉🏽Insider: Halo Infinite at E3 will be all about multiplayer❗️<a href='https://techblock.club/?p=12265'> link</a>
+👉🏽WWDC21 is next week: iOS 15, M2 MacBook Pro and all the Apple rumors❗️<a href='https://techblock.club/?p=12285'> link</a>
 
-👉🏿Apple Highlights Winners of WWDC 2021 Swift Student Challenge❗️<a href='https://techblock.club/?p=12267'> link</a>
+👉🏿Apple Worked on Mac Tablet, 15-Inch MacBook Air, and iPod 'Super Nano,' Internal Email Shows❗️<a href='https://techblock.club/?p=12287'> link</a>
 
-👉Microsoft celebrates Pride Month with its most inclusive lineup of products yet❗️<a href='https://techblock.club/?p=12269'> link</a>
+👉2022 BMW M4 GT3 customer race car ready to hit the track❗️<a href='https://techblock.club/?p=12289'> link</a>
 
-👉🏽Know Your Value and Forbes releases its inaugural '50 over 50' list❗️<a href='https://techblock.club/?p=12271'> link</a>
+👉🏽Razer Announces Its First E3 Keynote Event❗️<a href='https://techblock.club/?p=12291'> link</a>
 
-👉🏿The next iPhone: Bigger battery, smaller notch, and a souped-up camera❗️<a href='https://techblock.club/?p=12273'> link</a>
+👉🏿Nacon Connect date and featured games announced❗️<a href='https://techblock.club/?p=12293'> link</a>
 
-👉End procrastination with this productivity bundle on sale now❗️<a href='https://techblock.club/?p=12275'> link</a>
+👉Wasteland 3: The Battle of Steeltown walkthrough – Steeltown Spire and ending finale❗️<a href='https://techblock.club/?p=12295'> link</a>
 
-👉🏽SNK Delays The King of Fighters XV to 2022❗️<a href='https://techblock.club/?p=12277'> link</a>
+👉🏽Blood Bowl 3's unique blend of fantasy sports and strategy is better than ever❗️<a href='https://techblock.club/?p=12297'> link</a>
 
-👉🏿StanChart halves maximum cashback earned on Spree credit card to S$30❗️<a href='https://techblock.club/?p=12279'> link</a>
+👉🏿Samsung Galaxy A22 5G Details Appear, 90Hz Display In Tow❗️<a href='https://techblock.club/?p=12299'> link</a>
 
