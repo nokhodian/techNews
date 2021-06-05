@@ -1,20 +1,20 @@
-<b>Technology NEWS on Friday, June 4th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Saturday, June 5th, 2021</b> 📡📡📡 
 
-👉Facebook is facing two antitrust inquiries in Europe.❗️<a href='https://techblock.club/?p=12303'> link</a>
+👉Sony is playing games over PS5 'exclusives', and it's not fair on fans❗️<a href='https://techblock.club/?p=12323'> link</a>
 
-👉🏽Firefox still wants to be the 'Anti-Chrome.' Can it beat Edge, too?❗️<a href='https://techblock.club/?p=12305'> link</a>
+👉🏽Far Cry 6 release date officially announced as Ubisoft drop brand new trailer❗️<a href='https://techblock.club/?p=12325'> link</a>
 
-👉🏿PUBG's UAZ Jeep Seen in Battlegrounds Mobile India Teaser, Erangel Map Also Mentioned❗️<a href='https://techblock.club/?p=12307'> link</a>
+👉🏿What was so wrong with the Apple TV 4K remote?❗️<a href='https://techblock.club/?p=12327'> link</a>
 
-👉Warhammer 40000: Chaos Gate 2 announced – alongside a gazillion other games❗️<a href='https://techblock.club/?p=12309'> link</a>
+👉New Warning Issued For Millions Of iPhone 12 Users❗️<a href='https://techblock.club/?p=12329'> link</a>
 
-👉🏽Among Us is getting 'Tan' as a new colour, more details to be revealed at Summer Game Fest❗️<a href='https://techblock.club/?p=12311'> link</a>
+👉🏽Pokemon Go: How To Evolve Galarian Slowpoke Into Galarian Slowbro❗️<a href='https://techblock.club/?p=12331'> link</a>
 
-👉🏿Tech launches of the week: Vivo Y70t, Garmin Forerunner 945, Galaxy A22 5G, and more❗️<a href='https://techblock.club/?p=12313'> link</a>
+👉🏿Are you blinded by the bright headlights? It's not your imagination.❗️<a href='https://techblock.club/?p=12333'> link</a>
 
-👉Google Announces Plans to Allow Android Users to Opt-Out of Tracking Later in 2021❗️<a href='https://techblock.club/?p=12315'> link</a>
+👉Destiny 2 Dev Acknowledges Player Frustrations with Titan Stasis Nerfs❗️<a href='https://techblock.club/?p=12335'> link</a>
 
-👉🏽Apple TV 4K resolution issue fixed in tvOS 14.7 beta❗️<a href='https://techblock.club/?p=12317'> link</a>
+👉🏽Bloomberg: iPadOS 15 to Feature Improved Multitasking, Redesigned Notification Banner for iOS 15❗️<a href='https://techblock.club/?p=12337'> link</a>
 
-👉🏿Redesigned MacBook Pro Models May Not Ship to Customers Until Late 2021❗️<a href='https://techblock.club/?p=12319'> link</a>
+👉🏿Capcom Sued For Using Unlicensed Photos In Resident Evil & Devil May Cry❗️<a href='https://techblock.club/?p=12339'> link</a>
 
