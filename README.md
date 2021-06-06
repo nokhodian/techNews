@@ -1,20 +1,20 @@
-<b>Technology NEWS on Saturday, June 5th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Sunday, June 6th, 2021</b> 📡📡📡 
 
-👉Sony is playing games over PS5 'exclusives', and it's not fair on fans❗️<a href='https://techblock.club/?p=12323'> link</a>
+👉Animal Crossing: New Horizons Player Builds Pokemon Gyms for Villagers❗️<a href='https://techblock.club/?p=12343'> link</a>
 
-👉🏽Far Cry 6 release date officially announced as Ubisoft drop brand new trailer❗️<a href='https://techblock.club/?p=12325'> link</a>
+👉🏽Apple Music Announces 'Special Event' Tomorrow, Immediately After WWDC Keynote❗️<a href='https://techblock.club/?p=12345'> link</a>
 
-👉🏿What was so wrong with the Apple TV 4K remote?❗️<a href='https://techblock.club/?p=12327'> link</a>
+👉🏿SPIED: 2023 BMW 7 Series Will Get iX-Style Screens❗️<a href='https://techblock.club/?p=12347'> link</a>
 
-👉New Warning Issued For Millions Of iPhone 12 Users❗️<a href='https://techblock.club/?p=12329'> link</a>
+👉Tinder: How To Block An Ex, Family Member Or Co-Worker❗️<a href='https://techblock.club/?p=12349'> link</a>
 
-👉🏽Pokemon Go: How To Evolve Galarian Slowpoke Into Galarian Slowbro❗️<a href='https://techblock.club/?p=12331'> link</a>
+👉🏽New Google Pixel feature will let you capture the movement of the sky! Pixel Drop coming soon❗️<a href='https://techblock.club/?p=12351'> link</a>
 
-👉🏿Are you blinded by the bright headlights? It's not your imagination.❗️<a href='https://techblock.club/?p=12333'> link</a>
+👉🏿How software got so noisy, and why it's probably going to stay that way❗️<a href='https://techblock.club/?p=12353'> link</a>
 
-👉Destiny 2 Dev Acknowledges Player Frustrations with Titan Stasis Nerfs❗️<a href='https://techblock.club/?p=12335'> link</a>
+👉Must-Have Apps and Accessories to Turn Your iPad Into a Productivity Powerhouse❗️<a href='https://techblock.club/?p=12355'> link</a>
 
-👉🏽Bloomberg: iPadOS 15 to Feature Improved Multitasking, Redesigned Notification Banner for iOS 15❗️<a href='https://techblock.club/?p=12337'> link</a>
+👉🏽COVID-19: How to get your sense of smell back after coronavirus recovery | The Times of India❗️<a href='https://techblock.club/?p=12357'> link</a>
 
-👉🏿Capcom Sued For Using Unlicensed Photos In Resident Evil & Devil May Cry❗️<a href='https://techblock.club/?p=12339'> link</a>
+👉🏿Ratchet & Clank: Rift Apart Day-One Patch Includes 60 FPS Performance and Performance Ray-Tracing Modes❗️<a href='https://techblock.club/?p=12359'> link</a>
 
