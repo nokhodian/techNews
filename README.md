@@ -1,20 +1,20 @@
-<b>Technology NEWS on Monday, June 7th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Tuesday, June 8th, 2021</b> 📡📡📡 
 
-👉Samsung shows off stretchable OLED screen in prototype heart rate monitor❗️<a href='https://techblock.club/?p=12363'> link</a>
+👉Ratchet & Clank: Rift Apart Is PlayStation 5's First Spectacle Worth Seeing❗️<a href='https://techblock.club/?p=12383'> link</a>
 
-👉🏽How to enable HDR in Windows 10❗️<a href='https://techblock.club/?p=12365'> link</a>
+👉🏽AT&T and Google team up for new promotion that offers six months of free Stadia Pro❗️<a href='https://techblock.club/?p=12385'> link</a>
 
-👉🏿Dr. Kevin Most about a PGA Tour match against COVID-19, Vaccine Booster, and Mask Wear Honor System❗️<a href='https://techblock.club/?p=12367'> link</a>
+👉🏿Massive internet outage: Websites and apps around the world go dark❗️<a href='https://techblock.club/?p=12387'> link</a>
 
-👉If 148k 5-star Amazon ratings don't convince you to try these Bluetooth earbuds, the $24 price will❗️<a href='https://techblock.club/?p=12369'> link</a>
+👉The Realme GT will cost €550 in Europe❗️<a href='https://techblock.club/?p=12389'> link</a>
 
-👉🏽Should you shop the early Prime Day deals or wait until Prime Day?❗️<a href='https://techblock.club/?p=12371'> link</a>
+👉🏽How Universal Control on macOS Monterey works❗️<a href='https://techblock.club/?p=12391'> link</a>
 
-👉🏿Rumour: Scarlet Nexus coming to Xbox Game Pass❗️<a href='https://techblock.club/?p=12373'> link</a>
+👉🏿Apple hopes iOS 15 can tame the app notification deluge❗️<a href='https://techblock.club/?p=12393'> link</a>
 
-👉No new COVID-19 cases today❗️<a href='https://techblock.club/?p=12375'> link</a>
+👉Realme GT 5G global launch scheduled for June 15❗️<a href='https://techblock.club/?p=12395'> link</a>
 
-👉🏽P1Harmony Performs Live on 'Rolling Stone on Twitch'❗️<a href='https://techblock.club/?p=12377'> link</a>
+👉🏽Who should buy a new Mac now, and who should wait❗️<a href='https://techblock.club/?p=12397'> link</a>
 
-👉🏿New Fargo salon is making waves by specializing in curly hair❗️<a href='https://techblock.club/?p=12379'> link</a>
+👉🏿Suffering from iOS 15 beta regret? Here's how to go back to iOS 14❗️<a href='https://techblock.club/?p=12399'> link</a>
 
