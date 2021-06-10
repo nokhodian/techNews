@@ -1,20 +1,20 @@
-<b>Technology NEWS on Wednesday, June 9th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Thursday, June 10th, 2021</b> 📡📡📡 
 
-👉Capcom Facing Lawsuit For Using Designer's Work Without Consent on Several Titles❗️<a href='https://techblock.club/?p=12403'> link</a>
+👉Xbox is making a streaming device for Game Pass. Thank 'Perfect Dark Zero'❗️<a href='https://techblock.club/?p=12423'> link</a>
 
-👉🏽PlayStation Days of Play: Last chance to save big on PS Plus and PS5|PS4 games!❗️<a href='https://techblock.club/?p=12405'> link</a>
+👉🏽You'll soon be able to try Xbox games before downloading them❗️<a href='https://techblock.club/?p=12425'> link</a>
 
-👉🏿Why Apple went all in on audio at WWDC21❗️<a href='https://techblock.club/?p=12407'> link</a>
+👉🏿Sony's Airpeak S1 drone for Alpha cameras will cost $10000 this September❗️<a href='https://techblock.club/?p=12427'> link</a>
 
-👉Google Forced To Offer Android Users In The EU More Search Choices❗️<a href='https://techblock.club/?p=12409'> link</a>
+👉Apple Offering $75 Apple Store Gift Card in Canada With Purchase of iPhone 12 or iPhone 12 Mini Through June 28❗️<a href='https://techblock.club/?p=12429'> link</a>
 
-👉🏽Canon PIXMA G570, PIXMA G670, imagePROGRAF PRO-300 and PIXMA PRO-200 printers launched in India❗️<a href='https://techblock.club/?p=12411'> link</a>
+👉🏽Samsung Announces The Smallest 50MP Camera Sensor❗️<a href='https://techblock.club/?p=12431'> link</a>
 
-👉🏿Elden Ring Publisher Bandai Namco At E3: How To Watch And What To Expect❗️<a href='https://techblock.club/?p=12413'> link</a>
+👉🏿Frostpunk developer drops teaser trailer for its upcoming game❗️<a href='https://techblock.club/?p=12433'> link</a>
 
-👉WWDC 2021 keynote: everything you need to know, and what we thought❗️<a href='https://techblock.club/?p=12415'> link</a>
+👉'Monark' is a brand new RPG from former 'Shin Megami Tensei' developers❗️<a href='https://techblock.club/?p=12435'> link</a>
 
-👉🏽Vedanta's Sterlite Copper CEO Pankaj Kumar quits for personal reasons❗️<a href='https://techblock.club/?p=12417'> link</a>
+👉🏽Android 12 Beta 2 Improves The Settings Menu By Adding More Info❗️<a href='https://techblock.club/?p=12437'> link</a>
 
-👉🏿How To Claim a Free Disney Plus Trial With Xbox Game Pass and Watch 'Loki'❗️<a href='https://techblock.club/?p=12419'> link</a>
+👉🏿Outlook for iPhone: Now you can use your voice for these tasks❗️<a href='https://techblock.club/?p=12439'> link</a>
 
