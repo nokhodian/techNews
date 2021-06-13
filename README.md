@@ -1,20 +1,20 @@
-<b>Technology NEWS on Saturday, June 12th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Sunday, June 13th, 2021</b> 📡📡📡 
 
-👉iOS 15: Why I'll keep my driver's license in my wallet and not my iPhone❗️<a href='https://techblock.club/?p=12463'> link</a>
+👉How to watch the Xbox and Bethesda E3 conference❗️<a href='https://techblock.club/?p=12483'> link</a>
 
-👉🏽Apple iPhones Can Soon Hold Your ID. Privacy Experts Are On Edge❗️<a href='https://techblock.club/?p=12465'> link</a>
+👉🏽Mercedes-AMG GT C Roadster Gets Its Internals Rearranged, Craves for an R Badge❗️<a href='https://techblock.club/?p=12485'> link</a>
 
-👉🏿Still waiting on iOS 15? These are the best hidden iPhone features you can use right now❗️<a href='https://techblock.club/?p=12467'> link</a>
+👉🏿Battlefield 2042: How to watch first gameplay reveal❗️<a href='https://techblock.club/?p=12487'> link</a>
 
-👉Microsoft and Nintendo ready game announcements for subdued virtual E3❗️<a href='https://techblock.club/?p=12469'> link</a>
+👉What Is HDR and How Does It Improve TVs and Displays?❗️<a href='https://techblock.club/?p=12489'> link</a>
 
-👉🏽Want to try iOS 15? Read this before downloading the developer beta to your iPhone❗️<a href='https://techblock.club/?p=12471'> link</a>
+👉🏽Yakuza: Like a Dragon and select Bethesda titles reportedly coming to Xbox Game Pass❗️<a href='https://techblock.club/?p=12491'> link</a>
 
-👉🏿Seizure of Democrats' Apple data by Trump officials to be investigated❗️<a href='https://techblock.club/?p=12473'> link</a>
+👉🏿I tried to get Microsoft to sell me a PC. It didn't go well❗️<a href='https://techblock.club/?p=12493'> link</a>
 
-👉Justice Department requested data on 73 phone numbers and 36 email addresses from Apple❗️<a href='https://techblock.club/?p=12475'> link</a>
+👉Samsung: Galaxy S21 Fan Edition Production Suspension Still Undecided — Despite Chip Shortage Issue Report❗️<a href='https://techblock.club/?p=12495'> link</a>
 
-👉🏽Congress targets tech giants Apple, Google, Amazon, and Facebook in new series of antitrust laws❗️<a href='https://techblock.club/?p=12477'> link</a>
+👉🏽The Teenage Mutant Ninja Turtles Are Joining Brawlhalla Next Week❗️<a href='https://techblock.club/?p=12497'> link</a>
 
-👉🏿Apple tightens legal request rules after Justice Department targets lawmakers❗️<a href='https://techblock.club/?p=12479'> link</a>
+👉🏿Will humans ever learn to speak whale?❗️<a href='https://techblock.club/?p=12499'> link</a>
 
