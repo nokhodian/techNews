@@ -1,20 +1,20 @@
-<b>Technology NEWS on Monday, June 14th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Tuesday, June 15th, 2021</b> 📡📡📡 
 
-👉2021 Doodle for Google winner finds strength in hope❗️<a href='https://techblock.club/?p=12503'> link</a>
+👉ELEX II Officially Announced❗️<a href='https://techblock.club/?p=12523'> link</a>
 
-👉🏽Amazon Luna will offer open access for Prime Day 2021 — no invite needed❗️<a href='https://techblock.club/?p=12505'> link</a>
+👉🏽Razer's Project Hazel N95 RGB mask is arriving this year — but buying one could be tricky❗️<a href='https://techblock.club/?p=12525'> link</a>
 
-👉🏿Marvel's Guardians Game Won't Have Microtransactions Like Avengers❗️<a href='https://techblock.club/?p=12507'> link</a>
+👉🏿Bill Gates recommends you should read these five books this summer❗️<a href='https://techblock.club/?p=12527'> link</a>
 
-👉Nvidia ending support for Windows 7, 8, and older 'Kepler' GeForce GPUs❗️<a href='https://techblock.club/?p=12509'> link</a>
+👉Best Buy Takes on Amazon With Its Own 'Bigger Deal' Savings Event❗️<a href='https://techblock.club/?p=12529'> link</a>
 
-👉🏽Chernobylite launches July 28 for PC, later this summer for PS4 and Xbox One❗️<a href='https://techblock.club/?p=12511'> link</a>
+👉🏽OkCupid and Tinder introduce measures to create COVID-19 vaccine awareness in India❗️<a href='https://techblock.club/?p=12531'> link</a>
 
-👉🏿Jabra's Elite 85t wireless earbuds drop to $180 at Amazon and Best Buy❗️<a href='https://techblock.club/?p=12513'> link</a>
+👉🏿Windows 10 news and interests widget blurry? Microsoft is working on a fix.❗️<a href='https://techblock.club/?p=12533'> link</a>
 
-👉'The Morning Show' Returns to Apple TV+ on September 17, Watch the Second Season Trailer Now❗️<a href='https://techblock.club/?p=12515'> link</a>
+👉Xbox Summer Event Lets You Play 40 Demos Of Upcoming Games❗️<a href='https://techblock.club/?p=12535'> link</a>
 
-👉🏽Microsoft to end Windows 10 support on October 14th, 2025❗️<a href='https://techblock.club/?p=12517'> link</a>
+👉🏽Devs Discuss Their Upcoming Switch Games 'Dreamscaper' And 'To The Rescue'❗️<a href='https://techblock.club/?p=12537'> link</a>
 
-👉🏿Roguelike DeathRun TV Revealed As Blood-Soaked Game Show❗️<a href='https://techblock.club/?p=12519'> link</a>
+👉🏿Back 4 Blood Requires Just One Person in Your Party to Buy DLC❗️<a href='https://techblock.club/?p=12539'> link</a>
 
