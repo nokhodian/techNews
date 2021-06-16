@@ -1,20 +1,20 @@
-<b>Technology NEWS on Tuesday, June 15th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Wednesday, June 16th, 2021</b> 📡📡📡 
 
-👉ELEX II Officially Announced❗️<a href='https://techblock.club/?p=12523'> link</a>
+👉Spotify's Clubhouse competitor Greenroom launches today❗️<a href='https://techblock.club/?p=12543'> link</a>
 
-👉🏽Razer's Project Hazel N95 RGB mask is arriving this year — but buying one could be tricky❗️<a href='https://techblock.club/?p=12525'> link</a>
+👉🏽'Call Of Duty: Black Ops Cold War' And 'Warzone' Season 4 Battle Pass Overview❗️<a href='https://techblock.club/?p=12545'> link</a>
 
-👉🏿Bill Gates recommends you should read these five books this summer❗️<a href='https://techblock.club/?p=12527'> link</a>
+👉🏿Laugh all you want, but 'Stranger Than Paradise – Final Fantasy Origin' is actually pretty good❗️<a href='https://techblock.club/?p=12547'> link</a>
 
-👉Best Buy Takes on Amazon With Its Own 'Bigger Deal' Savings Event❗️<a href='https://techblock.club/?p=12529'> link</a>
+👉Twitter bids to beat the trolls by introducing a feature that Facebook has already had for years❗️<a href='https://techblock.club/?p=12549'> link</a>
 
-👉🏽OkCupid and Tinder introduce measures to create COVID-19 vaccine awareness in India❗️<a href='https://techblock.club/?p=12531'> link</a>
+👉🏽Galaxy S21 FE Won't Offer Improved Charging Speed❗️<a href='https://techblock.club/?p=12551'> link</a>
 
-👉🏿Windows 10 news and interests widget blurry? Microsoft is working on a fix.❗️<a href='https://techblock.club/?p=12533'> link</a>
+👉🏿WhatsApp: A look at 5 features that could launch soon❗️<a href='https://techblock.club/?p=12553'> link</a>
 
-👉Xbox Summer Event Lets You Play 40 Demos Of Upcoming Games❗️<a href='https://techblock.club/?p=12535'> link</a>
+👉iOS 15 update choice could mean big changes in iOS 16 – Macworld❗️<a href='https://techblock.club/?p=12555'> link</a>
 
-👉🏽Devs Discuss Their Upcoming Switch Games 'Dreamscaper' And 'To The Rescue'❗️<a href='https://techblock.club/?p=12537'> link</a>
+👉🏽2022 Porsche 911 GT3 Touring offers the same thrills minus the wing❗️<a href='https://techblock.club/?p=12557'> link</a>
 
-👉🏿Back 4 Blood Requires Just One Person in Your Party to Buy DLC❗️<a href='https://techblock.club/?p=12539'> link</a>
+👉🏿This Peloton bike model had a major security problem❗️<a href='https://techblock.club/?p=12559'> link</a>
 
