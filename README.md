@@ -1,20 +1,20 @@
-<b>Technology NEWS on Wednesday, June 16th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Thursday, June 17th, 2021</b> 📡📡📡 
 
-👉Spotify's Clubhouse competitor Greenroom launches today❗️<a href='https://techblock.club/?p=12543'> link</a>
+👉Warzone Season 4 Assault Rifle tier list❗️<a href='https://techblock.club/?p=12563'> link</a>
 
-👉🏽'Call Of Duty: Black Ops Cold War' And 'Warzone' Season 4 Battle Pass Overview❗️<a href='https://techblock.club/?p=12545'> link</a>
+👉🏽Apple Launches 2021 Back to School Promotion: Free AirPods With Eligible Mac or iPad Purchase❗️<a href='https://techblock.club/?p=12565'> link</a>
 
-👉🏿Laugh all you want, but 'Stranger Than Paradise – Final Fantasy Origin' is actually pretty good❗️<a href='https://techblock.club/?p=12547'> link</a>
+👉🏿Kernel Helmet That Is Claimed to Read Human Mind Starts Shipping for $50000 in US❗️<a href='https://techblock.club/?p=12567'> link</a>
 
-👉Twitter bids to beat the trolls by introducing a feature that Facebook has already had for years❗️<a href='https://techblock.club/?p=12549'> link</a>
+👉Porsche 911 GT3 Introduced With Touring Package; Farewell Fixed Rear Wing❗️<a href='https://techblock.club/?p=12569'> link</a>
 
-👉🏽Galaxy S21 FE Won't Offer Improved Charging Speed❗️<a href='https://techblock.club/?p=12551'> link</a>
+👉🏽Metroid Dread Is The Realization Of A 15-Year Vision❗️<a href='https://techblock.club/?p=12571'> link</a>
 
-👉🏿WhatsApp: A look at 5 features that could launch soon❗️<a href='https://techblock.club/?p=12553'> link</a>
+👉🏿Microsoft outlines its plans to make hybrid meetings work better with new Teams features coming later this year❗️<a href='https://techblock.club/?p=12573'> link</a>
 
-👉iOS 15 update choice could mean big changes in iOS 16 – Macworld❗️<a href='https://techblock.club/?p=12555'> link</a>
+👉Tanzanite Blue BMW M4 Competition Rocking M Performance Parts Is a Show Stopper❗️<a href='https://techblock.club/?p=12575'> link</a>
 
-👉🏽2022 Porsche 911 GT3 Touring offers the same thrills minus the wing❗️<a href='https://techblock.club/?p=12557'> link</a>
+👉🏽How to Transfer Your PUBG Mobile Saved Game Data to Battlegrounds Mobile India❗️<a href='https://techblock.club/?p=12577'> link</a>
 
-👉🏿This Peloton bike model had a major security problem❗️<a href='https://techblock.club/?p=12559'> link</a>
+👉🏿Mattel joins the NFT frenzy with Hot Wheels digital art.❗️<a href='https://techblock.club/?p=12579'> link</a>
 
