@@ -1,20 +1,20 @@
-<b>Technology NEWS on Friday, June 18th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Saturday, June 19th, 2021</b> 📡📡📡 
 
-👉Best Web Hosting For Small Business: Forbes Advisor's Top Picks For 2021❗️<a href='https://techblock.club/?p=12583'> link</a>
+👉Google working on 'Find My Device' network for Android users❗️<a href='https://techblock.club/?p=12603'> link</a>
 
-👉🏽From Forza Horizon 5 to Guardians of the Galaxy, the Best Games at E3 2021❗️<a href='https://techblock.club/?p=12585'> link</a>
+👉🏽Indies Are Taking Over The Game Industry Through Creativity❗️<a href='https://techblock.club/?p=12605'> link</a>
 
-👉🏿Bungie Is Releasing an Official Destiny Toaster❗️<a href='https://techblock.club/?p=12587'> link</a>
+👉🏿The best pre-Prime Day deals for Father's Day weekend❗️<a href='https://techblock.club/?p=12607'> link</a>
 
-👉Samsung's $160 Android tablet is on sale as an affordable iPad alternative❗️<a href='https://techblock.club/?p=12589'> link</a>
+👉Best Prime Day TV deals right now: Price cuts on LG, TCL, Toshiba, Insignia and more❗️<a href='https://techblock.club/?p=12609'> link</a>
 
-👉🏽All the E3 2021 games you can play right now❗️<a href='https://techblock.club/?p=12591'> link</a>
+👉🏽How to Remove Google Account from Chrome on PC and Mobile❗️<a href='https://techblock.club/?p=12611'> link</a>
 
-👉🏿2021 Mercedes-AMG G63 900 Rocket Edition by Brabus❗️<a href='https://techblock.club/?p=12593'> link</a>
+👉🏿How to make sure your child can't get the most out of your credit card with V-Bucks and Robux❗️<a href='https://techblock.club/?p=12613'> link</a>
 
-👉Apple Supplier TSMC Readies 3nm Chip Production for Second Half of 2022❗️<a href='https://techblock.club/?p=12595'> link</a>
+👉Realme GT to launch in India before Diwali, company confirms❗️<a href='https://techblock.club/?p=12615'> link</a>
 
-👉🏽Man moving into Queens home finds human leg bone jammed behind shelf❗️<a href='https://techblock.club/?p=12597'> link</a>
+👉🏽Top Stories: Beats Studio Buds Announced, Apple Watch Series 7 Rumors, and More❗️<a href='https://techblock.club/?p=12617'> link</a>
 
-👉🏿July 2021 PS Plus Free Games Predictions❗️<a href='https://techblock.club/?p=12599'> link</a>
+👉🏿4 Stylist-Approved Hair Products Specifically Made for Air Drying so You Can Give Your Hot Tools the Summer Off❗️<a href='https://techblock.club/?p=12619'> link</a>
 
