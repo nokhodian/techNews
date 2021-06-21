@@ -1,20 +1,20 @@
-<b>Technology NEWS on Sunday, June 20th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Monday, June 21st, 2021</b> 📡📡📡 
 
-👉Texas homes heat up as power companies alter smart thermostats❗️<a href='https://techblock.club/?p=12623'> link</a>
+👉Amazon Prime Day (2021): Earbuds, Laptops, Smartphones, Smartwatch, TV Star Deals❗️<a href='https://techblock.club/?p=12643'> link</a>
 
-👉🏽The next Apple Watch looks great, but $120 off the Series 6 is even greater❗️<a href='https://techblock.club/?p=12625'> link</a>
+👉🏽Will Death Stranding Director's Cut be a PS5 exclusive?❗️<a href='https://techblock.club/?p=12645'> link</a>
 
-👉🏿19 Coils Make Charging Wireless❗️<a href='https://techblock.club/?p=12627'> link</a>
+👉🏿Mi Watch Revolve Price in India Drops Ahead of Tuesday's Mi Watch Revolve Active Launch❗️<a href='https://techblock.club/?p=12647'> link</a>
 
-👉What Could Happen in a 'Last of Us: Part III'? We Go Deep on Theories❗️<a href='https://techblock.club/?p=12629'> link</a>
+👉Cyberpunk 2077 is back on PlayStation Store, but base PS4 owners beware❗️<a href='https://techblock.club/?p=12649'> link</a>
 
-👉🏽WhatsApp multi-device feature: Beta version to support 4 devices, one phone❗️<a href='https://techblock.club/?p=12631'> link</a>
+👉🏽iPhone 13 name off-putting, say Apple fans; iPhone (2021) better❗️<a href='https://techblock.club/?p=12651'> link</a>
 
-👉🏿What are the most popular smart home devices?❗️<a href='https://techblock.club/?p=12633'> link</a>
+👉🏿Best Prime Day monitor deals: Save up to 40% on Dell, Samsung and more❗️<a href='https://techblock.club/?p=12653'> link</a>
 
-👉Among Us Developers Felt "Burnt Out" After The Game's Success❗️<a href='https://techblock.club/?p=12635'> link</a>
+👉PSA: Don't connect to this silly Wi-Fi network if you see it on your iPhone❗️<a href='https://techblock.club/?p=12655'> link</a>
 
-👉🏽Ford Mustang Spectacular Burnout Ends in Matching Crash❗️<a href='https://techblock.club/?p=12637'> link</a>
+👉🏽Psychonauts 2 Producer Says Game Was Made Without Crunch❗️<a href='https://techblock.club/?p=12657'> link</a>
 
-👉🏿As offices shut down for Covid, workers bought vans and hit the road -- and some don't want to return❗️<a href='https://techblock.club/?p=12639'> link</a>
+👉🏿2022 Toyota GR Supra US Commercial Is a Tale of Haze and Grocery Shopping❗️<a href='https://techblock.club/?p=12659'> link</a>
 
