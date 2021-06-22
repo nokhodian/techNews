@@ -1,20 +1,20 @@
-<b>Technology NEWS on Monday, June 21st, 2021</b> 📡📡📡 
+<b>Technology NEWS on Tuesday, June 22nd, 2021</b> 📡📡📡 
 
-👉Amazon Prime Day (2021): Earbuds, Laptops, Smartphones, Smartwatch, TV Star Deals❗️<a href='https://techblock.club/?p=12643'> link</a>
+👉Get reading with these Audible and book deals for Prime Day❗️<a href='https://techblock.club/?p=12663'> link</a>
 
-👉🏽Will Death Stranding Director's Cut be a PS5 exclusive?❗️<a href='https://techblock.club/?p=12645'> link</a>
+👉🏽Tinder boss says Covid changed how we swipe right❗️<a href='https://techblock.club/?p=12665'> link</a>
 
-👉🏿Mi Watch Revolve Price in India Drops Ahead of Tuesday's Mi Watch Revolve Active Launch❗️<a href='https://techblock.club/?p=12647'> link</a>
+👉🏿Epic Games releases free anti-cheat and voice chat services for developers❗️<a href='https://techblock.club/?p=12667'> link</a>
 
-👉Cyberpunk 2077 is back on PlayStation Store, but base PS4 owners beware❗️<a href='https://techblock.club/?p=12649'> link</a>
+👉Android users may get a siren-like alert between 1pm and 2pm today and here's why❗️<a href='https://techblock.club/?p=12669'> link</a>
 
-👉🏽iPhone 13 name off-putting, say Apple fans; iPhone (2021) better❗️<a href='https://techblock.club/?p=12651'> link</a>
+👉🏽EU is now investigating Google's adtech over antitrust concerns❗️<a href='https://techblock.club/?p=12671'> link</a>
 
-👉🏿Best Prime Day monitor deals: Save up to 40% on Dell, Samsung and more❗️<a href='https://techblock.club/?p=12653'> link</a>
+👉🏿All the best wireless headphone deals to shop for Amazon Prime Day 2021❗️<a href='https://techblock.club/?p=12673'> link</a>
 
-👉PSA: Don't connect to this silly Wi-Fi network if you see it on your iPhone❗️<a href='https://techblock.club/?p=12655'> link</a>
+👉Google Pixel Buds 2 are $100 off at Walmart❗️<a href='https://techblock.club/?p=12675'> link</a>
 
-👉🏽Psychonauts 2 Producer Says Game Was Made Without Crunch❗️<a href='https://techblock.club/?p=12657'> link</a>
+👉🏽Best Ring deals of Prime Day 2021: Ring doorbell bundle for $55 off, Ring Alarm 8-piece kit for $100 off❗️<a href='https://techblock.club/?p=12677'> link</a>
 
-👉🏿2022 Toyota GR Supra US Commercial Is a Tale of Haze and Grocery Shopping❗️<a href='https://techblock.club/?p=12659'> link</a>
+👉🏿Nintendo Does This Better Than Any Other Gaming Console Maker❗️<a href='https://techblock.club/?p=12679'> link</a>
 
