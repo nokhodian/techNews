@@ -1,20 +1,20 @@
-<b>Technology NEWS on Tuesday, June 22nd, 2021</b> 📡📡📡 
+<b>Technology NEWS on Wednesday, June 23rd, 2021</b> 📡📡📡 
 
-👉Get reading with these Audible and book deals for Prime Day❗️<a href='https://techblock.club/?p=12663'> link</a>
+👉Sonic 30th anniversary: the 5 best Sonic the Hedgehog games❗️<a href='https://techblock.club/?p=12697'> link</a>
 
-👉🏽Tinder boss says Covid changed how we swipe right❗️<a href='https://techblock.club/?p=12665'> link</a>
+👉🏽'Scarlet Nexus' review: A tale of psychic powers that might overload your brain❗️<a href='https://techblock.club/?p=12699'> link</a>
 
-👉🏿Epic Games releases free anti-cheat and voice chat services for developers❗️<a href='https://techblock.club/?p=12667'> link</a>
+👉🏿Lenovo ThinkPad X1 Extreme (Gen 4) could be the biggest threat to the 16-inch MacBook Pro yet❗️<a href='https://techblock.club/?p=12701'> link</a>
 
-👉Android users may get a siren-like alert between 1pm and 2pm today and here's why❗️<a href='https://techblock.club/?p=12669'> link</a>
+👉Xbox Custom Controllers Have A Messed Up Banned Word List❗️<a href='https://techblock.club/?p=12703'> link</a>
 
-👉🏽EU is now investigating Google's adtech over antitrust concerns❗️<a href='https://techblock.club/?p=12671'> link</a>
+👉🏽Aliens: Fireteam Elite Will Support Cross-Gen Play, But Not Cross-Platform Play❗️<a href='https://techblock.club/?p=12705'> link</a>
 
-👉🏿All the best wireless headphone deals to shop for Amazon Prime Day 2021❗️<a href='https://techblock.club/?p=12673'> link</a>
+👉🏿Prime Day phone deals still available: Samsung Galaxy S21 Plus, Google Pixel, Motorola Razr, more❗️<a href='https://techblock.club/?p=12707'> link</a>
 
-👉Google Pixel Buds 2 are $100 off at Walmart❗️<a href='https://techblock.club/?p=12675'> link</a>
+👉Pokémon Sword And Shield Leakers To Pay $150000 Each To Nintendo For Damages❗️<a href='https://techblock.club/?p=12709'> link</a>
 
-👉🏽Best Ring deals of Prime Day 2021: Ring doorbell bundle for $55 off, Ring Alarm 8-piece kit for $100 off❗️<a href='https://techblock.club/?p=12677'> link</a>
+👉🏽Oppo Reno 6 Z Appears with Enhanced Cameras and Storage❗️<a href='https://techblock.club/?p=12711'> link</a>
 
-👉🏿Nintendo Does This Better Than Any Other Gaming Console Maker❗️<a href='https://techblock.club/?p=12679'> link</a>
+👉🏿CD Projekt continues to improve Cyberpunk after Sony store comeback❗️<a href='https://techblock.club/?p=12713'> link</a>
 
