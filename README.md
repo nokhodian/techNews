@@ -1,20 +1,20 @@
-<b>Technology NEWS on Wednesday, June 23rd, 2021</b> 📡📡📡 
+<b>Technology NEWS on Thursday, June 24th, 2021</b> 📡📡📡 
 
-👉Sonic 30th anniversary: the 5 best Sonic the Hedgehog games❗️<a href='https://techblock.club/?p=12697'> link</a>
+👉Kerbal Space Program celebrates 10 years of challenging space launch physics❗️<a href='https://techblock.club/?p=12717'> link</a>
 
-👉🏽'Scarlet Nexus' review: A tale of psychic powers that might overload your brain❗️<a href='https://techblock.club/?p=12699'> link</a>
+👉🏽Next-gen Vivo V21e smartphone launched in India; Check price, specs, availability here❗️<a href='https://techblock.club/?p=12719'> link</a>
 
-👉🏿Lenovo ThinkPad X1 Extreme (Gen 4) could be the biggest threat to the 16-inch MacBook Pro yet❗️<a href='https://techblock.club/?p=12701'> link</a>
+👉🏿State Police seeking three suspects who broke into downtown Boston high rise❗️<a href='https://techblock.club/?p=12721'> link</a>
 
-👉Xbox Custom Controllers Have A Messed Up Banned Word List❗️<a href='https://techblock.club/?p=12703'> link</a>
+👉Microsoft says this new malware could bankrupt your business❗️<a href='https://techblock.club/?p=12723'> link</a>
 
-👉🏽Aliens: Fireteam Elite Will Support Cross-Gen Play, But Not Cross-Platform Play❗️<a href='https://techblock.club/?p=12705'> link</a>
+👉🏽Sniper Ghost Warrior Contracts 2 PS5 edition will be available in August❗️<a href='https://techblock.club/?p=12725'> link</a>
 
-👉🏿Prime Day phone deals still available: Samsung Galaxy S21 Plus, Google Pixel, Motorola Razr, more❗️<a href='https://techblock.club/?p=12707'> link</a>
+👉🏿Google delays blocking third-party cookies in Chrome until 2023❗️<a href='https://techblock.club/?p=12727'> link</a>
 
-👉Pokémon Sword And Shield Leakers To Pay $150000 Each To Nintendo For Damages❗️<a href='https://techblock.club/?p=12709'> link</a>
+👉Take Advantage Of This Rare Sale On Philips Hue Products, Before It's Gone!❗️<a href='https://techblock.club/?p=12729'> link</a>
 
-👉🏽Oppo Reno 6 Z Appears with Enhanced Cameras and Storage❗️<a href='https://techblock.club/?p=12711'> link</a>
+👉🏽Steam Summer Sale 2021 Reportedly Begins Today❗️<a href='https://techblock.club/?p=12731'> link</a>
 
-👉🏿CD Projekt continues to improve Cyberpunk after Sony store comeback❗️<a href='https://techblock.club/?p=12713'> link</a>
+👉🏿Listen to Apple Music and Spotify on this iPod Classic web player❗️<a href='https://techblock.club/?p=12733'> link</a>
 
