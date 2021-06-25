@@ -1,20 +1,20 @@
-<b>Technology NEWS on Thursday, June 24th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Friday, June 25th, 2021</b> 📡📡📡 
 
-👉Kerbal Space Program celebrates 10 years of challenging space launch physics❗️<a href='https://techblock.club/?p=12717'> link</a>
+👉UK antitrust watchdog investigating Amazon and Google over fake reviews❗️<a href='https://techblock.club/?p=12737'> link</a>
 
-👉🏽Next-gen Vivo V21e smartphone launched in India; Check price, specs, availability here❗️<a href='https://techblock.club/?p=12719'> link</a>
+👉🏽How prevalent is the coronavirus delta variant in Washington?❗️<a href='https://techblock.club/?p=12739'> link</a>
 
-👉🏿State Police seeking three suspects who broke into downtown Boston high rise❗️<a href='https://techblock.club/?p=12721'> link</a>
+👉🏿UK watchdog probes Amazon, Google for fake reviews of goods❗️<a href='https://techblock.club/?p=12741'> link</a>
 
-👉Microsoft says this new malware could bankrupt your business❗️<a href='https://techblock.club/?p=12723'> link</a>
+👉How to stream Apple Fitness Plus workouts to your TV❗️<a href='https://techblock.club/?p=12743'> link</a>
 
-👉🏽Sniper Ghost Warrior Contracts 2 PS5 edition will be available in August❗️<a href='https://techblock.club/?p=12725'> link</a>
+👉🏽Microsoft's Satya Nadella wants to snatch competition from the jaws of antitrust❗️<a href='https://techblock.club/?p=12745'> link</a>
 
-👉🏿Google delays blocking third-party cookies in Chrome until 2023❗️<a href='https://techblock.club/?p=12727'> link</a>
+👉🏿Microsoft wants Steam to be part of its new Windows 11 app store❗️<a href='https://techblock.club/?p=12747'> link</a>
 
-👉Take Advantage Of This Rare Sale On Philips Hue Products, Before It's Gone!❗️<a href='https://techblock.club/?p=12729'> link</a>
+👉Five Windows 11 features Apple should steal for macOS❗️<a href='https://techblock.club/?p=12749'> link</a>
 
-👉🏽Steam Summer Sale 2021 Reportedly Begins Today❗️<a href='https://techblock.club/?p=12731'> link</a>
+👉🏽Hackers are infecting gamers' PCs with malware to make millions from crypto❗️<a href='https://techblock.club/?p=12751'> link</a>
 
-👉🏿Listen to Apple Music and Spotify on this iPod Classic web player❗️<a href='https://techblock.club/?p=12733'> link</a>
+👉🏿Amazon and Google investigated by UK regulator over fake reviews❗️<a href='https://techblock.club/?p=12753'> link</a>
 
