@@ -1,20 +1,20 @@
-<b>Technology NEWS on Friday, June 25th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Saturday, June 26th, 2021</b> 📡📡📡 
 
-👉UK antitrust watchdog investigating Amazon and Google over fake reviews❗️<a href='https://techblock.club/?p=12737'> link</a>
+👉The Elder Scrolls VI: An Xbox exclusive or will it come to PS5?❗️<a href='https://techblock.club/?p=12757'> link</a>
 
-👉🏽How prevalent is the coronavirus delta variant in Washington?❗️<a href='https://techblock.club/?p=12739'> link</a>
+👉🏽Gadgets Weekly: Lenovo ThinkPad X1 Fold PC, Realme Narzo 30 5G and more❗️<a href='https://techblock.club/?p=12759'> link</a>
 
-👉🏿UK watchdog probes Amazon, Google for fake reviews of goods❗️<a href='https://techblock.club/?p=12741'> link</a>
+👉🏿Are you using laptops or PCs from this company? Beware! You may be at big risk of attack from hackers❗️<a href='https://techblock.club/?p=12761'> link</a>
 
-👉How to stream Apple Fitness Plus workouts to your TV❗️<a href='https://techblock.club/?p=12743'> link</a>
+👉'Mass Effect' series director talks about the fate of the film adaptation❗️<a href='https://techblock.club/?p=12763'> link</a>
 
-👉🏽Microsoft's Satya Nadella wants to snatch competition from the jaws of antitrust❗️<a href='https://techblock.club/?p=12745'> link</a>
+👉🏽What if: Rainbow Six Siege got an XCOM-like strategy spinoff?❗️<a href='https://techblock.club/?p=12765'> link</a>
 
-👉🏿Microsoft wants Steam to be part of its new Windows 11 app store❗️<a href='https://techblock.club/?p=12747'> link</a>
+👉🏿Samsung Galaxy Watch 4 emerges in new renders — and it could read body fat❗️<a href='https://techblock.club/?p=12767'> link</a>
 
-👉Five Windows 11 features Apple should steal for macOS❗️<a href='https://techblock.club/?p=12749'> link</a>
+👉Refreshed! Realme C11 (2021) launched in India: From price to specs, here is everything you need to know❗️<a href='https://techblock.club/?p=12769'> link</a>
 
-👉🏽Hackers are infecting gamers' PCs with malware to make millions from crypto❗️<a href='https://techblock.club/?p=12751'> link</a>
+👉🏽Ratchet & Clank: Rift Apart devs on the world-jumping future of PS5❗️<a href='https://techblock.club/?p=12771'> link</a>
 
-👉🏿Amazon and Google investigated by UK regulator over fake reviews❗️<a href='https://techblock.club/?p=12753'> link</a>
+👉🏿The best new smartphones coming out in 2021/2022 - from Apple to Samsung❗️<a href='https://techblock.club/?p=12773'> link</a>
 
