@@ -1,20 +1,20 @@
-<b>Technology NEWS on Sunday, June 27th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Monday, June 28th, 2021</b> 📡📡📡 
 
-👉UK Financial Regulator Bars Crypto Exchange Binance❗️<a href='https://techblock.club/?p=12777'> link</a>
+👉TCL's Latest 5G Phone Is More Affordable Than Expected❗️<a href='https://techblock.club/?p=12797'> link</a>
 
-👉🏽Apple Explores Bigger iPads and Reshuffles Its Car Team❗️<a href='https://techblock.club/?p=12779'> link</a>
+👉🏽This scary report reveals that your ex may be still stalking you online – Times of India❗️<a href='https://techblock.club/?p=12799'> link</a>
 
-👉🏿New Mana Game for Consoles in Development; Echoes of Mana & Legend of Mana Anime Announced❗️<a href='https://techblock.club/?p=12781'> link</a>
+👉🏿This Xbox Series S Bundle Sale Is Probably Your Best Bet At Getting A Next-Gen Console❗️<a href='https://techblock.club/?p=12801'> link</a>
 
-👉Global balance of the coronavirus pandemic on June 27 at 10:00 GMT❗️<a href='https://techblock.club/?p=12783'> link</a>
+👉Linux Kernel 5.13 officially launches with support for M1 Macs❗️<a href='https://techblock.club/?p=12803'> link</a>
 
-👉🏽Another 'Castlevania Advance Collection' rating has appeared online❗️<a href='https://techblock.club/?p=12785'> link</a>
+👉🏽Is Cyberpunk 2077 Stable Enough to Play? Developer CD Projekt Red Thinks So❗️<a href='https://techblock.club/?p=12805'> link</a>
 
-👉🏿Mobile World Congress 2021 Dates: Biggest mobile tech event in the offing, Samsung to Lenovo, here is what to expect❗️<a href='https://techblock.club/?p=12787'> link</a>
+👉🏿Chris Avellone (Fallout) breaks silence after allegations of alleged sexual harassment❗️<a href='https://techblock.club/?p=12807'> link</a>
 
-👉A satellite's impending fiery demise shows how important it is to keep space clean❗️<a href='https://techblock.club/?p=12789'> link</a>
+👉Save Big On GE Smart Light Bulbs & Cameras – Today Only❗️<a href='https://techblock.club/?p=12809'> link</a>
 
-👉🏽FAU-G Team DeathMatch mode beta released on Android❗️<a href='https://techblock.club/?p=12791'> link</a>
+👉🏽The 12.9 Max Plus is Brydge's best iPad keyboard yet❗️<a href='https://techblock.club/?p=12811'> link</a>
 
-👉🏿My switch from Android to iPhone shows me what my friends really think❗️<a href='https://techblock.club/?p=12793'> link</a>
+👉🏿Mario Golf: Super Rush review: Less is more in golf scores, not video games❗️<a href='https://techblock.club/?p=12813'> link</a>
 
