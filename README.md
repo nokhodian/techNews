@@ -1,20 +1,20 @@
-<b>Technology NEWS on Tuesday, June 29th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Wednesday, June 30th, 2021</b> 📡📡📡 
 
-👉Nothing wireless earbuds launch set for July 27 — what to expect❗️<a href='https://techblock.club/?p=12817'> link</a>
+👉Get ready for years of new tech regulations❗️<a href='https://techblock.club/?p=12837'> link</a>
 
-👉🏽The 3 words that could spell trouble for Android apps on Windows❗️<a href='https://techblock.club/?p=12819'> link</a>
+👉🏽19 Tricks to Master Google Photos❗️<a href='https://techblock.club/?p=12839'> link</a>
 
-👉🏿Apple Watch gains new International Collection Sport Loop bands, matching faces❗️<a href='https://techblock.club/?p=12821'> link</a>
+👉🏿MWC 2021: From Samsung's One UI to Snapdragon 888, check 5 biggest launches from day 1❗️<a href='https://techblock.club/?p=12841'> link</a>
 
-👉The best OnePlus Nord CE 5G cases❗️<a href='https://techblock.club/?p=12823'> link</a>
+👉Renault revives models of the past for an electric future❗️<a href='https://techblock.club/?p=12843'> link</a>
 
-👉🏽Copado acquires Qentinel to bring multicloud software testing to DevOps❗️<a href='https://techblock.club/?p=12825'> link</a>
+👉🏽Apple expands 5G mmWave component suppliers for wide international 'iPhone 13' roll-out❗️<a href='https://techblock.club/?p=12845'> link</a>
 
-👉🏿Synth Riders Coming To PSVR On July 27❗️<a href='https://techblock.club/?p=12827'> link</a>
+👉🏿How to fix the Windows 11 installation error: Enabling TPM and Secure Boot❗️<a href='https://techblock.club/?p=12847'> link</a>
 
-👉Escape From Tarkov Gears Up For Next Wipe With In-Game Changes❗️<a href='https://techblock.club/?p=12829'> link</a>
+👉MacOS Monterey: How to download Apple's new operating system❗️<a href='https://techblock.club/?p=12849'> link</a>
 
-👉🏽What is the emergency alert system and when will it be used?❗️<a href='https://techblock.club/?p=12831'> link</a>
+👉🏽Report: Apple to release 10.86-inch OLED iPad Air next year, OLED iPad Pro in 2023❗️<a href='https://techblock.club/?p=12851'> link</a>
 
-👉🏿Best camera phone 2021: Take the best pics and vids❗️<a href='https://techblock.club/?p=12833'> link</a>
+👉🏿Didi gears up for blockbuster US IPO in quest to go 'truly global'❗️<a href='https://techblock.club/?p=12853'> link</a>
 
