@@ -1,20 +1,20 @@
-<b>Technology NEWS on Wednesday, June 30th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Thursday, July 1st, 2021</b> 📡📡📡 
 
-👉Get ready for years of new tech regulations❗️<a href='https://techblock.club/?p=12837'> link</a>
+👉Instagram will start testing video to make it more like TikTok❗️<a href='https://techblock.club/?p=12857'> link</a>
 
-👉🏽19 Tricks to Master Google Photos❗️<a href='https://techblock.club/?p=12839'> link</a>
+👉🏽A 'Diablo 4' Update Is Here, Correcting A Mistake Of 'Diablo 3'❗️<a href='https://techblock.club/?p=12859'> link</a>
 
-👉🏿MWC 2021: From Samsung's One UI to Snapdragon 888, check 5 biggest launches from day 1❗️<a href='https://techblock.club/?p=12841'> link</a>
+👉🏿Windows 11's Security Push Puts Microsoft on a Collision Course❗️<a href='https://techblock.club/?p=12861'> link</a>
 
-👉Renault revives models of the past for an electric future❗️<a href='https://techblock.club/?p=12843'> link</a>
+👉Here's why your iPhone is missing some iOS 15 Public Beta features❗️<a href='https://techblock.club/?p=12863'> link</a>
 
-👉🏽Apple expands 5G mmWave component suppliers for wide international 'iPhone 13' roll-out❗️<a href='https://techblock.club/?p=12845'> link</a>
+👉🏽Windows 11 looks a little different. Here's what's changing❗️<a href='https://techblock.club/?p=12865'> link</a>
 
-👉🏿How to fix the Windows 11 installation error: Enabling TPM and Secure Boot❗️<a href='https://techblock.club/?p=12847'> link</a>
+👉🏿iPhone 13 vs. iPhone 12: What the rumors say about Apple's next flagship phone❗️<a href='https://techblock.club/?p=12867'> link</a>
 
-👉MacOS Monterey: How to download Apple's new operating system❗️<a href='https://techblock.club/?p=12849'> link</a>
+👉PS Plus July 2021 Free Games Announced — Call of Duty: Black Ops 4, WWE 2K Battlegrounds, A Plague Tale ...❗️<a href='https://techblock.club/?p=12869'> link</a>
 
-👉🏽Report: Apple to release 10.86-inch OLED iPad Air next year, OLED iPad Pro in 2023❗️<a href='https://techblock.club/?p=12851'> link</a>
+👉🏽If you're burned out on Zoom calls, try Slack's new feature❗️<a href='https://techblock.club/?p=12871'> link</a>
 
-👉🏿Didi gears up for blockbuster US IPO in quest to go 'truly global'❗️<a href='https://techblock.club/?p=12853'> link</a>
+👉🏿Apple uses Google servers to store over 8 million TB of iCloud data❗️<a href='https://techblock.club/?p=12873'> link</a>
 
