@@ -1,20 +1,20 @@
-<b>Technology NEWS on Friday, July 2nd, 2021</b> 📡📡📡 
+<b>Technology NEWS on Saturday, July 3rd, 2021</b> 📡📡📡 
 
-👉Tesla delivered over 200000 cars in the second quarter of 2021❗️<a href='https://techblock.club/?p=12877'> link</a>
+👉'Pokemon GO' Community Day 'Roasted Berries' Special Research Steps And Rewards❗️<a href='https://techblock.club/?p=12897'> link</a>
 
-👉🏽Sony Draws the Ire of Indie Video Game Makers❗️<a href='https://techblock.club/?p=12879'> link</a>
+👉🏽Supply chain attack on Kaseya infects hundreds with ransomware: What we know❗️<a href='https://techblock.club/?p=12899'> link</a>
 
-👉🏿Destiny 2's Crucible is getting a meta shakeup next week❗️<a href='https://techblock.club/?p=12881'> link</a>
+👉🏿Windows 11 Security Stink Reveals Massive Microsoft Ransomware Red Herring❗️<a href='https://techblock.club/?p=12901'> link</a>
 
-👉Clouds disperse over Big Tech's gaming gamble❗️<a href='https://techblock.club/?p=12883'> link</a>
+👉iOS 15 beta on iPhone: 3 things you absolutely need to know before you install❗️<a href='https://techblock.club/?p=12903'> link</a>
 
-👉🏽iOS 15: How to use FaceTime on Android, Focus mode and other features you need to know❗️<a href='https://techblock.club/?p=12885'> link</a>
+👉🏽DOOM Eternal: The Ancient Gods - Part Two Expected To Arrive On Switch "Later This Year"❗️<a href='https://techblock.club/?p=12905'> link</a>
 
-👉🏿Microsoft warns of Windows 'PrintNightmare' vulnerability that's being actively exploited❗️<a href='https://techblock.club/?p=12887'> link</a>
+👉🏿Kaseya, a Software Provider, Investigates Potential Cyberattack❗️<a href='https://techblock.club/?p=12907'> link</a>
 
-👉Airtel Black Debuts to Let Users Combine Postpaid, DTH, Fibre Services Under One Single Bill❗️<a href='https://techblock.club/?p=12889'> link</a>
+👉Turn your phone into a fitness coach❗️<a href='https://techblock.club/?p=12909'> link</a>
 
-👉🏽Twitter Considers Letting Users Tweet to 'Trusted Friends'❗️<a href='https://techblock.club/?p=12891'> link</a>
+👉🏽New ransomware attack targets key IT vendor❗️<a href='https://techblock.club/?p=12911'> link</a>
 
-👉🏿Covid-19 Cases Rise in Spain Among Young, Unvaccinated Population❗️<a href='https://techblock.club/?p=12893'> link</a>
+👉🏿UK concert and festival ticket buyers warned insurance may not cover Covid❗️<a href='https://techblock.club/?p=12913'> link</a>
 
