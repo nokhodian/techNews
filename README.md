@@ -1,20 +1,20 @@
-<b>Technology NEWS on Saturday, July 3rd, 2021</b> 📡📡📡 
+<b>Technology NEWS on Sunday, July 4th, 2021</b> 📡📡📡 
 
-👉'Pokemon GO' Community Day 'Roasted Berries' Special Research Steps And Rewards❗️<a href='https://techblock.club/?p=12897'> link</a>
+👉China regulator orders Didi ride-hailing app removed from stores❗️<a href='https://techblock.club/?p=12917'> link</a>
 
-👉🏽Supply chain attack on Kaseya infects hundreds with ransomware: What we know❗️<a href='https://techblock.club/?p=12899'> link</a>
+👉🏽Switching from Android to iPhone shows me what my friends really think❗️<a href='https://techblock.club/?p=12919'> link</a>
 
-👉🏿Windows 11 Security Stink Reveals Massive Microsoft Ransomware Red Herring❗️<a href='https://techblock.club/?p=12901'> link</a>
+👉🏿Amazon's new Reading Sidekick lets kids take turns reading books with Alexa❗️<a href='https://techblock.club/?p=12921'> link</a>
 
-👉iOS 15 beta on iPhone: 3 things you absolutely need to know before you install❗️<a href='https://techblock.club/?p=12903'> link</a>
+👉Guild Wars 2 expansion delayed❗️<a href='https://techblock.club/?p=12923'> link</a>
 
-👉🏽DOOM Eternal: The Ancient Gods - Part Two Expected To Arrive On Switch "Later This Year"❗️<a href='https://techblock.club/?p=12905'> link</a>
+👉🏽Bird to Offer Accessible Vehicles for People With Disabilities in New York City Pilot❗️<a href='https://techblock.club/?p=12925'> link</a>
 
-👉🏿Kaseya, a Software Provider, Investigates Potential Cyberattack❗️<a href='https://techblock.club/?p=12907'> link</a>
+👉🏿Here's 7 minutes of System Shock remake gameplay❗️<a href='https://techblock.club/?p=12927'> link</a>
 
-👉Turn your phone into a fitness coach❗️<a href='https://techblock.club/?p=12909'> link</a>
+👉Ransomware attack on Kaseya, a software firm, threatens businesses worldwide❗️<a href='https://techblock.club/?p=12929'> link</a>
 
-👉🏽New ransomware attack targets key IT vendor❗️<a href='https://techblock.club/?p=12911'> link</a>
+👉🏽Qualcomm's New CEO Aims to 'Go Big' in China, Develop Laptop Chips to Challenge Apple❗️<a href='https://techblock.club/?p=12931'> link</a>
 
-👉🏿UK concert and festival ticket buyers warned insurance may not cover Covid❗️<a href='https://techblock.club/?p=12913'> link</a>
+👉🏿Dragon Age 4 might not have news, but it does have concept art❗️<a href='https://techblock.club/?p=12933'> link</a>
 
