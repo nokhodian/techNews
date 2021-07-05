@@ -1,20 +1,20 @@
-<b>Technology NEWS on Sunday, July 4th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Monday, July 5th, 2021</b> 📡📡📡 
 
-👉China regulator orders Didi ride-hailing app removed from stores❗️<a href='https://techblock.club/?p=12917'> link</a>
+👉Apple defeats attempt by TikTok and others to bypass App Tracking Transparency in China❗️<a href='https://techblock.club/?p=12937'> link</a>
 
-👉🏽Switching from Android to iPhone shows me what my friends really think❗️<a href='https://techblock.club/?p=12919'> link</a>
+👉🏽Battlegrounds Mobile India surpasses 1 crore downloads on Google Play Store❗️<a href='https://techblock.club/?p=12939'> link</a>
 
-👉🏿Amazon's new Reading Sidekick lets kids take turns reading books with Alexa❗️<a href='https://techblock.club/?p=12921'> link</a>
+👉🏿The Windows 11 app store is already more useful after just a week❗️<a href='https://techblock.club/?p=12941'> link</a>
 
-👉Guild Wars 2 expansion delayed❗️<a href='https://techblock.club/?p=12923'> link</a>
+👉Final Fantasy XIV has broken its all-time Steam concurrent player record❗️<a href='https://techblock.club/?p=12943'> link</a>
 
-👉🏽Bird to Offer Accessible Vehicles for People With Disabilities in New York City Pilot❗️<a href='https://techblock.club/?p=12925'> link</a>
+👉🏽Step back like a billionaire: Previous tech titan exits offer examples for Bezos❗️<a href='https://techblock.club/?p=12945'> link</a>
 
-👉🏿Here's 7 minutes of System Shock remake gameplay❗️<a href='https://techblock.club/?p=12927'> link</a>
+👉🏿Audacity 'Spyware' Claims Follow Privacy Policy Changes By New Owner❗️<a href='https://techblock.club/?p=12947'> link</a>
 
-👉Ransomware attack on Kaseya, a software firm, threatens businesses worldwide❗️<a href='https://techblock.club/?p=12929'> link</a>
+👉Android smartphone users alert! Remove these 9 apps with hidden Trojan virus❗️<a href='https://techblock.club/?p=12949'> link</a>
 
-👉🏽Qualcomm's New CEO Aims to 'Go Big' in China, Develop Laptop Chips to Challenge Apple❗️<a href='https://techblock.club/?p=12931'> link</a>
+👉🏽Zuck Wishes America a Happy Birthday in the Most Cursed Way Possible❗️<a href='https://techblock.club/?p=12951'> link</a>
 
-👉🏿Dragon Age 4 might not have news, but it does have concept art❗️<a href='https://techblock.club/?p=12933'> link</a>
+👉🏿The Week In Games: Monster Hunter Stories 2❗️<a href='https://techblock.club/?p=12953'> link</a>
 
