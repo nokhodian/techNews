@@ -1,20 +1,20 @@
-<b>Technology NEWS on Monday, July 5th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Tuesday, July 6th, 2021</b> 📡📡📡 
 
-👉Apple defeats attempt by TikTok and others to bypass App Tracking Transparency in China❗️<a href='https://techblock.club/?p=12937'> link</a>
+👉Nintendo unveils new video game console that launches this fall as chip shortages continue to plague supply❗️<a href='https://techblock.club/?p=12957'> link</a>
 
-👉🏽Battlegrounds Mobile India surpasses 1 crore downloads on Google Play Store❗️<a href='https://techblock.club/?p=12939'> link</a>
+👉🏽Today is Day 1 for Andy Jassy as former AWS CEO moves to Amazon corner office❗️<a href='https://techblock.club/?p=12959'> link</a>
 
-👉🏿The Windows 11 app store is already more useful after just a week❗️<a href='https://techblock.club/?p=12941'> link</a>
+👉🏿How to Check Out Early Versions of Windows 10 and Windows 11❗️<a href='https://techblock.club/?p=12961'> link</a>
 
-👉Final Fantasy XIV has broken its all-time Steam concurrent player record❗️<a href='https://techblock.club/?p=12943'> link</a>
+👉All PS Now Games❗️<a href='https://techblock.club/?p=12963'> link</a>
 
-👉🏽Step back like a billionaire: Previous tech titan exits offer examples for Bezos❗️<a href='https://techblock.club/?p=12945'> link</a>
+👉🏽5 creative, fun photo projects to try with your phone at home❗️<a href='https://techblock.club/?p=12965'> link</a>
 
-👉🏿Audacity 'Spyware' Claims Follow Privacy Policy Changes By New Owner❗️<a href='https://techblock.club/?p=12947'> link</a>
+👉🏿Nothing's debut earbuds will cost $99 and feature noise cancellation❗️<a href='https://techblock.club/?p=12967'> link</a>
 
-👉Android smartphone users alert! Remove these 9 apps with hidden Trojan virus❗️<a href='https://techblock.club/?p=12949'> link</a>
+👉How to gameshare on PS4: PlayStation's Share Play feature is easy to use❗️<a href='https://techblock.club/?p=12969'> link</a>
 
-👉🏽Zuck Wishes America a Happy Birthday in the Most Cursed Way Possible❗️<a href='https://techblock.club/?p=12951'> link</a>
+👉🏽Wally Funk to break John Glenn's spaceflight record with Blue Origin flight❗️<a href='https://techblock.club/?p=12971'> link</a>
 
-👉🏿The Week In Games: Monster Hunter Stories 2❗️<a href='https://techblock.club/?p=12953'> link</a>
+👉🏿Latest Nintendo Switch Update Adds A Helpful Space-Saving Feature❗️<a href='https://techblock.club/?p=12973'> link</a>
 
