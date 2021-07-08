@@ -1,20 +1,20 @@
-<b>Technology NEWS on Wednesday, July 7th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Thursday, July 8th, 2021</b> 📡📡📡 
 
-👉This serious Wi-Fi bug can break your iPhone, but here's how to protect yourself❗️<a href='https://techblock.club/?p=12977'> link</a>
+👉How to deploy alien nanites in Fortnite (Week 5)❗️<a href='https://techblock.club/?p=12997'> link</a>
 
-👉🏽Valorant Update 3.01 Patch Notes & Release Time (Today, July 7)❗️<a href='https://techblock.club/?p=12979'> link</a>
+👉🏽Feature Request: Create a user-friendly standalone iOS Keychain app❗️<a href='https://techblock.club/?p=12999'> link</a>
 
-👉🏿Mint Mobile vs Tello: which is the better prepaid carrier, and for who?❗️<a href='https://techblock.club/?p=12981'> link</a>
+👉🏿China tries to quell investor fears about internet companies❗️<a href='https://techblock.club/?p=13001'> link</a>
 
-👉OnePlus Watch Cobalt Limited Edition Finally Launches Outside Of China❗️<a href='https://techblock.club/?p=12983'> link</a>
+👉Latest Lotus, Lamborghini models are last of a gas era❗️<a href='https://techblock.club/?p=13003'> link</a>
 
-👉🏽Resident Evil 1 Gets First-Person Makeover in Fan-Made Remake Build❗️<a href='https://techblock.club/?p=12985'> link</a>
+👉🏽Beijing might finally close the IPO loophole that allowed Didi to list overseas❗️<a href='https://techblock.club/?p=13005'> link</a>
 
-👉🏿Entry of PUBG's Indian avatar Battlegrounds Mobile India to drive in-app revenue in esports❗️<a href='https://techblock.club/?p=12987'> link</a>
+👉🏿Wearable brand Noise partners Sarva to offer virtual yoga, wellness sessions❗️<a href='https://techblock.club/?p=13007'> link</a>
 
-👉Level-5 is Hiring for a Completely New RPG❗️<a href='https://techblock.club/?p=12989'> link</a>
+👉China tries to quell investor fears about internet companies❗️<a href='https://techblock.club/?p=13009'> link</a>
 
-👉🏽'Fallout 76: Steel Reign'—Bethesda Says Please Give Game a Chance After Hard Lessons❗️<a href='https://techblock.club/?p=12991'> link</a>
+👉🏽You can now be a cat in Google Meet calls❗️<a href='https://techblock.club/?p=13011'> link</a>
 
-👉🏿Geekbench removes the OnePlus 9 Pro from its Android benchmarks chart after app-throttling scandal❗️<a href='https://techblock.club/?p=12993'> link</a>
+👉🏿Itel G-Series 43-Inch, 55-Inch 4K Android TV Models Launched in India❗️<a href='https://techblock.club/?p=13013'> link</a>
 
