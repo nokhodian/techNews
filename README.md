@@ -1,20 +1,20 @@
-<b>Technology NEWS on Thursday, July 8th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Friday, July 9th, 2021</b> 📡📡📡 
 
-👉How to deploy alien nanites in Fortnite (Week 5)❗️<a href='https://techblock.club/?p=12997'> link</a>
+👉Fitbit Luxe review photos❗️<a href='https://techblock.club/?p=13017'> link</a>
 
-👉🏽Feature Request: Create a user-friendly standalone iOS Keychain app❗️<a href='https://techblock.club/?p=12999'> link</a>
+👉🏽The Legend Of Zelda: Skyward Sword Preorder Guide: $10 Discount, Bonuses, And More❗️<a href='https://techblock.club/?p=13019'> link</a>
 
-👉🏿China tries to quell investor fears about internet companies❗️<a href='https://techblock.club/?p=13001'> link</a>
+👉🏿Every Grand Theft Auto Mini-Game Worse Than Bowling With Roman❗️<a href='https://techblock.club/?p=13021'> link</a>
 
-👉Latest Lotus, Lamborghini models are last of a gas era❗️<a href='https://techblock.club/?p=13003'> link</a>
+👉Canon RF 100-500mm F4.5-7.1 L IS USM Review❗️<a href='https://techblock.club/?p=13023'> link</a>
 
-👉🏽Beijing might finally close the IPO loophole that allowed Didi to list overseas❗️<a href='https://techblock.club/?p=13005'> link</a>
+👉🏽Chinese Crypto Miners Are Offloading Used GeForce RTX 3060 GPUs For Cheap❗️<a href='https://techblock.club/?p=13025'> link</a>
 
-👉🏿Wearable brand Noise partners Sarva to offer virtual yoga, wellness sessions❗️<a href='https://techblock.club/?p=13007'> link</a>
+👉🏿Another Report Suggests A Delayed & Limited Galaxy S21 FE Launch❗️<a href='https://techblock.club/?p=13027'> link</a>
 
-👉China tries to quell investor fears about internet companies❗️<a href='https://techblock.club/?p=13009'> link</a>
+👉Lenovo Yoga 9i (14-inch) review: sounds like a winner❗️<a href='https://techblock.club/?p=13029'> link</a>
 
-👉🏽You can now be a cat in Google Meet calls❗️<a href='https://techblock.club/?p=13011'> link</a>
+👉🏽Genshin Impact version 2.0 update 'The Immovable God and the Eternal Euthymia' launches July 21❗️<a href='https://techblock.club/?p=13031'> link</a>
 
-👉🏿Itel G-Series 43-Inch, 55-Inch 4K Android TV Models Launched in India❗️<a href='https://techblock.club/?p=13013'> link</a>
+👉🏿Delta Passenger Arrested, Accused of Spitting After Refusing to Wear Mask❗️<a href='https://techblock.club/?p=13033'> link</a>
 
