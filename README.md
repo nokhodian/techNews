@@ -1,20 +1,20 @@
-<b>Technology NEWS on Friday, July 9th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Saturday, July 10th, 2021</b> 📡📡📡 
 
-👉Fitbit Luxe review photos❗️<a href='https://techblock.club/?p=13017'> link</a>
+👉Death Stranding Director's Cut: Details, PS4 Update and Pre-Orders❗️<a href='https://techblock.club/?p=13037'> link</a>
 
-👉🏽The Legend Of Zelda: Skyward Sword Preorder Guide: $10 Discount, Bonuses, And More❗️<a href='https://techblock.club/?p=13019'> link</a>
+👉🏽Red Dead Redemption 2's Alligators Were Originally Meant To Attack Horses❗️<a href='https://techblock.club/?p=13039'> link</a>
 
-👉🏿Every Grand Theft Auto Mini-Game Worse Than Bowling With Roman❗️<a href='https://techblock.club/?p=13021'> link</a>
+👉🏿Deathloop PlayStation Exclusivity Will Only Last a Year❗️<a href='https://techblock.club/?p=13041'> link</a>
 
-👉Canon RF 100-500mm F4.5-7.1 L IS USM Review❗️<a href='https://techblock.club/?p=13023'> link</a>
+👉Hidden Google Chrome settings that you must change right away❗️<a href='https://techblock.club/?p=13043'> link</a>
 
-👉🏽Chinese Crypto Miners Are Offloading Used GeForce RTX 3060 GPUs For Cheap❗️<a href='https://techblock.club/?p=13025'> link</a>
+👉🏽Millions face frustrating Freeview TV glitch, but there's a way to fix it for free❗️<a href='https://techblock.club/?p=13045'> link</a>
 
-👉🏿Another Report Suggests A Delayed & Limited Galaxy S21 FE Launch❗️<a href='https://techblock.club/?p=13027'> link</a>
+👉🏿Resident Evil Village Twitching Problem Solved – With a Pirated Version❗️<a href='https://techblock.club/?p=13047'> link</a>
 
-👉Lenovo Yoga 9i (14-inch) review: sounds like a winner❗️<a href='https://techblock.club/?p=13029'> link</a>
+👉Four Years Later, Destiny 2's Most Annoying Thing Remains Blue Gear Drops❗️<a href='https://techblock.club/?p=13049'> link</a>
 
-👉🏽Genshin Impact version 2.0 update 'The Immovable God and the Eternal Euthymia' launches July 21❗️<a href='https://techblock.club/?p=13031'> link</a>
+👉🏽OnePlus Buds Pro are coming — and you can apply to test them❗️<a href='https://techblock.club/?p=13051'> link</a>
 
-👉🏿Delta Passenger Arrested, Accused of Spitting After Refusing to Wear Mask❗️<a href='https://techblock.club/?p=13033'> link</a>
+👉🏿Top Stories: iPhone 13 and 14, iPad Pro, and MacBook Pro Rumors❗️<a href='https://techblock.club/?p=13053'> link</a>
 
