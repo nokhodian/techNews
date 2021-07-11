@@ -1,20 +1,20 @@
-<b>Technology NEWS on Saturday, July 10th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Sunday, July 11th, 2021</b> 📡📡📡 
 
-👉Death Stranding Director's Cut: Details, PS4 Update and Pre-Orders❗️<a href='https://techblock.club/?p=13037'> link</a>
+👉New Video Game Releases Coming Out This Week 7/12 – 7/18❗️<a href='https://techblock.club/?p=13057'> link</a>
 
-👉🏽Red Dead Redemption 2's Alligators Were Originally Meant To Attack Horses❗️<a href='https://techblock.club/?p=13039'> link</a>
+👉🏽Amazon Prime Day 2021 Sale: Check the top smartphone deals and offers❗️<a href='https://techblock.club/?p=13059'> link</a>
 
-👉🏿Deathloop PlayStation Exclusivity Will Only Last a Year❗️<a href='https://techblock.club/?p=13041'> link</a>
+👉🏿Death Stranding Director's Cut Will Come With a 'Very Hard' Mode❗️<a href='https://techblock.club/?p=13061'> link</a>
 
-👉Hidden Google Chrome settings that you must change right away❗️<a href='https://techblock.club/?p=13043'> link</a>
+👉Warzone: The Best RAM-7 Loadout (Season 4)❗️<a href='https://techblock.club/?p=13063'> link</a>
 
-👉🏽Millions face frustrating Freeview TV glitch, but there's a way to fix it for free❗️<a href='https://techblock.club/?p=13045'> link</a>
+👉🏽PS5 Restocks Not Working Out? You Can Still Get PS5 Hardware With this Barebones Kit❗️<a href='https://techblock.club/?p=13065'> link</a>
 
-👉🏿Resident Evil Village Twitching Problem Solved – With a Pirated Version❗️<a href='https://techblock.club/?p=13047'> link</a>
+👉🏿How to Fix a "Stuck in Automatic Repair" Loop in Windows 10❗️<a href='https://techblock.club/?p=13067'> link</a>
 
-👉Four Years Later, Destiny 2's Most Annoying Thing Remains Blue Gear Drops❗️<a href='https://techblock.club/?p=13049'> link</a>
+👉Samsung Galaxy Z Flip 3: Release date, price, specs and more❗️<a href='https://techblock.club/?p=13069'> link</a>
 
-👉🏽OnePlus Buds Pro are coming — and you can apply to test them❗️<a href='https://techblock.club/?p=13051'> link</a>
+👉🏽Can Marijuana Make You a Better Athlete?❗️<a href='https://techblock.club/?p=13071'> link</a>
 
-👉🏿Top Stories: iPhone 13 and 14, iPad Pro, and MacBook Pro Rumors❗️<a href='https://techblock.club/?p=13053'> link</a>
+👉🏿Final Fantasy 16 Might Not be Shown at TGS 2021, Producer Says❗️<a href='https://techblock.club/?p=13073'> link</a>
 
