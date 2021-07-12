@@ -1,20 +1,20 @@
-<b>Technology NEWS on Sunday, July 11th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Monday, July 12th, 2021</b> 📡📡📡 
 
-👉New Video Game Releases Coming Out This Week 7/12 – 7/18❗️<a href='https://techblock.club/?p=13057'> link</a>
+👉Redesigned iPad mini reportedly on track to launch this fall❗️<a href='https://techblock.club/?p=13077'> link</a>
 
-👉🏽Amazon Prime Day 2021 Sale: Check the top smartphone deals and offers❗️<a href='https://techblock.club/?p=13059'> link</a>
+👉🏽Windows 11's App Store is its centerpiece, not the Start Menu❗️<a href='https://techblock.club/?p=13079'> link</a>
 
-👉🏿Death Stranding Director's Cut Will Come With a 'Very Hard' Mode❗️<a href='https://techblock.club/?p=13061'> link</a>
+👉🏿Galaxy S21 FE Might Be Available to ONLY Two Markets As Delays Plague its Launch❗️<a href='https://techblock.club/?p=13081'> link</a>
 
-👉Warzone: The Best RAM-7 Loadout (Season 4)❗️<a href='https://techblock.club/?p=13063'> link</a>
+👉Ask An Astronomer: Prof P Ajith Demystifies Gravitational Waves, Their Origin and Importance❗️<a href='https://techblock.club/?p=13083'> link</a>
 
-👉🏽PS5 Restocks Not Working Out? You Can Still Get PS5 Hardware With this Barebones Kit❗️<a href='https://techblock.club/?p=13065'> link</a>
+👉🏽Tesla Advertising Makes It To PUBG Mobile Game❗️<a href='https://techblock.club/?p=13085'> link</a>
 
-👉🏿How to Fix a "Stuck in Automatic Repair" Loop in Windows 10❗️<a href='https://techblock.club/?p=13067'> link</a>
+👉🏿Nothing Ear 1 TWS earbuds to compete with OnePlus Buds Pro, Apple AirPods at a price of Rs 5999❗️<a href='https://techblock.club/?p=13087'> link</a>
 
-👉Samsung Galaxy Z Flip 3: Release date, price, specs and more❗️<a href='https://techblock.club/?p=13069'> link</a>
+👉Nokia files multiple patent infringement cases against Oppo in Europe, Asia❗️<a href='https://techblock.club/?p=13089'> link</a>
 
-👉🏽Can Marijuana Make You a Better Athlete?❗️<a href='https://techblock.club/?p=13071'> link</a>
+👉🏽Amazon working on non-wearable device to track users in their sleep❗️<a href='https://techblock.club/?p=13091'> link</a>
 
-👉🏿Final Fantasy 16 Might Not be Shown at TGS 2021, Producer Says❗️<a href='https://techblock.club/?p=13073'> link</a>
+👉🏿Samsung Odyssey G9 monitor review: Ridiculous in the best possible way❗️<a href='https://techblock.club/?p=13093'> link</a>
 
