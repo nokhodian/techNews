@@ -1,20 +1,20 @@
-<b>Technology NEWS on Monday, July 12th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Tuesday, July 13th, 2021</b> 📡📡📡 
 
-👉Redesigned iPad mini reportedly on track to launch this fall❗️<a href='https://techblock.club/?p=13077'> link</a>
+👉Toyota GR Supra 2.0: what the critics are saying about the 'lighter, nimbler' car❗️<a href='https://techblock.club/?p=13097'> link</a>
 
-👉🏽Windows 11's App Store is its centerpiece, not the Start Menu❗️<a href='https://techblock.club/?p=13079'> link</a>
+👉🏽Frontier delays Elite Dangerous Odyssey on consoles to fix the PC version❗️<a href='https://techblock.club/?p=13099'> link</a>
 
-👉🏿Galaxy S21 FE Might Be Available to ONLY Two Markets As Delays Plague its Launch❗️<a href='https://techblock.club/?p=13081'> link</a>
+👉🏿Decades-old Nintendo game sells for a record $1.56 million in bidding war: 'I was blindsided'❗️<a href='https://techblock.club/?p=13101'> link</a>
 
-👉Ask An Astronomer: Prof P Ajith Demystifies Gravitational Waves, Their Origin and Importance❗️<a href='https://techblock.club/?p=13083'> link</a>
+👉iOS 15: How to Drag and Drop Screenshots❗️<a href='https://techblock.club/?p=13103'> link</a>
 
-👉🏽Tesla Advertising Makes It To PUBG Mobile Game❗️<a href='https://techblock.club/?p=13085'> link</a>
+👉🏽Google fined $592M in France for breaching antitrust order to negotiate copyright fees for news snippets❗️<a href='https://techblock.club/?p=13105'> link</a>
 
-👉🏿Nothing Ear 1 TWS earbuds to compete with OnePlus Buds Pro, Apple AirPods at a price of Rs 5999❗️<a href='https://techblock.club/?p=13087'> link</a>
+👉🏿Dutch coronavirus reproduction level reaches worst level since Feb. 2020❗️<a href='https://techblock.club/?p=13107'> link</a>
 
-👉Nokia files multiple patent infringement cases against Oppo in Europe, Asia❗️<a href='https://techblock.club/?p=13089'> link</a>
+👉Creating a Windows 11 install drive takes some work. Here's what you need to know❗️<a href='https://techblock.club/?p=13109'> link</a>
 
-👉🏽Amazon working on non-wearable device to track users in their sleep❗️<a href='https://techblock.club/?p=13091'> link</a>
+👉🏽Can't remember Apple ID password? Reset it by calling a friend or relative❗️<a href='https://techblock.club/?p=13111'> link</a>
 
-👉🏿Samsung Odyssey G9 monitor review: Ridiculous in the best possible way❗️<a href='https://techblock.club/?p=13093'> link</a>
+👉🏿Sonic Colors: Ultimate Switch Trailer Removes 60fps Perk Of Original Video❗️<a href='https://techblock.club/?p=13113'> link</a>
 
