@@ -1,20 +1,20 @@
-<b>Technology NEWS on Tuesday, July 13th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Wednesday, July 14th, 2021</b> 📡📡📡 
 
-👉Toyota GR Supra 2.0: what the critics are saying about the 'lighter, nimbler' car❗️<a href='https://techblock.club/?p=13097'> link</a>
+👉Skyward Sword HD proves we didn't need a generation of motion controls❗️<a href='https://techblock.club/?p=13117'> link</a>
 
-👉🏽Frontier delays Elite Dangerous Odyssey on consoles to fix the PC version❗️<a href='https://techblock.club/?p=13099'> link</a>
+👉🏽Instagram users will now be able to do a Security Checkup for their account. Here's how❗️<a href='https://techblock.club/?p=13119'> link</a>
 
-👉🏿Decades-old Nintendo game sells for a record $1.56 million in bidding war: 'I was blindsided'❗️<a href='https://techblock.club/?p=13101'> link</a>
+👉🏿iPhone 13 rumors grow more certain ahead of September launch❗️<a href='https://techblock.club/?p=13121'> link</a>
 
-👉iOS 15: How to Drag and Drop Screenshots❗️<a href='https://techblock.club/?p=13103'> link</a>
+👉Oppo Reno 6 Pro 5G, Reno 6 5G launch event to kick off at 3 pm IST today: How to watch livestream❗️<a href='https://techblock.club/?p=13123'> link</a>
 
-👉🏽Google fined $592M in France for breaching antitrust order to negotiate copyright fees for news snippets❗️<a href='https://techblock.club/?p=13105'> link</a>
+👉🏽Xiaomi Mi 11 Ultra Camera Review❗️<a href='https://techblock.club/?p=13125'> link</a>
 
-👉🏿Dutch coronavirus reproduction level reaches worst level since Feb. 2020❗️<a href='https://techblock.club/?p=13107'> link</a>
+👉🏿5 aspects of GTA 5 that could be better developed❗️<a href='https://techblock.club/?p=13127'> link</a>
 
-👉Creating a Windows 11 install drive takes some work. Here's what you need to know❗️<a href='https://techblock.club/?p=13109'> link</a>
+👉BGMI July Update: Krafton announces Battlegrounds Mobile India partnership with Tesla❗️<a href='https://techblock.club/?p=13129'> link</a>
 
-👉🏽Can't remember Apple ID password? Reset it by calling a friend or relative❗️<a href='https://techblock.club/?p=13111'> link</a>
+👉🏽Bloomberg: Apple asks suppliers to build 90 million 'iPhone 13' units by the end of 2021❗️<a href='https://techblock.club/?p=13131'> link</a>
 
-👉🏿Sonic Colors: Ultimate Switch Trailer Removes 60fps Perk Of Original Video❗️<a href='https://techblock.club/?p=13113'> link</a>
+👉🏿Docs, Sheets, & Slides are the latest Google apps to adopt Android 12's animated splash screen [Updated]❗️<a href='https://techblock.club/?p=13133'> link</a>
 
