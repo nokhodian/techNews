@@ -1,20 +1,20 @@
-<b>Technology NEWS on Friday, July 16th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Saturday, July 17th, 2021</b> 📡📡📡 
 
-👉Samsung Galaxy S21 review: All the Galaxy you'll ever actually need❗️<a href='https://techblock.club/?p=13157'> link</a>
+👉Valve takes on Nintendo Switch with new handheld games console❗️<a href='https://techblock.club/?p=13177'> link</a>
 
-👉🏽Twitter Adds Captions to Voice Tweets❗️<a href='https://techblock.club/?p=13159'> link</a>
+👉🏽The more unvaccinated, the more dangerous variants, health experts say❗️<a href='https://techblock.club/?p=13179'> link</a>
 
-👉🏿After waking up from PrintNightmare, Microsoft has a workaround for another Windows Print Spooler vulnerability❗️<a href='https://techblock.club/?p=13161'> link</a>
+👉🏿Apex Legends Mobile's closed beta is coming to Indonesia, the Philippines, and Malaysia❗️<a href='https://techblock.club/?p=13181'> link</a>
 
-👉Share movies from your iPhone to any TV for $20 with this sale❗️<a href='https://techblock.club/?p=13163'> link</a>
+👉Shaq, Melissa McCarthy Now Part of Amazon Alexa's Celebrity Voice Options❗️<a href='https://techblock.club/?p=13183'> link</a>
 
-👉🏽'Pokemon Unite': Nintendo Switch Release Date and Price Revealed❗️<a href='https://techblock.club/?p=13165'> link</a>
+👉🏽Amazon just got Fakespot booted off Apple's iOS App Store❗️<a href='https://techblock.club/?p=13185'> link</a>
 
-👉🏿Want to buy a luxury watch?Read these 7 professional tips first❗️<a href='https://techblock.club/?p=13167'> link</a>
+👉🏿WhatsApp tests encrypted cloud backups on Android❗️<a href='https://techblock.club/?p=13187'> link</a>
 
-👉Microsoft reveals $31 per user per month price tag of one of the coming Windows 365 SKUs❗️<a href='https://techblock.club/?p=13169'> link</a>
+👉Grand Theft Auto: Every Game Ranked By Their Stories❗️<a href='https://techblock.club/?p=13189'> link</a>
 
-👉🏽Hackers Begin Leaking Stolen EA Data, EA Says It's Not Concerned❗️<a href='https://techblock.club/?p=13171'> link</a>
+👉🏽Games with Gold, another free game for the Xbox comes as a surprise – Nerd4.life❗️<a href='https://techblock.club/?p=13191'> link</a>
 
-👉🏿Apple may add WiFi 6E support in iPhone 13 series: What is it and why's important❗️<a href='https://techblock.club/?p=13173'> link</a>
+👉🏿Zelda: Skyward Sword HD - Lanayru Desert Goddess Cube Locations❗️<a href='https://techblock.club/?p=13193'> link</a>
 
