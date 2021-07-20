@@ -1,20 +1,20 @@
-<b>Technology NEWS on Monday, July 19th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Tuesday, July 20th, 2021</b> 📡📡📡 
 
-👉'GTA Online' Is Literally Making Some Cars Faster On PS5 And Xbox Series X Only❗️<a href='https://techblock.club/?p=13217'> link</a>
+👉Xbox Game Pass adds Microsoft Flight Simulator, Blinx: The Time Sweeper in July❗️<a href='https://techblock.club/?p=13237'> link</a>
 
-👉🏽Nvidia paves the way for RTX GPU Chromebooks with new Arm demo❗️<a href='https://techblock.club/?p=13219'> link</a>
+👉🏽Verizon is also switching to Android Messages as default for RCS❗️<a href='https://techblock.club/?p=13239'> link</a>
 
-👉🏿Save $59 on AirPods Pro, $70 on AirPods Max❗️<a href='https://techblock.club/?p=13221'> link</a>
+👉🏿Watch Jeff Bezos launch to the edge of space in Blue Origin's first human flight❗️<a href='https://techblock.club/?p=13241'> link</a>
 
-👉In a NASA first, astronauts are growing chili peppers on the International Space Station❗️<a href='https://techblock.club/?p=13223'> link</a>
+👉Is the 2021 Ford Bronco a Good Car? 6 Pros and 3 Cons❗️<a href='https://techblock.club/?p=13243'> link</a>
 
-👉🏽Fall Guys: Ultimate Knockout Season 5 is coming July 20 on Steam and PlayStation❗️<a href='https://techblock.club/?p=13225'> link</a>
+👉🏽Nvidia's new demo paves the way for gaming laptops running on mobile chips❗️<a href='https://techblock.club/?p=13245'> link</a>
 
-👉🏿Nintendo Denies Higher Profit On OLED Switch And More Models To Come❗️<a href='https://techblock.club/?p=13227'> link</a>
+👉🏿Indian food delivery startup Swiggy raises $1.25 billion led by SoftBank and Prosus❗️<a href='https://techblock.club/?p=13247'> link</a>
 
-👉Enough with iOS 15 beta bugs. Here's how to go back to iOS 14 right now❗️<a href='https://techblock.club/?p=13229'> link</a>
+👉Best iPhone 2021: We looked at all 7 models Apple sells to decide which is best❗️<a href='https://techblock.club/?p=13249'> link</a>
 
-👉🏽Huawei's P50 flagship will launch on July 29th❗️<a href='https://techblock.club/?p=13231'> link</a>
+👉🏽SpaceX test fires massive Super Heavy booster for Starship for 1st time (video)❗️<a href='https://techblock.club/?p=13251'> link</a>
 
-👉🏿Stay Cool, Save Money: Fast fixes for your air conditioning❗️<a href='https://techblock.club/?p=13233'> link</a>
+👉🏿Scientists built a robot hand that can play Nintendo's Super Mario Bros.❗️<a href='https://techblock.club/?p=13253'> link</a>
 
