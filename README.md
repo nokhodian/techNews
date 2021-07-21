@@ -1,20 +1,20 @@
-<b>Technology NEWS on Tuesday, July 20th, 2021</b> 📡📡📡 
+<b>Technology NEWS on Wednesday, July 21st, 2021</b> 📡📡📡 
 
-👉Xbox Game Pass adds Microsoft Flight Simulator, Blinx: The Time Sweeper in July❗️<a href='https://techblock.club/?p=13237'> link</a>
+👉Pokemon Unite brings co-op battling to Nintendo Switch❗️<a href='https://techblock.club/?p=13257'> link</a>
 
-👉🏽Verizon is also switching to Android Messages as default for RCS❗️<a href='https://techblock.club/?p=13239'> link</a>
+👉🏽Zoom launches Live Game Night Poker with FlowPlay❗️<a href='https://techblock.club/?p=13259'> link</a>
 
-👉🏿Watch Jeff Bezos launch to the edge of space in Blue Origin's first human flight❗️<a href='https://techblock.club/?p=13241'> link</a>
+👉🏿Everything we know about Apex Legends' newest weapon, the Rampage LMG❗️<a href='https://techblock.club/?p=13261'> link</a>
 
-👉Is the 2021 Ford Bronco a Good Car? 6 Pros and 3 Cons❗️<a href='https://techblock.club/?p=13243'> link</a>
+👉Apple can and must do more to prevent NSO attacks, says Johns Hopkins security professor❗️<a href='https://techblock.club/?p=13263'> link</a>
 
-👉🏽Nvidia's new demo paves the way for gaming laptops running on mobile chips❗️<a href='https://techblock.club/?p=13245'> link</a>
+👉🏽Fallout 76 getting custom servers as part of Fallout 1st subscription❗️<a href='https://techblock.club/?p=13265'> link</a>
 
-👉🏿Indian food delivery startup Swiggy raises $1.25 billion led by SoftBank and Prosus❗️<a href='https://techblock.club/?p=13247'> link</a>
+👉🏿Nintendo Switch Online's next three SNES games revealed❗️<a href='https://techblock.club/?p=13267'> link</a>
 
-👉Best iPhone 2021: We looked at all 7 models Apple sells to decide which is best❗️<a href='https://techblock.club/?p=13249'> link</a>
+👉Nintendo Expands Its Switch Online SNES Service With Three More Titles❗️<a href='https://techblock.club/?p=13269'> link</a>
 
-👉🏽SpaceX test fires massive Super Heavy booster for Starship for 1st time (video)❗️<a href='https://techblock.club/?p=13251'> link</a>
+👉🏽PC Game Removes Denuvo DRM Before It Even Launches❗️<a href='https://techblock.club/?p=13271'> link</a>
 
-👉🏿Scientists built a robot hand that can play Nintendo's Super Mario Bros.❗️<a href='https://techblock.club/?p=13253'> link</a>
+👉🏿Goldlewis Dickinson is Guilty Gear Strive's first DLC character, launches July 27❗️<a href='https://techblock.club/?p=13273'> link</a>
 
