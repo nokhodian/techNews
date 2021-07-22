@@ -1,20 +1,20 @@
-<b>Technology NEWS on Wednesday, July 21st, 2021</b> 📡📡📡 
+<b>Technology NEWS on Thursday, July 22nd, 2021</b> 📡📡📡 
 
-👉Pokemon Unite brings co-op battling to Nintendo Switch❗️<a href='https://techblock.club/?p=13257'> link</a>
+👉LG's air purifying mask will amplify your voice with a built-in mic and speakers❗️<a href='https://techblock.club/?p=13277'> link</a>
 
-👉🏽Zoom launches Live Game Night Poker with FlowPlay❗️<a href='https://techblock.club/?p=13259'> link</a>
+👉🏽Obé Fitness raises $15M for its personality-driven exercise platform❗️<a href='https://techblock.club/?p=13279'> link</a>
 
-👉🏿Everything we know about Apex Legends' newest weapon, the Rampage LMG❗️<a href='https://techblock.club/?p=13261'> link</a>
+👉🏿Oregon congressman proposes new space tourism tax❗️<a href='https://techblock.club/?p=13281'> link</a>
 
-👉Apple can and must do more to prevent NSO attacks, says Johns Hopkins security professor❗️<a href='https://techblock.club/?p=13263'> link</a>
+👉Nintendo Makes Some Needed Improvements In 'Skyward Sword HD' (We See You, Fi)❗️<a href='https://techblock.club/?p=13283'> link</a>
 
-👉🏽Fallout 76 getting custom servers as part of Fallout 1st subscription❗️<a href='https://techblock.club/?p=13265'> link</a>
+👉🏽When is the next Apple event? Here's what we know❗️<a href='https://techblock.club/?p=13285'> link</a>
 
-👉🏿Nintendo Switch Online's next three SNES games revealed❗️<a href='https://techblock.club/?p=13267'> link</a>
+👉🏿'Meet people where they are:' Leaders strategize to improve Mattapan vaccination rate❗️<a href='https://techblock.club/?p=13287'> link</a>
 
-👉Nintendo Expands Its Switch Online SNES Service With Three More Titles❗️<a href='https://techblock.club/?p=13269'> link</a>
+👉Pokémon Unite ranked explained❗️<a href='https://techblock.club/?p=13289'> link</a>
 
-👉🏽PC Game Removes Denuvo DRM Before It Even Launches❗️<a href='https://techblock.club/?p=13271'> link</a>
+👉🏽Activision Blizzard Sued By California Over Widespread Harassment Of Women❗️<a href='https://techblock.club/?p=13291'> link</a>
 
-👉🏿Goldlewis Dickinson is Guilty Gear Strive's first DLC character, launches July 27❗️<a href='https://techblock.club/?p=13273'> link</a>
+👉🏿Amazon's new MMO may be bricking Nvidia 3090s❗️<a href='https://techblock.club/?p=13293'> link</a>
 
